@@ -167,7 +167,9 @@ bbidyaga@protonmail.com |
 
 Однак історія показує, що режими, засновані на брехні та насильстві, приречені на крах. І коли це станеться, всі лицеміри, злочинці та їхні посібники постануть перед судом – якщо не перед земним, то перед Вищим.
 
-<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="width: 50%;" alt="">
+<div style="text-align: center;">
+  <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="width: 50%;" alt="">
+</div>
 
 
 
