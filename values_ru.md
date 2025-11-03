@@ -138,6 +138,7 @@ http://www.kremlin.ru/acts/bank/48502
 
 Однако история показывает, что режимы, основанные на лжи и насилии, обречены на крах. И когда это произойдет, все лицемеры, преступники и их пособники предстанут перед судом – если не перед земным, то перед Высшим.
 
+<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
  
 
 
