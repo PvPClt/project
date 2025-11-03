@@ -1791,6 +1791,8 @@ Nous allons ressusciter notre grande puissance et notre grande « deuxième arm�
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
+                                
+<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 
 ### LISTE DES FONDATIONS CARITATIVES EN SOUTIEN À L’UKRAINE : 
