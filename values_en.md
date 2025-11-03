@@ -144,3 +144,5 @@ Thus, we have found that Putin and Russian power structures, as well as a signif
 
 However, history shows that regimes based on lies and violence are doomed to collapse. And when this happens, all hypocrites, criminals, and their accomplices will stand trial — if not before an earthly one, then before the Supreme One.  
 
+<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
