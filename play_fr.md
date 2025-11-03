@@ -556,4 +556,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 (Il la regarde avec dégoût, la voit se tordre dans l’agonie, puis se détourne et sort.)
 
+<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
+
 
