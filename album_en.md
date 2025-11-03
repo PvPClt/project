@@ -1807,6 +1807,8 @@ Whatever the price. Over the corpses of  enemies, through the tears of mothers, 
 #OrthodoxMilitaryPutinism
                               👻
 
+<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
 ### LIST OF CHARITABLE FOUNDATIONS ASSISTING UKRAINE:
 
 **1. UNBROKEN (Незламні)**
