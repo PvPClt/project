@@ -6,15 +6,6 @@
 
 ### Pour le 72ème anniversaire de Poutine
 
-**ATTENTION !**
-**NOTE IMPORTANTE !**
-
-Ce projet a été créé dans un contexte de persécution numérique. Les services secrets russes mènent des cyberattaques systématiques visant à déformer et à substituer la traduction correcte des mots et des expressions, cherchant à discréditer les textes et à en altérer le sens.
-Si vous êtes un locuteur natif et que vous remarquez dans les textes des mots et des expressions absurdes, illogiques, dénués de sens, "maladroits" ou grammaticalement incorrects, veuillez signaler l'erreur spécifique en utilisant les contacts ci-dessous (proposez votre version et expliquez pourquoi elle est meilleure). Votre aide pour garantir l'intégrité linguistique et la justesse des traductions est inestimable dans ce combat pour la vérité.
-Contacts:
-bbidyaga@protonmail.com | 
-[Написать в Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
-
 ![](Images/Cover_Play.jpg)
 
 ### Personnages :
@@ -26,10 +17,10 @@ bbidyaga@protonmail.com |
 **Poutine**  :
 – Tu es encore à genoux ? C’est quoi, ce bordel ?! Je t’ai pourtant relevée !
 
-**La Russie** (tressaillant) :
+**La Russie** (avec un sourire à peine perceptible) :
 – Oh ! Mon petit est là ! Moi qui n’y croyais plus… Je t’ai tant attendu… Alors, raconte : où t’es-tu fourré, qu’est-ce que tu fabriques ?
 
-**Poutine** (renfrogné) :
+**Poutine** (sombre) :
 – J’étais à la guerre.
 
 ![](Images/Fr_Play_01.jpg)
@@ -44,7 +35,7 @@ bbidyaga@protonmail.com |
 – Celle de gauche ? Ou celle de droite ?
 
 **Poutine** (morose) :
-– De gauche. Elle se prend, tu vois, pour une nation à part entière… Mais quelle nation ? Une traînée jaune et bleue… Un sous-produit de l’histoire. Voilà ce qu’elle est.
+– De gauche. Elle se prend, tu vois, pour une nation unique... Mais quelle nation ? Une traînée jaune et bleue… Un sous-produit de l’histoire. Voilà ce qu’elle est.
 
 **La Russie** (acquiesçant) :
 – Ah, quelle insolente !
@@ -69,13 +60,13 @@ bbidyaga@protonmail.com |
 ![](Images/Fr_Play_03.jpg)
 
 **Poutine** :
-Et pourtant, cette truie m’a volé mes terres ! Oui, elle me les a volées… et elle s’engraisse, elle ramasse des profits par milliards. Des terres russes de souche, soit dit en passant… Des terres où la Sainte Russie s’est dressée, où le prince Vladimir Soleil-Rouge siégeait sur le trône… où il guerroyait contre les Petchénègues et les Coumans...
+— Et pourtant, cette truie m’a volé mes terres ! Oui, elle me les a volées… et elle s’engraisse, elle ramasse des profits par milliards. Des terres russes de souche, soit dit en passant… Des terres où la Sainte Russie s’est dressée, où le prince Vladimir Soleil-Rouge siégeait sur le trône… où il guerroyait contre les Petchénègues et les Coumans...
 
 ![](Images/Fr_Play_04.jpg)
 
 **La Russie** (insinuante) :
-– Mais toi, tu en as bien assez, des terres, non ?
-
+–Mais toi, tu en as bien assez, des terres, non ?
+ 
 **Poutine** (la voix torturée) :
 – Des terres ? Tu appelles ça des terres ? Des marais, des friches… de la toundra, de la taïga… qu’est-ce que tu veux que je fasse de ça ? Tandis qu’elle, elle a du tchernoziom, une terre grasse… Le grenier, tu comprends, qui nourrit le monde entier…
 
@@ -92,7 +83,7 @@ Et pourtant, cette truie m’a volé mes terres ! Oui, elle me les a volées… 
   **Poutine** (après une pause) :
 –  Et elle, elle a tout pris, et elle en profite. De quel droit ?
 
-**La Russie** (le regardant avec une inquiétude naïve) :
+**La Russie** (le regardant avec une inquiétude) :
 – On dirait que tes mains sont un peu… rouges, non ? Mais pourquoi ?
 
 ![](Images/Fr_Play_06.jpg)
@@ -100,7 +91,7 @@ Et pourtant, cette truie m’a volé mes terres ! Oui, elle me les a volées… 
 **Poutine** (agacé) :
 – Tu débloques. Mes mains vont très bien. Va voir un médecin — fais vérifier ta vue.
 
-**Poutine** (après une pause, la voix brûlante) :
+**Poutine** (après une pause) :
 – Bon… ce que je voulais dire… Cette saloperie… elle insulte notre peuple : elle leur interdit de parler russe.
 
 **La Russie** (en colère) :
@@ -133,7 +124,7 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 
 ![](Images/Fr_Play_10.jpg)
 
-**La Russie** (joignant les mains, horrifiée) :
+**La Russie** (en levant les mains, horrifié) :
 – Ah, mon Dieu ! Comment osent-ils !
 
 **Poutine** (d’une voix tragique) :
@@ -142,12 +133,12 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 **La Russie** (chagrinée) :
 – Quel malheur ! Et vous n’avez pas essayé d’asperger avec de l’eau bénite ? Depuis un hélicoptère ?
 
-**Poutine** (soupirant lourdement, comme épuisé) :
+**Poutine** (soupirant lourdement) :
 – On a pourtant tout essayé ! On a fait dire une messe, apporté des reliques, et les popes avec les icônes ont fait une ronde…
 
 ![](Images/Fr_Play_11.jpg)
 
-**La Russie** (inquiète) :
+**La Russie** (préoccupé ) :
 – Et ça n’a pas aidé ? Quelle force impure ! Et vous n’avez pas fait le tour avec l’encensoir ?
 
 **Poutine** (avec ferveur) :
@@ -156,7 +147,7 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 **La Russie** (avec un air de compétence) :
 – Et vous êtes allés dans quel sens ? Il faut faire le cercle solaire.
 
-**Poutine** (affairé) :
+**Poutine** (agité) :
 – C’est ce qu’on a fait, c’est ce qu’on a fait. Le cercle solaire. Dans le sens des aiguilles d’une montre.
 
 **La Russie** (étonnée) :
@@ -165,21 +156,21 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 **Poutine** (tristement, secouant la tête) :
 – Que dalle.
 
-**La Russie** (après une courte pause, se saisissant la tête et se lamentant) :
+**La Russie** (après une courte pause, se lamentant) :
 – Sainte Marie ! Saints thaumaturges ! On t’a jeté le mauvais œil, mon petit ! Oh, le mauvais œil ! Les suppôts de Satan, les mécréants de l’étranger ! Oh là là ! Qu’allons-nous faire ? Il n’y a pas d’autre solution que d’aller voir une guérisseuse !
 
 **Poutine** (agacé) :
 – Quelle guérisseuse ? Qu’est-ce que tu racontes ?!
  
 **La Russie** (continue de se lamenter) :
-– Pour jeter un sort sur l’eau… « Sauve le serviteur de Dieu Vladimir du Serpent volant, du Serpent rampant, du malheur… Ennemi, Satan, homme mauvais, détourne-toi de lui, comme bête de bête, serpent de serpent, hérétique d’hérétique, sorcier de sorcière… Pouah, pouah, pouah ! » [Elle crache trois fois par-dessus son épaule gauche en se signant chaque fois.] 
+– Pour jeter un sort sur l’eau… « Sauve le serviteur de Dieu Vladimir du Serpent volant, du Serpent rampant, du malheur… Ennemi, Satan, homme mauvais, détourne-toi de lui, comme bête de bête, serpent de serpent, hérétique d’hérétique, sorcier de sorcière… Pouah, pouah, pouah ! » (Elle crache trois fois par-dessus son épaule gauche en se signant chaque fois.)
 
 ![](Images/Fr_Play_12.jpg)
 
 **La Russie** :
 – Il faut ensorceler l’eau comme ça ; tu te laves trois fois avec cette eau sur le seuil, et tout s’arrangera, je te le jure ! Mais attention — il faut se laver à l’aube, au premier rayon du jour.
 
-**Poutine** (interloqué, levant un sourcil) :
+**Poutine** (incrédule) :
 – Tu crois que ça aidera ?
 
 **La Russie** (avec fougue) :
@@ -196,12 +187,12 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 **La Russie** (après une pause) :
 – Et autre chose. Méfie-toi des chats noirs. On ne sait jamais, cette impureté pourrait te traverser la route…
 
-**Poutine** (suffisant, levant un sourcil) :
-– Ces chats noirs, moi, d’un seul regard… L’autre jour, il y en a un qui s’est mis en travers de ma route. Je l’ai regardé d’un tel air — il a momentanément disparu.
+**Poutine** (complaisant) :
+– Ces chats noirs, moi, d’un seul regard… L’autre jour, il y en a un qui s’est mis en travers de ma route. Je l’ai regardé d’un tel air — il a disparu à ce moment-là.
 
 ![](Images/Fr_Play_14.jpg)
 
-**La Russie** (approbative, ravie) :
+**La Russie** (approbative) :
 – Ah, le beau gars ! Ah, quel brave !
 
 **La Russie** (après une courte pause, agitée) :
@@ -229,13 +220,11 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 (Une petite pause.)
 
 **Poutine** (avec amertume et rancœur) :
-– Ils ont maintenant des avions ! Des Américains ! Des F16 ! Tu entends ? Ce n’est pas un avion, c’est un dragon de feu !
-Tu crois qu’il sait seulement lancer des bombes ? Que nenni !
-C’est aussi un chasseur, et un intercepteur ! Trois en un, nom de Dieu !  Salope ! Salope ! Salope !
+– Ils ont maintenant des avions ! Des Américains ! Des F16 ! Tu entends ? Ce n’est pas un avion, c’est un dragon de feu ! Tu crois qu’il sait seulement lancer des bombes ? Que nenni ! C’est aussi un chasseur, et un intercepteur ! Trois en un, nom de Dieu !  Salope ! Salope ! Salope !
 
 ![](Images/Fr_Play_17.jpg)
 
-**La Russie** (avec aversion) :
+**La Russie** (avec condamnation) :
 – Voyez un peu ce qu’ils inventent, les damnés démons !
 
 **Poutine** (éclatant en cris) :
@@ -244,10 +233,10 @@ C’est aussi un chasseur, et un intercepteur ! Trois en un, nom de Dieu !  Salo
 **La Russie** (déconcertée) :
 – Qui ?
 
-**Poutine** (avec emportement) :
+**Poutine** (agacé) :
 – Le pilote ! Celui qui est dans l’avion !
 
-**La Russie** (avec aversion) :
+**La Russie** (avec condamnation) :
 – Ah, le parasite !
 
 **Poutine** (près de sangloter) :
@@ -270,11 +259,11 @@ Avec exhibition de symboles nazis…
 
 ![](Images/Fr_Play_19.jpg)
 
-**La Russie** (les yeux étincelants de colère, levant les mains) :
+**La Russie** (avec colère) :
 – Ah, les vauriens ! Et où regarde donc cette… comment déjà… l’ONU ?
 
-**Poutine** (avec un mépris absolu, regardant l'illustration) :
-– L’ONU… [pause, ricanement méprisant] Un carillon à vent.
+**Poutine** (avec un mépris) :
+– L’ONU… Un carillon à vent.
 
 ![](Images/Fr_Play_20.jpg)
 
@@ -290,11 +279,11 @@ Avec exhibition de symboles nazis…
 – Le pilote, bon sang ! Celui qui est dans l’avion ! Il a un navet de malade, un truc de ouf, que tous mes radars peuvent aller se faire foutre !
 
 > «Navet» en russe a deux significations :
-–Navet (légume)
-–Moyens de guerre électronique (jargon militaire)
+– Navet (légume)
+– Moyens de guerre électronique (jargon militaire)
 
 **La Russie** (indignée) :
-Ah, les canailles ! Ils s’en prennent à notre valeur traditionnelle ! Touche pas à notre navet, sales barbares ! Bouffez donc votre maïs ! Et crèvez-en, tiens !
+— Ah, les canailles ! Ils s’en prennent à notre valeur traditionnelle ! Touche pas à notre navet, sales barbares ! Bouffez donc votre maïs ! Et crèvez-en, tiens !
 
 ![](Images/Fr_Play_21.jpg)
 
@@ -318,7 +307,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 (Ils se taisent tous les deux pendant une minute. Poutine est plongé dans ses pensées, son visage plus sombre que la tempête. La Russie, l’air désapprobateur, remue silencieusement les lèvres.)
 
-**Poutine** (se réveillant soudain, brandissant les poings avec rage) :
+**Poutine** (soudainement, brandissant les poings avec rage) :
 – Maudits Amerloques !
 
 **La Russie** (compatissante) :
@@ -345,18 +334,18 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 **La Russie** (obsequieuse) :
 – Quoi ?
 
-**Poutine** (appuyant) :
+**Poutine** :
 – J’soupçonne une intervention extraterrestre dans cette histoire.
 
 **La Russie** (terrifiée) :
 – Comment ?! Des aliens ?! Des autres mondes ?!
 
-**Poutine** (d’une voix souffrante, montant peu à peu en colère) :
+**Poutine** (d'une voix douloureuse, se transformant en colère) :
 – Exactement ! On dirait que les nazis de tout le système solaire se sont ligués contre moi ! Avec à leur tête ce bloc immonde, sanguinaire et agressif de l’OTAN ! Des homosexuels ! Des pédés purulents ! Parent un ! Parent deux ! **Des XenoGalAgents !!!**
 
 ![](Images/Fr_Play_25.jpg)
 
-**Poutine** (furieux à l’extrême, il explose soudain en un hurlement strident) :
+**Poutine** (explose soudain en un hurlement strident) :
 – Je vais faire sauter cet univers tout entier, bordel de merde !!!
 
 ![](Images/Fr_Play_26.jpg)
@@ -366,14 +355,14 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 (Elle commence à chuchoter convulsivement une prière, se signant menu et cognant parfois la tête contre le sol avec un bruit sourd. Poutine, ayant évacué sa tension, se calme vite et marmonne à mi-voix.)
 
- **Poutine :
+ **Poutine** :
 – Bon, ouais… là-bas, ils sont tous gender neutre… Sans caractères sexuels primaires… Dieu merci, nous on n’est pas comme ça !
 
 ![](Images/Fr_Play_27.jpg)
 
 (Il palpe ses propres caractères sexuels primaires et hoche la tête avec satisfaction. La Russie cesse de se prosterner et le regarde avec une appréhension muette.)
 
-**Poutine** (accablé, puis s’échauffant jusqu’à l’explosion) :
+**Poutine** (accablé, peu à peu s'échauffant) :
 – Du traquenard partout… De la trahison à chaque coin ! Les généraux bradent la Patrie. Au détail et en gros !... Tout le ravitaillement a été détourné. En temps de paix, passe encore – volez, volez, allez-y… Mais en temps de guerre ?! Plus aucune honte ! Ils vendent mes chars à mes ennemis ! Juste de l’autre côté du front ! En main propre ! Dans un emballage cadeau ! Avec un putain de nœud papillon sur la tourelle ! Berk ! Fils de pute !!!
 
 ![](Images/Fr_Play_28.jpg)
@@ -381,7 +370,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 **La Russie** (secouant la tête, accablée) :
 – Donc ils me volent, moi… et toi aussi… Voilà donc… Complètement ingérables…
 
-**Poutine** (levant les mains d’un air désespéré) :
+**Poutine** (désespéré) :
 – Ah, à quoi bon en parler…
 
 (Il se tait et réfléchit. La Russie le regarde comme un chiot dévoué.)
@@ -394,7 +383,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 **Poutine** (avec lubricité) :
 – Occupons-nous plutôt d’un petit plaisir.
 
-**La Russie** (acquiesce) :
+**La Russie** (en hochant la tête) :
 – Allons, mon mignon, allons.
 
 (Poutine la contourne par derrière, pose ses mains sur ses flancs décharnés et les retire aussitôt.)
@@ -403,7 +392,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 – Mais qu’est-ce que tu as donc tant maigri, ma petite mère ? Rien que la peau sur les os ?
 
 **La Russie** (hausse les épaules) :
-– Moi-même, je n’en reviens pas…
+– Je m'étonne moi-même...
 
 **Poutine** (avec dépit) :
 – Même pas de quoi tenir… Où est passée toute ta chair ?
@@ -436,13 +425,13 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 **Poutine** (avec détermination) :
 – Allez, petite mère, debout.
 
-**La Russie** (entêtée comme un gamin capricieux) :
+**La Russie** (d'une voix capricieuse) :
 – Pourquoi faire ? Je suis bien comme ça.
 
 **Poutine** (caressant le large dos de la Russie) :
 – Ma chérie, lève-toi de tes genoux, s’il te plaît !
 
-**La Russie** (câlinement) :
+**La Russie** (coquettement) :
 – Je croyais que cette position te plaisait… Tout à l’heure, tu gémissais… comme un fiancé la nuit de noces…
 
 **Poutine** (irrité) :
@@ -451,61 +440,61 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 **La Russie** (hausse les épaules) :
 – Du nouveau ? Ce qui est vieux et oublié ? Bon… pourquoi pas du nouveau…
 
-**Poutine** (satisfait, puis avec un sourire cynique) :
+**Poutine** (satisfait, avec un sourire cynique) :
 – Voilà qui est bien, voilà qui est sage ! Mais… qu’est-ce que je peux bien te trouver, à aimer une vieille carne comme toi ?
 
-**La Russie** (avec nostalgie, redressant la tête puis retombant) :
+**La Russie** (avec nostalgie) :
 – Je suis grande et riche… Enfin, riche, je l’étais…
 
-**Poutine** (rêveur) :
+**Poutine** (satisfait) :
 – Oui… Et maintenant, c’est moi qui suis riche…
 
-(Il la palpe du regard. Son expression change, un dégoût discret traverse son visage.)
+(Il la regarde fixement. Son visage affiche un dégoût mal dissimulé.)
 
  **Poutine** :
 – Mais t’as vieilli, petite mère… Et t’as enlaidi.
 
-**La Russie** (blessée) :
-– Et qu’est-ce que tu voulais ? Quand tout un coopératif te viole jour et nuit… Ni repos ni trêve avec ces parasites…
+**La Russie** (offensé) :
+– Et qu’est-ce que tu voulais ? Quand tout un coopérative te viole jour et nuit… Ni repos ni trêve avec ces parasites…
 
 ![](Images/Fr_Play_30.jpg)
 
 **Poutine** (hautain) :
 – Oh là, madame, doucement ! Ce sont mes amis, quand même ! Et puis, pourquoi tu t’offenses ? Tu devrais être fière. Est-ce un péché de se donner à un bon homme ? Et c’est tous des types formidables, je le jure sur ma mère.
 
-**La Russie** (marmonnant pour elle-même, amère) :
+**La Russie** (marmonnant pour elle-même) :
 – À un bon homme ?… Pourquoi pas se donner… On peut se donner… bien sûr… Mais ils sont si avides…
 
-**Poutine** (conciliant mais cynique) :
-– Allons, tu es si grande, tu n’en seras pas appauvrie !
+**Poutine** (conciliant) :
+– Allons, tu es si grande ! Pour toi – ce n'est rien  !
 
 **Poutine** (après une pause) :
 – Alors, on essaie la nouvelle position ?
 
 (La Russie, grognant et gémissant, tente de se lever de ses genoux, mais échoue.)
 
-**La Russie** (pitoyablement) :
+**La Russie** (plaintivement) :
 – Je suis trop fatiguée, je tiens pas debout… Et si on laissait tomber, cette nouvelle position ? À genoux, j’suis habituée…
 
 **Poutine** (sévèrement) :
 – Debout ! Lève-toi de tes genoux !
 
-**La Russie** (pleurnicharde) :
+**La Russie** (d'une voix larmoyante) :
 – Mais pourquoi se lever ?
 
-**Poutine** (avec emphase) :
+**Poutine** (solennellement) :
 – Mieux vaut mourir debout que vivre à genoux !
 
-**La Russie** (joignant les mains, effrayée) :
+**La Russie** (levant les mains, effrayée) :
 – Saintes paroles ! Mais… pourquoi mourir ?
 
 **Poutine** (à part, ricanant) :
 – D’orgasme, petite mère. D’orgasme.
 
-**La Russie** (incrédule, yeux écarquillés) :
+**La Russie** (méfiante) :
 – Vraiment ? On peut mourir de ça ?
 
-**Poutine** (sentencieux) :
+**Poutine** (ton paternaliste) :
 – On peut. Si l’orgasme est fort… et l’organisme faible.
 
 **La Russie** (ravie) :
@@ -519,12 +508,12 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 **Poutine** (avec convoitise) :
 – Dis-moi comme tu m’aimes.
 
-**La Russie** (tendre) :
+**La Russie** (avec tendresse) :
 – Je t’aime, mon mignon, oh comme je t’aime ! À soixante-dix-huit virgule neuf pour cent. Demande à l’IFOP ! Des savants, eux. Ils mentent pas.
 
 ![](Images/Fr_Play_31.jpg)
 
-**Poutine** (appuyant légèrement son éperon sur le derrière flasque de la Russie, moqueur) :
+**Poutine** (enfonçant légèrement son éperon dans le cul flasque de la Russie, d'un ton moqueur) :
 – Et là ? Ça fait combien de pour cent ?
 
 **La Russie** (gémissante, haletante) :
@@ -541,10 +530,10 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 **La Russie** (voix cassée) :
 – Je sens… que je… meurs… Tu viens avec moi, mon chéri ?
 
-**Poutine** (ricanant, brutal) :
+**Poutine** (de façon moqueuse) :
 – Moi, mourir ? Tu rêves. Moi, jamais. J’suis pas prêt à crever — j’ai encore d’autres affaires.
 
-**La Russie** (langue pâteuse) :
+**La Russie** (avec difficulté à prononcer les mots) :
 – Mais… Volodine… tout à l’heure… il a dit quoi ?… « Pas de Poutine… pas de Russie ? »
 
 > Viatcheslav Volodine, président de la Douma. On lui attribue la formule : « S’il y a Poutine, il y a la Russie. Pas de Poutine – pas de Russie. »
@@ -556,7 +545,10 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 (Il la regarde avec dégoût, la voit se tordre dans l’agonie, puis se détourne et sort.)
 
+24.09.2024
+Turquie – Géorgie
+
+ISBN 978-5-9903439-2-4
+© Щеглова О.В., 2024
+
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
-
-
-
