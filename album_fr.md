@@ -341,7 +341,7 @@ Ce rituel symbolisait la justice absolue et l'impossibilité de tromperie.
 
 #PoutinismeMilitaireOrthodoxe
 
- # ZERO-4. SUPPLÉMENTS DE PROPAGANDE
+ ## ZERO-4. SUPPLÉMENTS DE PROPAGANDE
 
 ![](Images/Fr_Album_004.jpg)
 
