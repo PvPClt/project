@@ -341,7 +341,7 @@ Ce rituel symbolisait la justice absolue et l'impossibilité de tromperie.
 
 #PoutinismeMilitaireOrthodoxe
 
- ## ZERO-4. SUPPLÉMENTS DE PROPAGANDE
+ # ZERO-4. SUPPLÉMENTS DE PROPAGANDE
 
 ![](Images/Fr_Album_004.jpg)
 
@@ -1351,7 +1351,7 @@ Sortie prévue : 202X
 
 ## 51. LE BAR À POTINS DE TRAMPUTATION
 
-![](Images/Fr_Album_50.jpg)
+![](Images/Fr_Album_51.jpg)
 
 Un bar américain.
 Les présidents Poutine et Trump, une bière à la main, penchés l'un vers l'autre au-dessus de la table.
