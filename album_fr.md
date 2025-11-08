@@ -194,11 +194,12 @@ Ont marqué la terre et brisé les clairières.
 ![](Images/Fr_Album_003.jpg)
 
 > Un temple sacré de l'Égypte ancienne. À l'intérieur se déroule la procédure bien connue du Jugement du dieu égyptien Osiris, telle que décrite dans le « Livre des Morts ». Y participent également :
-• Le dieu Thot (secrétaire du tribunal, avec une tablette d'argile dans les mains)
-• Le dieu Anubis (expert en criminalistique)
-• La déesse Maât (accusateur)
-• 42 dieux-jurés égyptiens (portant des masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable et autres personnages historiques)
-• Poutine (l'accusé) 
+> 
+- Le dieu Thot (secrétaire du tribunal, avec une tablette d'argile dans les mains)
+- Le dieu Anubis (expert en criminalistique)
+- La déesse Maât (accusateur)
+- 42 dieux-jurés égyptiens (portant des masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable et autres personnages historiques)
+- Poutine (l'accusé) 
 
 > La salle est éclairée par des écrans de télévision scintillants qui diffusent les procédures judiciaires. Poutine se tient près d'immenses balances de pharmacien ; sur un plateau se trouve un cœur rouge en papier avec une gravure dorée : « Poutine : 86 % ». L'autre plateau est vide, pourtant les plateaux s'équilibrent.
 
