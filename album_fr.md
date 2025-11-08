@@ -694,8 +694,11 @@ Cellule de prison russe typique. Un détenu extrêmement amaigri, maladif. Derri
 
 — En Russie il n’y a pas de peine de mort. Les détenus meurent volontairement en prison — de honte et de remords.
 Un nouveau programme étatique de stimulation humaine du départ volontaire est mis en place :
+
 — perfusions de repentir,
+
 — régime “éveil de la conscience” (ration carcérale n°1),
+
 — aromathérapie “éducation patriotique” (seau-toilette ouvert dans les cellules disciplinaires).
 
 La justice russe est la plus humaine du monde !
@@ -932,10 +935,12 @@ dans une école russe.
 
 Séance du Conseil de sécurité de l’ONU.
 
-Représentant de l’Ukraine :
+**Représentant de l’Ukraine** :
+
 — La Russie est un État terroriste ! Vous bombardez des immeubles d’habitation, tuez des enfants, violez des femmes, pillez des maisons, violez les lois de la guerre. Vous en répondrez, tôt ou tard ! La Russie doit être jugée !
 
-Ministre russe Lavrov :
+**Ministre russe Lavrov** :
+
 — Putains de débiles !
 
 #PoutinismeMilitaireOrthodoxe
@@ -947,16 +952,20 @@ Ministre russe Lavrov :
 
 Front ukrainien. Arrière. Les soldats sont rassemblés. Le ministre russe de la Défense, Sergueï Choïgou, s’adresse à eux.
 
-Soldat :
+**Soldat** :
+
 — Camarade général, et s’il y a beaucoup d’Ukrainiens et que je suis seul ?
 
-Choïgou :
+**Choïgou** :
+
 — Tu dois te battre jusqu’à la dernière balle, fils. Si, par malheur, on t’attrape vivant — c’est un crime. Capitulation volontaire.
 
-Soldat :
+**Soldat** :
+
 — Mais je ne veux pas mourir !
 
-Choïgou :
+**Choïgou** :
+
 — Ta vie est réglée. Contrat fermé — pas de monnaie, pas de reddition.
 
 #PoutinismeMilitaireOrthodoxe
@@ -968,10 +977,12 @@ Choïgou :
 
 Réunion du Conseil de sécurité de l'ONU.
 
-Représentant de l’Ukraine :
+**Représentant de l’Ukraine** :
+
 — Après le retrait des troupes russes de Boutcha, on a retrouvé des centaines de corps de civils. Ils ont été tués par les soldats de Poutine !
 
-Représentant de la Russie :
+**Représentant de la Russie** :
+
 — Mensonge éhonté ! Il n’y avait aucun cadavre ! Mise en scène ukrainienne !
 À Boutcha, il n’y a pas eu d’opérations militaires — seulement une pièce de théâtre ukrainienne.
 
@@ -984,14 +995,17 @@ Représentant de la Russie :
 
 Scène dans un appartement d’un immeuble moscovite : la maîtresse de maison, une voisine et un policier.
 
-Voisine :
+**Voisine** :
+
 — Nos garçons meurent, et vous —
 vous écoutez de la musique ! C’est de la discréditation !
 
-Maîtresse de maison :
+**Maîtresse de maison** :
+
 — Ce n’est pas ma faute si ces imbéciles sont partis au front. Je ne les ai pas traînés au bureau de recrutement ! Ils voulaient des millions. Maintenant, ils pourrissent là-bas.
 
-Policier :
+**Policier** :
+
 — En plus, incitation à la haine et à l’hostilité envers les membres de l’armée russe ! Ça va vous coûter cher, madame !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1003,10 +1017,12 @@ Policier :
 
 Clinique dentaire russe. Sur la porte du cabinet, un avis : « Pas de matériau pour les plombages. » Dans le hall, le dentiste parle avec un patient.
 
-Dentiste :
+**Dentiste** :
+
 — Vous avez apporté le matériau pour le plombage ? Nous, on n’en a plus. Rupture de stock. Sanctions. Vous savez bien. Pour l’instant, on n’a que du remplissage de roquette S-300. Garantie — un mois. Sauf si ça explose avant.
 
-Patient :
+**Patient** :
+
 — Vous savez quoi, je vais plutôt m’en aller. La dent, en fait, ne me fait plus mal. Comme par miracle, tout a disparu.
 
 #PoutinismeMilitaireOrthodoxe
@@ -1018,10 +1034,12 @@ Patient :
 
 Un jeune homme dans le cabinet d’une voyante russe.
 
-Homme :
+**Homme** :
+
 — Dites-moi... Vous savez sûrement quand cette guerre va finir ?
 
-Voyante :
+**Voyante** :
+
 — Bien sûr. Comptons... Aujourd’hui, nous sommes le 25.05.25. On multiplie... 25 × 5 × 25...
 Dans 3125 jours.
 
@@ -1034,10 +1052,12 @@ Dans 3125 jours.
 
 Clinique d’oncologie en Russie. Cabinet médical. Le patient est assis sur la table d’examen. Le médecin lui bande la poitrine.
 
-Patient :
+**Patient** :
+
 — Docteur, quand commencera la chimiothérapie ?
 
-Médecin (indifférent) :
+**Médecin** (indifférent) :
+
 — Pas dans cette vie. Les crédits ont disparu. Alors… on resserre bien le bandage, ça freine un peu les métastases.
 Infirmière ! Une injection d’eau bénite !
 Allez, tenez bon, on prie pour vous.
@@ -1051,10 +1071,12 @@ Allez, tenez bon, on prie pour vous.
 
 Front ukrainien. Positions russes. Une cuisine de campagne. Dialogue entre le commandant et le cuisinier.
 
-Cuisinier :
+**Cuisinier** :
+
 — Camarade capitaine, on raconte que la bouillie contient de la viande de rat, et que tout le stock de conserves a été volé par l’état-major.
 
-Capitaine :
+**Capitaine** :
+
 — Les conserves, c’est du faux. Un vrai soldat a besoin de vraie nourriture.
 Quant aux calomniateurs : on marine la viande dans le vinaigre, on met plus de poivre dans la bouillie, et on ajoute des oignons frits.
 
@@ -1067,10 +1089,12 @@ Quant aux calomniateurs : on marine la viande dans le vinaigre, on met plus de p
 
 Conférence de presse de Vladimir Poutine.
 
-Journaliste :
+**Journaliste** :
+
 — Vladimir Vladimirovitch, pourquoi ne vous rendez-vous pas au front, comme le fait le président ukrainien ?
 
-Poutine :
+**Poutine** :
+
 — Zelensky est illégitime. S’il se fait tuer, ce ne sera pas une grande perte.
 En plus, il cherche une popularité facile.
 Moi, je n’en ai pas besoin : ma cote est déjà au plus haut.
@@ -1087,12 +1111,19 @@ Commissariat militaire russe.
 Un grand panneau au mur proclame :
 
 Le conscrit doit apporter : 
+
 • tenue militaire, casque, rangers, 
+
 • poncho-tente, sac de couchage, tapis, sac à dos, 
+
 • appareil de vision nocturne « Chouette », jumelles, pelle de sapeur, 
+
 • imperméable,  vêtements chauds, trousse de secours, articles de toilette,
+
 • réserve alimentaire pour 3 jours,
+
 • téléphone à touches, papier, stylo, documents, 
+
 • ainsi qu’un AK (si disponible).
 
 #PoutinismeMilitaireOrthodoxe
@@ -1104,11 +1135,13 @@ Le conscrit doit apporter :
 
 Salle Saint-Georges, Grand Palais du Kremlin, Moscou. Poutine remet une récompense à un fonctionnaire.
 
-Poutine :
+**Poutine** :
+
 — Je vous remets ce pistolet nominatif pour vos services à la Patrie. Il saura vous réconforter dans les moments difficiles. Il ne vous laissera pas faillir.
 Et, je l’espère, offrira une solution dans une impasse.
 
-Fonctionnaire (solennel) :
+**Fonctionnaire** (solennel) :
+
 — Je sers la Russie ! Je suis prêt à prouver ma loyauté, fût-ce au prix de ma vie !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1123,38 +1156,60 @@ Médicament à large spectre d’action combinée.
 Actif contre tous les micro-organismes de l’opposition...
 
 **Action pharmacologique** :
+
 Provoque une peur persistante, des accès d’agressivité et une exaltation patriotique.
 Inhibe toute pensée critique, empathie ou culpabilité.
 
 **Composition** :
+
 • OTAN
+
 • moustiques de combat
+
 • biolaboratoires
+
 • Zelensky
+
 • fascistes
+
 • agents étrangers
+
 • LGBT
+
 • Childfree
-• Yankee
+
+• Les Ricains 
+
 • Biden
+
 • Gayrope (péjoratif pour l'Europe «décadente»)
+
 • Navalny
+
 • les mythiques "garçons crucifiés en slip"  
 
 **Indications** :
+
 • Conscience de soi trop développée
+
 • Confiance et compassion envers les ennemis du peuple
+
 • Besoin de réponses à des questions rhétoriques
 
 **Effets secondaires** :
+
 • Foi chronique dans la télévision
+
 • Allergie à la vérité
+
 • Crises de patriotisme à la vue du journal télévisé
 
 **Surdosage** :
+
 • Pas de données
 
 **Contre-indications** :
+
 • Aucune enregistrée
 
 #PoutinismeMilitaireOrthodoxe
@@ -1166,10 +1221,12 @@ Inhibe toute pensée critique, empathie ou culpabilité.
 
 Réunion d’une commission internationale sur le sabotage du barrage de Kakhovka.
 
-Représentant occidental :
+**Représentant occidental** :
+
 — Aucune preuve directe n’atteste l’implication de la Russie dans ce sabotage. Mais les indices circonstanciels restent troublants...
 
-Représentant russe :
+**Représentant russe** :
+
 — Cessez vos calomnies ! Une expertise ADN l’a prouvé : le barrage a été détruit par des dauphins de combat de l’OTAN !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1182,10 +1239,12 @@ Représentant russe :
 Aérodrome militaire russe.
 Dialogue entre un pilote russe et un journaliste ukrainien.
 
-Ukrainien :
+**Ukrainien** :
+
 — Pourquoi avoir bombardé le théâtre dramatique de Marioupol ? Il y avait écrit en grand : « ENFANTS ! »
 
-Pilote :
+**Pilote** :
+
 — Sur un cabanon, c’est écrit aussi « Bite » — et dedans, il n’y a que du bois !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1197,10 +1256,12 @@ Pilote :
 
 Réunion du Conseil de sécurité de l’ONU.
 
-Représentant ukrainien :
+**Représentant ukrainien** :
+
 — Agresseur !
 
-Représentant russe :
+**Représentant russe** :
+
 — Ne déformez pas les faits ! Les moustiques de combat de l’OTAN ont traîtreusement envahi la Russie depuis le territoire ukrainien ! Nous n’avons mené qu’une opération spéciale de désinsectisation !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1212,10 +1273,12 @@ Représentant russe :
 
 Unité militaire russe. Rassemblement sur la place d’armes. Le général se tient devant les soldats.
 
-Soldat :
+**Soldat** :
+
 — Camarade général, pourquoi Kiev n’a-t-il pas été pris en 3 jours ?
 
-Général :
+**Général** :
+
 — C’était une attaque d’exercice. Un acte dans un esprit d’humanité et de bonne volonté. Nous avons démontré à l’ennemi notre puissance de feu — puis nous nous sommes repositionnés sur des lignes encore plus avantageuses.
 
 #PoutinismeMilitaireOrthodoxe
@@ -1227,10 +1290,12 @@ Général :
 
 Veille de Noël. Des soldats russes en position de combat. Le Père Noël vole dans le ciel avec un sac de cadeaux.
 
-Premier soldat :
+**Premier soldat** :
+
 — Regarde, un agent de l’OTAN en vol — sous couverture !
 
-Deuxième soldat :
+**Deuxième soldat** :
+
 — Charge ! Vite ! Vise la tête. Mais touche pas au sac — sinon, pas de cadeaux !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1242,13 +1307,16 @@ Deuxième soldat :
 
 Front ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser dans une cuve de campagne.
 
-Prêtre :
+**Prêtre** :
+
 — Soldats ! Faites-vous baptiser pendant que vous êtes encore en vie! Sinon, c’est l’enfer !
 
-Premier soldat :
+**Premier soldat** :
+
 — On est déjà en enfer.
 
-Deuxième soldat :
+**Deuxième soldat** :
+
 — Allez ! Fais-le ! Au moins ça nous lavera !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1260,10 +1328,12 @@ Deuxième soldat :
 
 Front ukrainien. Arrière russe. Un prêtre propose aux soldats un talisman en forme de croix « présidentielle ».
 
-Prêtre :
+**Prêtre** :
+
 — Soldats ! Notre Président, protégé par Dieu, a ordonné de vous donner des croix à ses initiales. C’est la meilleure protection contre les balles ennemies.
 
-Soldat :
+**Soldat** :
+
 — Quoi… il a déjà été crucifié ?
 
 #PoutinismeMilitaireOrthodoxe
@@ -1275,13 +1345,16 @@ Soldat :
 
 Front ukrainien. Arrière russe. Rituel de bénédiction des munitions.
 
-Premier soldat :
+**Premier soldat** :
+
 — Mon père, pourquoi faut-il bénir les obus ?
 
-Prêtre :
+**Prêtre** :
+
 — Pour qu’ils touchent la cible, mon fils !
 
-Deuxième soldat :
+**Deuxième soldat** :
+
 — Ah… voilà pourquoi on les rate toujours.
 
 #PoutinismeMilitaireOrthodoxe
@@ -1293,10 +1366,12 @@ Deuxième soldat :
 
 Un prêtre prêche devant une église russe.
 
-Prêtre :
+**Prêtre** :
+
 — La veuve d’un soldat ne doit jamais se remarier ! Si tu as reçu le faire-part de décès, alors pleure et prie !
 
-Femme dans la foule :
+**Femme dans la foule** :
+
 — Tu rêves ! Vos indemnités funéraires suffisent à peine pour une Lada blanche. Moi, je veux une Volvo rouge ! Avec minibar !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1308,16 +1383,20 @@ Femme dans la foule :
 
 « Ligne directe » avec Vladimir Poutine. Le président russe répond aux questions des citoyens en visioconférence, tandis qu’un public est réuni dans la salle.
 
-Femme dans la salle (montrant le portrait d’un fonctionnaire) :
+**Femme dans la salle** (montrant le portrait d’un fonctionnaire) :
+
 — Cet homme a tué mon mari. Maintenant, il enseigne le courage aux enfants et il est maire de notre ville. Pourquoi ?
 
-Poutine :
+**Poutine** :
+
 — Il a expié sa faute au front. Il a payé son passé de son sang : c’est un héros, notre nouvelle élite.
 
-Un premier spectateur, le visage caché :
+**Un premier spectateur**, le visage caché :
+
 — Tué cent Ukrainiens — pardonné...
 
-Un autre spectateur, le visage caché :
+**Un autre spectateur**, le visage caché :
+
 — Tue, vole, viole ! Six mois à la guerre et tout est effacé...
 
 #PoutinismeMilitaireOrthodoxe
@@ -1329,16 +1408,20 @@ Un autre spectateur, le visage caché :
 
 Devant un dépôt de pétrole en flammes, deux prêtres russes s’entretiennent avec le Patriarche.
 
-Patriarche :
+**Patriarche** :
+
 — Je n’arrive pas à distinguer : quelle est cette image accrochée là-bas ?
 
-Premier prêtre :
+**Premier prêtre** :
+
 — C’est Svarojitch, le dieu slave du feu. Il aide très bien !
 
-Deuxième prêtre :
+**Deuxième prêtre** :
+
 — Le Christ nous a abandonnés...
 
-Patriarche :
+**Patriarche** :
+
 — Vraiment, ça aide ?! Hm-m... Alors voilà. Nous couvrirons cette hérésie païenne d’une feuille de figuier... Nous garderons l’image de Svarojitch, mais nous l’appellerons « Saint Nicolas le Pompier ».
 
 #PoutinismeMilitaireOrthodoxe
@@ -1351,8 +1434,11 @@ Patriarche :
 Vis sans honte devant la Patrie :
 
 • Plante un arbre
+
 • Abats un “khokhol” (insulte russe pour un Ukrainien)
+
 • Dénonce ton voisin
+
 • Fais naître 10 soldats
 
 #PoutinismeMilitaireOrthodoxe
@@ -1412,10 +1498,12 @@ Colonie pénitentiaire pour pacifistes
 
 Dans le confessionnal d'une église russe.
 
-Le pécheur repentant :
+**Le pécheur repentant** :
+
 — Père ! Et le commandement « Tu ne tueras point » alors ?
 
-Le prêtre :
+**Le prêtre** :
+
 — Un logiciel obsolète, mon fils ! Il faut faire la mise à jour. La version actuelle est « Ukraine_Effacée 2.0 ».
 
 #PoutinismeMilitaireOrthodoxe
@@ -1427,10 +1515,12 @@ Le prêtre :
 
 Le Patriarche de toute la Russie se tient à la proue de son yacht luxueux. Tout près, dans une barque fragile, deux pêcheurs.
 
-Pêcheur :
+**Pêcheur** :
+
 — Mon père, pourquoi ne donnez-vous pas votre yacht aux pauvres et aux miséreux — comme Jésus-Christ l’a commandé ?
 
-Patriarche :
+**Patriarche** :
+
 — Le Christ ne prêchait qu’aux pauvres. Aux riches, il n’imposait jamais ses conseils.
 
 #PoutinismeMilitaireOrthodoxe
@@ -1442,10 +1532,12 @@ Patriarche :
 
 Dans une école russe, pendant un cours d’éducation familiale. Au tableau — un graphique de la natalité en Russie.
 
-Élève :
+**Élève** :
+
 — Je ne me souviens pas…
 
-Professeure :
+**Professeure** :
+
 — Tu n’as pas appris la leçon ? Ce n’est pas grave ! Va, ma petite, fais un enfant — tu auras 20/20 ! Si tu fais des jumeaux, on comptera ça comme un TP d’anatomie. Des triplés — et tu recevras ton diplôme de fin d’études par anticipation. Plus besoin de venir à l’école.
 
 #PoutinismeMilitaireOrthodoxe
@@ -1458,7 +1550,9 @@ Professeure :
 Exposition au Musée des Parallèles Historiques. Sur le mur — trois portraits officiels :
 
 • Le tsar Nicolas II — « Nicolas II »
+
 • Grigori Raspoutine — « Ras-Poutine »
+
 • Vladimir Poutine — « V. Poutine »
 
 **Ras-Poutine = Poutine I (Proto-Poutine)** 
@@ -1468,21 +1562,33 @@ Exposition au Musée des Parallèles Historiques. Sur le mur — trois portraits
 L’histoire se répète, cette fois-ci sous la forme d’un psychodrame absurde. Deux aventuriers, un patronyme maudit — la malédiction se perpétue. La fin, comme toujours en Russie, s’écrit avec du poison, du polonium et un écharpe de soie.
 
 **Poutine I (v. 1.0 — Grigori Raspoutine)**
+
 Finale : Cyanure, balle dans la tête. (1916)
+
 Statut : HORS SERVICE
 
 **Poutine II (v. 2.0 — Vladimir Poutine)**
+
 Finale (en cours de développement — Bêta) :
+
 ▸ 30% — Tabatière (référence historique)
+
 ▸ 30% — Écharpe (étranglement classique)
+
 ▸ 30% — « Novitchok » (option moderne)
+
 ▸ 10% — Infarctus « spontané » (option discrète)
+
 Sortie prévue : 202X
 
 > **Note Historique**
+
 • La tabatière : L'empereur Paul Ier de Russie fut assassiné en 1801. Il fut étranglé, mais le premier coup lui fut asséné avec une tabatière en or.
+
 • L'écharpe : Staline aurait utilisé une écharpe pour mettre fin aux jours de son chef de la sécurité Nikolai Iejov. « La mort par l'écharpe » est devenu un symbole des strangulations au Kremlin.
+
 • Le « Novitchok » : Agent neurotoxique développé en URSS, utilisé dans des empoisonnements notoires (Sergeï Skripal, Alexeï Navalny).
+
 • L'infarctus : « L'arrêt cardiaque soudain » est l'euphémisme le plus courant dans les rapports officiels russes concernant les morts politiques suspectes.
 
 #PoutinismeMilitaireOrthodoxe
@@ -1496,15 +1602,19 @@ Un bar américain.
 Les présidents Poutine et Trump, une bière à la main, penchés l'un vers l'autre au-dessus de la table.
 
 **Trump** :
+
 — Vova, mon gars, t’as carrément assuré — vingt-cinq ans au pouvoir ! Putain, comment t’as fait ?
 
 **Poutine** :
+
 — Fastoche. J’ai réécrit la Constitution.
 
 **Trump** :
+
 — Et personne t’a viré ?
 
 **Poutine** :
+
 — On a monté le coup. On a bricolé un virus mortel, on l’a balancé partout.
 Boum — pandémie !
 On a foutu une trouille bleue à tout le monde, et boum — plus de contestation.
@@ -1514,15 +1624,19 @@ Pathétique. Tout le monde est resté chez soi, à trembler pour sa santé.
 Bref, plus personne n’en avait rien à foutre de la Constitution.
 
 **Trump** :
+
 — Mec, c'est ouf. Du génie ! J'adorerais faire ça aussi... Mais bon, on a ce petit truc qu'on appelle la démocratie.
 
 **Poutine** :
+
 — Je te plierais ta démocratie comme une paille en papier, Donnie.
 
 **Trump** :
+
 — Non, sans déc’ ?
 
 **Poutine** :
+
 — Mortel. D’abord : dézingue la séparation des pouvoirs. Direct à la poubelle. Tu te montes une belle grosse verticale.
 Les flics et les fédéraux — tes gros bras. Les tribunaux — ta backup.
 Et le dossier, Donnie, le dossier sur tout le monde. T’as pas de dossier ? T’en inventes.
@@ -1542,18 +1656,22 @@ Putain, fais ton slogan plus gros : MAGA — FAGA.
 « Faisons l’Amérique Géniale À nouveau : Félicité À tous. Gloire à Dieu. Alléluia ! »
 
 **Trump** :
+
 — FAGA ! Vova, c’est trop mortel. J’adore.
 
 **Poutine** :
+
 — Tu vois ? Ça marche.
 Et quand ils commenceront à se faire chier — déclare la guerre au Canada. Dégotte un empire amérindien perdu. Grand Serpent Chingachgook — Maître de toute l'Amérique.
 Boum — t’as ton histoire, tes frontières, ta guerre.
 Nouvel État, nouvelles élections, nouveaux mandats.
 
 **Trump** :
+
 — Mec, c’est du génie. T’es un génie, Vova.
 
 **Poutine** :
+
 — Exactement. Tu prends la moitié du globe, je prends l’autre.
 Tu seras le Seigneur des Méridiens, je serai le Seigneur des Parallèles.
 Deux rois, une planète. Santé, Donnie.
@@ -1569,81 +1687,105 @@ Un bar américain.
 Les présidents Poutine et Trump sont attablés, en train de boire une bière.
 
 **Trump** :
+
 — Vova, dis-moi carrément : pourquoi t’as buté Navalny ? Il était vraiment si dangereux que ça pour toi ?
 
 **Poutine** :
+
 — Donnie, tu veux ma mort ou quoi ?!
 Ses cotes étaient en dessous de zéro. Pourquoi est-ce que j’aurais eu peur d’un type comme lui ?
 
 **Trump** :
+
 — Alors je pige pas…
 
 **Poutine** :
+
 — Faut que tu comprennes, Donnie. Il me cassait les pieds. Il me rendait dingue. Rien que d’entendre son nom ma tension montait. Je supportais pas de vivre dans le même pays que lui, de respirer le même air que lui. Je lui ai donné la possibilité de partir — il est revenu. Pourquoi ?
 
 **Trump** :
+
 — Et ensuite tu l’as fait supprimer ?
 
 **Poutine** :
+
 — Donnie, sois pas aussi vulgaire. Je l’ai seulement fait mettre en prison. Pour délits financiers. Un voleur, ça va en prison, Donnie. J’ai pas raison ?
 
 **Trump** :
+
 — Alors pourquoi il est mort ?
 
 **Poutine** :
+
 — Quinze maladies chroniques, Donnie. Même l’herpès. Avec une liste pareille, personne tient longtemps.
 
 **Trump** :
+
 — T’aut’ que ça ? Mais il était encore jeune !
 
 **Poutine** :
+
 — C’est ce que mes gars m’ont dit, Donnie.
 Vingt trucs. Dont la prostatite. Les mêmes qui ont traité le dossier Magnitsky — des pros, des vrais. Mon équipe de choc.
 
 **Trump** :
+
 — C’est la première fois que j’entends ça, Vova. Même Fox me l’a pas dit !
 
 **Poutine** :
+
 — Nous non plus on ne savait pas. Mais après l’autopsie — boum ! Vingt-cinq maladies. Même la sciatique. Comme un vieux débris.
 
 **Trump** :
+
 — Incroyable, juste incroyable. Il avait l’air en bonne santé !
 
 **Poutine** :
+
 — Donnie, si tu me crois pas, j’ai les papiers. Certificats, dossiers médicaux, rapports d’autopsie… tout est clean. Trente affections, Donnie. Dont des calculs biliaires. Il était pourri de l’intérieur.
 
 **Trump** :
+
 — Alors comment il a fait pour tenir trois ans en prison ?
 
 **Poutine** :
+
 — Il avait neuf vies, Donnie. Comme une chatte. Même le « Novitchok » a rien pu faire. Un sacré spécimen. Imagine-toi — trente-cinq pathologies chroniques. Et des poux ! C’était pas un homme, c’était un cadavre ambulant !
 
 **Trump** :
+
 — Alors pourquoi tu rends pas ses affaires — documents, enregistrements — à la veuve ? Si tout est si réglo ?
 
 **Poutine** :
+
 — Donnie, mes gars ont peur que ça atterrisse encore entre les mains des Allemands. Et tu connais les Allemands — ils sont capables de sortir des « preuves » de nulle part. On a pas besoin d’un nouveau fiasco du "Novitchok".
 
 **Trump** :
+
 — Et pourquoi tu changes de version sans arrêt ? D’abord c’était l’arythmie, maintenant c’est l’empoisonnement ?
 
 **Poutine** :
+
 — Bévue locale. Un petit enquêteur perdu au fin fond du Yamal. A écrit n’importe quoi, il savait pas lire entre les lignes.
 
 (Après un petit silence :)
 
 **Poutine** :
+
 — Alors, il a tragiquement succombé à une allergie rare liée au froid. Tout à fait naturel, rien de suspect, évidemment.
 
 **Trump** (à part, avec un sourire en coin) :
+
 — Les Tables de la FSB ? Commandement n°1 : Nie l'évidence.
 
 (Silence)
 
 **Trump** (gaiement, à Poutine) :
+
 — Bon, assez parlé de ces trucs déprimants. Allons boire une bière pour se remonter le moral.
 
 **Poutine** :
+
 — À nous !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1656,72 +1798,95 @@ Vingt trucs. Dont la prostatite. Les mêmes qui ont traité le dossier Magnitsky
 Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — trois éminents professeurs.
 
 **Premier Professeur** :
+
 — Le patient prétend être le Messie.
 
 **Deuxième Professeur** :
+
 — Quoi ?! Le Messie ?! Hier il se prenait pour Hitler !
 
 **Troisième Professeur** :
+
 — Aujourd’hui, il a une nouvelle mission : « Sauver le peuple frère ukrainien. »
 
 **Premier Professeur** :
+
 — Et comment compte-t-il s’y prendre ?
 
 **Deuxième Professeur** :
+
 — Comme d’habitude : bombardements, meurtres, enlèvements.
 
 **Troisième Professeur** :
+
 — Délire géopolitique paranoïaque avec complexe messianique…
 
 **Premier Professeur** :
+
 — De la pure folie, rien de plus.
 
 **Deuxième Professeur** :
+
 — Collègues, évitons le lyrisme. Il s’agit d’un trouble de la personnalité spécifique.
 
 **Troisième Professeur** :
+
 — Le patient pleure en disant : « L’Ukraine est notre douleur et notre tragédie. »
 
 **Premier Professeur** :
+
 — Et il radote sans cesse sur je ne sais quelles « causes profondes du conflit » qu’il « faut éliminer ».
 
 **Deuxième Professeur** :
+
 — Et toutes les cinq minutes, il hurle hystériquement : « Je veux tout le Donbass ! »
 
 **Troisième Professeur** :
+
 — Pour le reste — gai, alerte, actif, il a récemment rencontré ce... personnage... à la casquette rouge…
 
 **Premier Professeur** :
+
 — Ah, le fameux « pompier », capable d’arrêter les conflits armés d’un simple regard ?
 
 **Deuxième Professeur** :
+
 — C’est bien lui. Onze secondes entières à se serrer la main, puis ils ont défilé sur le tapis rouge, flirtant éhontément et se lançant des clins d’œil.
 
 **Troisième Professeur** :
+
 — Deux bottes d’une même paire, Seigneur pardonne-moi ! L’un délire sur le Donbass, l’autre sur le Nobel.
 
 **Premier Professeur** :
+
 — Oui, messieurs. La vanité est une chose dangereuse. Elle peut finir en trouble psycho-politique.
 
 **Deuxième Professeur** :
+
 — Collègues ! Je pense que nous voyons clairement un conflit d’intérêts. Il ne peut rien sortir de bon de tout ça.
 
 **Troisième Professeur** :
+
 — Pour l’Ukraine — absolument rien.
 
 **Premier Professeur** :
+
 — Vous avez raison. Il faut prendre des mesures.
 
 **Deuxième Professeur** :
+
 — Je suggère d’augmenter drastiquement les doses d’halopéridol. Voie orale et intramusculaire.
 
 **Troisième Professeur** :
+
 — Il serait aussi judicieux de prescrire des bains calmants de boue ukrainienne, accompagnés d’enregistrements de la chorale « Crimée est à nous ! ».
 
 **Premier Professeur** :
+
 — Et pourquoi ne pas essayer l’électrochoc ? C’est merveilleux pour les troubles spécifiques. Le Ministère de la Santé a déjà donné son feu vert.
 
 **Deuxième Professeur** (solennellement) :
+
 — Le Ministère de la Santé met en garde… Si vous faites les malins, vous prenez trois mille, vous prenez trois mille volts dans le cul.
 
 #PoutinismeMilitaireOrthodoxe
@@ -1733,17 +1898,21 @@ Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — t
 
 Sermon devant une église russe.
 
-Le prêtre :
+**Le prêtre** :
+
 — Pourquoi jetez-vous votre semence dans les toilettes ? C’est un péché mortel ! L’utérus de la femme est le seul réceptacle béni par Dieu pour votre semence !
 
-Un homme dans la foule :
+**Un homme dans la foule** :
+
 — L’utérus ? Il est toujours fermé. Pour inventaire. Des ovocytes. Réservé aux membres VIP.
 
-Le prêtre :
+**Le prêtre** :
+
 — Ne blasphème pas, mon fils ! L’utérus n’est pas un entrepôt de conserves !
 
-Une femme dans la foule :
-— « Membres VIP » ? C’est le FSB, n’est-ce pas ?
+**Une femme dans la foule** :
+
+— Membres VIP ? C’est le FSB, n’est-ce pas ?
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1755,18 +1924,22 @@ Une femme dans la foule :
 
 Dans une rue d’une ville russe.
 
-L’agent de police :
+**L’agent de police** :
+
 — Des boutons de pantalon multicolores ? Propagande LGBT. Amende !
 
-L’homme :
+**L’homme** :
+
 — Non, pas d’amende ! Je les coupe tout de suite !
 
 (Pantalon baissé )
 
-L’homme :
+**L’homme** :
+
 — Oh ! Pardon ! Ce n’est pas ce que je voulais faire !
 
-L’agent de police :
+**L’agent de police** :
+
 — Aha ! Un drapeau ukrainien sur le postérieur ? Discréditation des... organes !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1778,107 +1951,137 @@ L’agent de police :
 
 Au confessionnal d’une église russe.
 
-Le pénitent :
+**Le pénitent** :
+
 — Pardonnez-moi, mon Père, car j’ai péché... Je suis... un païentist 
 
-Le prêtre (alerte) :
+**Le prêtre** :
+
 — Un pacifiste ?! Mais c’est une trahison, mon fils !
 
-Le pénitent :
+**Le pénitent** :
+
 — Non, non ! Je veux dire... Je suis un exhibitionniste.
 
-Le prêtre (plissant les yeux) :
+**Le prêtre** :
+
 — Un ex-agent de KGB? Un esprit repentant ? L’Église accueille toutes les rédemptions.
 
-Le pénitent (chuchotant) :
+**Le pénitent** (chuchotant) :
+
 — Je suis fautif, mon Père ! J’ai... montré mon sexe lors d’une garden-party...
 
-Le prêtre (rayonnant) :
+**Le prêtre** :
+
 — Vous êtes *l’étoile montante* du Parti ?! Que votre carrière soit longue et bénie, mon enfant !
 
-Le pénitent :
+**Le pénitent** :
+
 — Je me repens, mon Père ! Mon péché est grand ! C’était... une garden-party pour enfants ...
 
-Le prêtre :
+**Le prêtre** :
+
 — Une initiation précoce à nos valeurs spirituelles traditionnelles ? Une méthode pédagogique brillante, mon fils.
 
 #PoutinismeMilitaireOrthodoxe
                                👻
 
 ## 57. L'IMMORTALITÉ MERDIQUE  
-Série : *POUTINE, PLUS VIVANT QUE TOUS LES VIVANTS*
 
 ![](Images/Fr_Album_57.jpg)
 
 Le bureau de Poutine au Kremlin. Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui supervise désormais les recherches sur le prolongement de la vie et le ralentissement du vieillissement.
 
 **Poutine** (presque affectueusement) :
+
 – Alors, professeur, raconte : où en est-on avec mon immortalité ?
 
 **Kovalchuk** (avec enthousiasme) :
+
 – Il y a du progrès. Significatif. Nous travaillons actuellement sur un projet de conservation de tes... substrats bio-organiques.
 
 **Poutine** (étonné) :
+
 – Quoi ? Mes crottes viennent faire quoi dans cette histoire ?
 
 **Kovalchuk** (précipitamment) :
+
 – Attends. Ne t'emballe pas. Écoute d'abord.
 
 **Poutine** (avec condescendance) :
+
 – Parle.
 
 **Kovalchuk** :
+
 – La science a prouvé que la sublimation préserve l'ADN intact dans les excréments. Nous allons sublimer et conserver tes excréments et les compléter avec une pile de photos et un recueil de tes discours. Dans un futur lointain, une copie exacte de Vladimir Poutine sera recréée à partir de ton ADN en s'appuyant sur tes photos et tes prises de parole. Probablement imprimée en 3D. Hein ? Qu'est-ce que tu en dis ?
 
 **Poutine** (pensif) :
+
 – Une immortalité merdique. Une idée merdique. Bon, admettons, tu m'imprimes. Mais qui suis-je ? Personne. C'est un autre qui sera sur le trône. On se souviendra de moi pour la guerre, les incendies, les explosions, les câbles, et tout le reste.
 
 **Kovalchuk** :
+
 – Pour ça, je ne sais pas. Quel sera le régime politique en Russie à ce moment-là, impossible de le prévoir.
 
 **Poutine** (appuyant) :
+
 – Voilà tout le problème. Il me faut une autre immortalité. Je veux que ce corps, mon corps actuel, me serve éternellement. Est-ce vraiment si compliqué à faire ?! Le cœur est usé – transplantation. Foie, reins – transplantation...  C'est simple comme bonjour !
 
 **Kovalchuk** (prudemment) :
+
 – Mais chaque organe a une durée de vie – quatre-vingts ans maximum...
 
 **Poutine** :
+
 – Et bien prends le cœur d'un lycéen – frais émoulu. Quoi ? Un gamin, c'est trop précieux pour moi ?
 
 **Kovalchuk** (avec fougue) :
+
 – Mais non ! Je suis prêt à te donner le mien...
 
 **Poutine** (avec dégoût) :
+
 – Le tien, non. J'ai que faire de ta ferraille rouillée ? Donne-moi un cœur jeune, avec tout son potentiel. Et dans 60 ans, tu m'en mettras un nouveau. Où est la difficulté ?
 
 **Kovalchuk** :
+
 – À l'heure actuelle, la médecine ne garantit pas qu'un organe prenne. Les risques de complications sont élevés. Donc soit tu attends encore 20 ans, soit on conserve les excréments.
 
 **Poutine** (grogne) :
+
 – D'accord, soit, va pour la merde. Mais uniquement en solution de secours. Au pire, après ma... mort [il fait une grimace, comme s'il avait mal] ils se vendront aux enchères pour des millions. 
 
 **Kovalchuk** (souriant) :
+
 – Oui. En Occident, la merde des puissants est très prisée. Un artiste italien, je crois qu'il s'appelait Mandzoni, vendait sa merde au prix de l'or. Et aujourd'hui, un petit pot de 30 grammes vaut des centaines de milliers d'euros.
 
 **Poutine** (avec mépris) :
+
 – Bah, si un misérable Italien chiait des lingots d'or – ma merde partira pour dix millions !
 
 **Kovalchuk** (flatteur) :
+
 – Peut-être même plus !
 
 **Poutine** :
+
 – Mais attention ! Pas d’avarice ! 30 grammes ?! Mais c’est risible ! Je suis un pigeon, peut-être ?
 
 **Kovalchuk** (avec conviction) :
+
 – Toi ? Non. T’es un faucon. Un aigle. Un milan. Un ptérodactyle.
 
 **Poutine** (avec arrogance) :
+
 – Exactement. Et ma merde doit être de la plus haute qualité. Raffinée. Désodorisée. Et qu'elle soit de couleur bleue. Sang bleu – merde bleue.
 
 **Kovalchuk** :
+
 – Bien sûr, bien sûr. Première pression. Virgin Putin shit. Ou Putin virgin shit ? C'est lequel, le correct ?
 
 **Poutine** (avec haine) :
+
 – Libéré !
 
 #PoutinismeMilitaireOrthodoxe
@@ -1893,7 +2096,7 @@ Salle des séances de la Douma d'État russe. La députée Valentina Bebienko pr
 – Chers collègues députés ! Le Président nous a fixé pour tâche de ressusciter la grande Russie – en triplant le taux de natalité. Je ne le cache pas – la tâche n'est pas aisée. C'est une tâche difficile. Super difficile. Mais nous devons la remplir. Parce que notre président le veut. Je propose d'aborder le problème de manière créative. Bien entendu, notre public cible est la jeunesse. Les moins de 30 ans. Après 30 ans, influencer les consciences devient moins facile. Les schémas mentaux sont déjà formés, et une résistance au narratif d'État est observée.
 
 Maintenant, souvenons-nous de notre triste enfance. Comment répondions-nous à ces… besoins, ces pulsions parfaitement légitimes de la puberté ? En cachette, furtivement, dans des cages d'escalier sombres sur des appuis de fenêtre sales, dans des caves humides, sur des greniers poussiéreux, ou tout simplement, que Dieu me pardonne, dans le parc derrière un buisson. Et toujours dans la tension : et si on nous voyait ? Et si les voisins se plaignaient ? Et si, Dieu nous en préserve, on se faisait surprendre – on vous embarque au poste, on dresse un procès-verbal, on appelle vos parents. En un mot, la honte pour le restant de vos jours. C’est une aberration, camarades. Cela va à l'encontre de la politique démographique de l'État. Corrigeons cette distorsion. Offrons à nos enfants et petits-enfants une enfance saine, digne et pleinement épanouie. Comme il y avait autrefois une cabine téléphonique à chaque coin de rue – qu'à sa place se dresse désormais un « pavillon de la reproduction » beau et bien entretenu. Avec des caméras de surveillance pour reconnaissance faciale – nous accorderons aux participants des bonus sociaux sur le Portail des services publics. À l'intérieur – une pièce spacieuse avec 4 lits doubles, une grande télévision au mur. Une vidéothèque avec des films et séries inspirants. Une armoire avec du Viagra et des accessoires. Dans l'ensemble, tout est très soigné, propre et attrayant, du papier peint joyeux au linge de lit aux motifs sexy. Et sur les marches, au lieu d'un portier – un pope, aspergeant d'eau bénite les entrants, avec cette bénédiction :
-« Bienheureux les accouplés... au nom du Père, et du Fils, et du Saint-Esprit... et conformément au Décret présidentiel numéro six-cent-soixante-six...»
+« Bienheureux les accouplés... au nom du Père et du Fils, et du Saint-Esprit... et conformément au Décret présidentiel numéro six-cent-soixante-six...»
 
 Et après neuf mois, le système procédera automatiquement à une évaluation de l’efficacité. En cas de confirmation de la naissance d’un enfant, une prime unique sera versée aux parents. En cas de naissance d’un garçon, le montant sera doublé — conformément au programme national de militarisation de la politique démographique.
 
