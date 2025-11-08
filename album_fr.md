@@ -74,63 +74,82 @@ Un bar américain.
 Les présidents Poutine et Trump sont attablés, en train de boire une bière...
 
 **Trump** :
+
 — Vova, depuis que t'as réglé le cas Navalny, ton prétoire politique est tranquille comme Baptiste. Du billard. Que du bonheur.
 
 **Poutine** :
+
 — Arrête ton charre. Navalny ? Un moins que rien. Du vent. Un bateleur.
 
 **Trump** :
+
 — Alors pourquoi t'as démantelé toute son organisation ? Pour un moins que rien ?
 
 **Poutine** :
+
 — Écoute-moi bien, Donny. Navalny, il n'avait aucun programme. Il se contentait de rassembler des gamins dans la rue pour qu'ils braillent des insultes à mon encontre. Tu appelles ça un projet de société ?
 Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans, ça c'était un vrai programme. Lui ? Que des crachats. C'est d'un vulgaire.
 
 **Trump** :
+
 — Ouais, c'est con. Un vrai petit arriviste.
 
 **Poutine** :
+
 — Exact. De toute ma carrière, un seul homme m'a vraiment donné des sueurs froides : Boris Nemtsov. Un vrai politicien. Qui savait ce qu'il faisait.
 
 **Trump** :
+
 — Et du coup, tu l'as buté pour qu'il ne se présente pas ?
 
 **Poutine** (ricanement) :
+
 — Non. On ne l'aurait de toute façon pas laissé se présenter — la commission électorale s'en serait occupée. Et pour info, ce n'est pas moi qui ai donné cet ordre.
 
 **Trump** :
+
 — Mais enfin, Vova. Tout le monde sait que c'étaient tes services.
 
 **Poutine** :
+
 — On ne fait plus dans le spectacle sanglant. C’est d’un autre temps. À quoi bon les scandales et les flaques de sang quand on peut faire disparaître n'importe qui… proprement. En silence. N'importe qui. Même un président américain.
 
 **Trump** (se tortille sur sa chaise) :
+
 — Hé, doucement, Vova, cette guerre, c’est pas la mienne ! C’est du Biden, tout ça. Et moi, tu le sais, je suis ton pote. Ton pote.
 
 **Poutine** (sourit, narquois) :
+
 — Oui, oui. Je sais. Je te vois serpenter, jouer double jeu.
 
 **Trump** (se justifiant) :
+
 — Vova, je te jure, j’ai rien contre toi, perso. Franchement, je te comprends même. C’est juste que… je veux le Nobel !
 
 **Poutine** (réfléchit à voix haute) :
+
 — Un désir des plus légitimes. Je me disais aussi… pourquoi pas moi ? L’année prochaine, par exemple.
 
 **Trump** (les yeux exorbités de surprise) :
+
 — Toi ?!
 
 **Poutine** (avec condescendance) :
+
 — Donny, tout le monde a son prix. Certains coûtent moins cher que d’autres. Et quand ce n’est pas le cas… il y a d’autres méthodes. Menaces, kompromat, chantage… La machine est bien huilée.
 
 (Un lourd silence s’installe.) 
 
 **Poutine** (avec un sourire ironique et froid) :
+
 —  Tu sais, le Nobel irait encore mieux sur ma poitrine que sur la tienne. Imagine les gros titres : « Poutine, criminel de guerre et prix Nobel ». C'est la preuve ultime de mon pouvoir sans limites sur le monde. C'est même plus cool que mon armée aux portes de Paris ! Voilà comment mettre cette Europe lâche à genoux et la baiser à fond !
 
 **Trump** (prudemment) :
+
 — Vova, et si… je prenais le Nobel d’abord, et après tu fais ce que tu veux de cette Europe lâche. D’accord ?
 
 **Poutine** (geste las de la main) :
+
 — D'accord, soit. Toi d’abord, Donny. D’ailleurs, avant le Nobel, il faut déjà que je sois arrivé à Kiev…
 
 #PoutinismeMilitaireOrthodoxe
@@ -203,34 +222,42 @@ Ont marqué la terre et brisé les clairières.
 > La salle est éclairée par des écrans de télévision scintillants qui diffusent les procédures judiciaires. Poutine se tient près d'immenses balances de pharmacien ; sur un plateau se trouve un cœur rouge en papier avec une gravure dorée : « Poutine : 86 % ». L'autre plateau est vide, pourtant les plateaux s'équilibrent.
 
 **Osiris** :
+
 — Nous commençons la retransmission en direct du procès le plus juste de l'histoire de l'univers ! Aujourd'hui, sur la Balance de la Vérité — le sort du Grand Gardien des Valeurs Traditionnelles ! Mais d'abord — une publicité pour notre sponsor. Je vous présente : l'élixir de jeunesse « Ambre » !
 
 (Pause publicitaire : la déesse Hathor boit la potion et rajeunit instantanément de 3000 ans. Voix off : « Ambre : une gorgée qui mène à l'Éternité. »)
 
 **Osiris** (s'adressant à Poutine) :
+
 — Vous faites confiance à ce tribunal ? Aucune objection concernant les juges ?
 
 **Poutine** (avec un léger sourire) :
+
 — Oh, Votre Honneur ! Comment pourrais-je ! L'histoire des relations russo-égyptiennes... Nous avons maintes fois apporté notre aide... Annulé des dettes... Construit des centrales électriques... Le barrage d'Assouan... Une compréhension mutuelle totale...
 
 **Osiris** :
+
 — Bien sûr. Nous nous en souvenons. Le tribunal se retire en chambre de délibération.
 
 (Tout le monde reste assis, comme avant.)
 
 **Maât** :
+
 — Je proteste ! Vous violez la procédure ! L'accusé n'a pas encore récité les 42 déclarations d'innocence devant les jurés : Je n'ai pas tué, pas volé, pas menti, pas falsifié les poids et mesures... etc.
 
 **Osiris** (à contrecœur) :
+
 — Hmm... Très bien. Accusé, racontez-nous votre autobiographie.
 
 **Poutine** :
+
 — Volontiers, Votre Honneur.
 Je suis né comme un gamin ordinaire de Petersbourg — un élève moyen. Et par mon labeur persévérant, récoltant les fruits sur le terrain de l'État, j'ai grimpé jusqu'au sommet du pouvoir — je suis devenu président d'un grand pays. J'ai mené les politiques les plus humaines et les plus justes. Dans mes décrets, j'ai promis à chaque citoyen un appartement séparé, des soins médicaux et une éducation gratuits, des salaires élevés et une inflation zéro. J'ai établi une paix durable dans la belliqueuse République tchétchène. Je suis devenu le donateur le plus généreux au monde. J'ai construit 20 oléoducs et gazoducs. Mon gaz éclaire et chauffe la planète entière. J'aide les mouvements de libération nationale dans le monde entier — en leur fournissant des armes à prix réduit. Je distribue des prêts de milliards de dollars aux pays pauvres et j'annule leurs dettes quelques années plus tard. Je donne à la Chine mes ressources naturelles pour une bouchée de pain. Grâce à ma politique, le bloc de l'OTAN a considérablement élargi ses frontières. J'ai libéré le peuple ukrainien frère de la tyrannie du régime fasciste de Zelensky. J'ai arrêté le bain de sang en Ukraine.
 
 (Une publicité est diffusée sur l'écran : « Du gaz dans chaque tombeau ! »)
 
 **Poutine** (regarde l'écran pendant une seconde, puis continue) :
+
 — J'ai envoyé le premier homme dans l'espace. Mon compositeur de cour a écrit le chef-d'œuvre immortel « Le Lac des cygnes » [il exécute quelques pas de ballet sur la musique de Tchaïkovski]. Enfin, j'ai débarrassé le monde de Hitler et de sa dictature fasciste.
 J'ai peiné comme un forçat sur les galères au poste de Président pendant 50 ans ! J'ai purgé une peine à perpétuité !
 J'ai relevé mon pays de ses genoux. J'ai vendu les usines aux ouvriers et la terre aux paysans. J'ai créé la première armée du monde.
@@ -240,93 +267,118 @@ La médecine se développe à un rythme effréné : je suis mort non pas de mala
 Le patriotisme de la jeune génération dépasse les limites : mon portrait est accroché dans chaque salle de classe. Les valeurs traditionnelles se renforcent. Nous n'avons que des mariages bisexués. Les divorces, les avortements, les préservatifs — sont interdits. Les lesbiennes et les gays sont privés de citoyenneté. Les opposants et les critiques du pouvoir sont en prison. Sur Terre, la paix ; parmi les hommes — une loyauté absolue. N'est-ce pas une idylle ? J'ai instauré dans mon pays une fête perpétuelle de la vie.
 
 **Osiris** (souriant largement) :
+
 — Assez. Vous êtes la quintessence de la vertu. Le tribunal se retire en chambre de délibération.
 
 (Tout le monde reste assis.)
 
 **Maât** (avec colère) :
+
 — Attendez ! Vous violez encore la procédure... L'accusation n'a pas encore pu s'exprimer !
 
 **Osiris** :
+
 — Chère Maât, chaque chose en son temps. Un temps pour ramasser les pierres, un temps pour écouter des fables. Quand ce sera le moment pour vos fantaisies [s'écriant soudain], je vous le dirai ! Le tribunal se retire en chambre de délibération !
 
 (Tout le monde reste assis.)
 
 **Osiris** (après une pause) :
+
 — Mesdames et Messieurs les jurés, veuillez voter...
 
 **Maât** (sursautant, brandissant ses plumes) :
+
 — Je proteste ! Le réquisitoire n'a pas été entendu ! La pesée du cœur n'a pas été effectuée !
 
 **Osiris** (sévèrement) :
+
 — Chère Maât, le cœur de l'accusé a été pesé selon une procédure spéciale. Il a été jugé plus léger que votre plume. Car il est aussi pur qu'une larme de nourrisson à naître ! Anubis !
 
 **Anubis** (sortant un procès-verbal pré-préparé de sous sa robe) :
+
 — La balance indique zéro virgule zéro gramme. L'innocence est totale et absolue.
 
 (Les plateaux de la balance se mettent soudain à osciller de haut en bas spontanément. Anubis attrape les plateaux, essayant de les équilibrer.)
 
 **Osiris** (imperturbable) :
+
 — Ce n'est rien : des perturbations solaires. Le mécanisme semble être... météosensible.
 
 **Poutine** (regardant le vide au-dessus des têtes des dieux) :
+
 — Les manigances des partenaires occidentaux dirigés par l'OTAN. Ils sont même parvenus jusqu'à l'Au-Delà. Encore une fois, ils empiètent sur nos liens spirituels.
 
 **Osiris** (frappant le sol de son bâton) :
+
 — Ainsi, Mesdames et Messieurs les jurés, votons. Confirmez-vous l'innocence totale de l'accusé ?
 
 **Jurés** (à l'unisson) :
+
 — Oui !
 
 **Jirinovski** :
+
 — Le cloner !
 
 **Brejnev** :
+
 — Lui décerner une décoration !
 
 **Le Diable** :
+
 — Le canoniser !
 
 **Staline** :
+
 — Nous sommes du même sang !
 
 **Beria** :
+
 — Je me prosterne devant vous, Maître !
 
 **Mussolini** :
+
 — Ravi de vous rencontrer, cher collègue !
 
 **Dracula** :
+
 — Tu sais sucer. Un des nôtres !
 
 **Osiris** (ignorant les protestations de Maât) :
+
 — Le tribunal annonce le verdict :
 L'accusé est acquitté.
 
 **Maât** (agitant une épaisse liasse de photos en l'air) :
+
 — Êtes-vous fous ? Voici les preuves ! Meurtres ! Enlèvements ! Empoisonnements ! Guerres ! Attaques hybrides ! Falsifications !
 
 (Les preuves apparaissent à l'écran mais disparaissent presque instantanément. L'écran est couvert de neige. Une minute plus tard, une image de Poutine devant la cathédrale du Christ-Sauveur apparaît, immédiatement remplacée par le dessin animé « Bidochon sur la Lune ».)
 
 **Osiris** (souriant) :
+
 — Dieux estimés ! Votons ! Qui est pour l'immortalité, la gloire et l'apothéose de l'accusé ?
 
 (Les 42 dieux lèvent la main à l'unisson. Une publicité est diffusée : « Le nouveau sarcophage "Pharaon-Luxe" ! Trois coloris : granit noir, marbre blanc, Ruban de la Victoire »)
 
 **Thot** (lisant la tablette d'argile) :
+
 — Approuvé à l'unanimité ! La mort est révoquée, la vie éternelle est accordée ! Le nom de Vladimir Poutine sera inscrit sur la page de titre du Livre des Morts en encre dorée !
 
 **Poutine** (acquiesçant) :
+
 — Je vous remercie. C'est notre victoire commune. Un merci particulier à mon fidèle chien, Anubis. C'est un bon garçon.
 
 (Anubis remue la queue, gêné.)
 
 **Maât** (au désespoir, laissant tomber ses plumes sur le sol) :
+
 — Impensable ! Incroyable ! Je fais appel devant le Tribunal Intergalactique Martien !
 
 (Elle est entraînée par des serviteurs à tête d'ours. La retransmission s'interrompt. L'écran montre des Cosaques qui dansent.)
 
 **Thot** (refermant le dossier) :
+
 — Merci à tous, vous êtes libres. L'audience est levée.
 
 > **Commentaire culturologique**
@@ -350,57 +402,82 @@ Augmentent la biodisponibilité de la propagande étatique jusqu’à 100 %.
 Les composants actifs franchissent efficacement la barrière hémato‑encéphalique (du pensée critique).
 
 **Gamme de produits** :
+
 • RT-Fake-Hallucinate, comprimés de 500 mg à libération prolongée. Ne pas mâcher !
+
 • Mixture-info-surrogate “Le Kremlin”, formule normalisée.
+
 • Baume “Simulacres du christianisme”, parfum de haine, usage externe. Conditionnellement toxique.
+
 • Sputnik-Data-Moulage, comprimés de 1000 mg
+
 • Teinture alcoolique “Valeurs traditionnelles”, multi‑composants. Suspension trouble à l’arôme cadavérique. Teneur : 40 %.
+
 • RuMedia-Fact-Twister, poudre pour suspension. Hallucinogène, goût d’agression.
+
 • Kremlin-Histoires-ersatz, kit d’injections intramusculaires, 2000 mg. Versions 1.0 à 10.0.
+
 • "Télévision-Grande-Illusion", suppositoires ultra-doux avec effet de démangeaison récto‑informationnelle. 200 mg.
+
 • Bifilac-Info, 350 mg. Préparation enzymatique (bifido‑lacto‑info‑bactéries) pour digérer efficacement la désinformation, prévenir les indigestions et la constipation.
 
 **Action pharmacologique** :
+
 ✓ Stimulants de Loyauté : excitent les centres de soumission et l’instinct grégaire.
+
 ✓ Agonistes de la Haine : stimulent l’amygdale (centre de la peur et de l’agression). Potentialisent la production de noradrénaline, orientant l’agressivité vers l’ennemi externe, ce qui soulage constructivement la tension sociale interne.
+
 ✓ Inhibiteurs d’Analyse : suppriment l’activité du cortex préfrontal, responsable de la pensée critique et de la logique.
+
 ✓ Bloqueurs d’Empathie : suppriment l’activité de l’insula et du cortex cingulaire antérieur, qui sont liés à l’empathie et la compassion.
 
 Ne sont pas des médicaments officiels.
 
 **Composition standardisée** :
+
 Fakes – 50 %
+
 Hallucinations – 20 %
+
 Rêves vides – 10 %
+
 Auto‑tromperie – 5 %
 
 **Substances auxiliaires** :
+
 La vie personnelle du président des États‑Unis, potins de stars, météo en Afrique, OVNI.
 
 **Arômes (au choix)** :
+
 Chauvinisme impérial, nationalisme d’extrême droite, patriotisme tapageur, fascisme ordinaire, haine aveugle, « Obama un crétin », « l’Occident pourri », « guerre sacrée ».
 
 **Colorants / (re)hausseurs** :
+
 "Valeurs traditionnelles" (triées), “liens spirituels” (renforcés), « la vie est devenue meilleure et plus joyeuse », « cendres radioactives », « nous vaincrons ».
 
 **Posologie quotidienne recommandée** :
+
 Avant le journal du soir, les émissions de V. Solovyov et M. Simonyan, l’émission finale de D. Kiselyov «Les nouvelles de la semaine », la « ligne directe » de Poutine, les briefings de D. Peskov et du ministère de la Défense.
 
  **À utiliser avec précaution** :
+ 
 Syndrome d’hyper‑loyauté, sapio‑insuffisance.
 En cas de poussée aiguë de bon sens, doutes sur la justesse de la ligne de l’État ou autres formes de résistance à la propagande : forme “Forte” recommandée.
 
 **Contrôle des signes vitaux** :
+
 Les niveaux de dopamine doivent rester dans la plage approuvée par l'État.
 Une amplitude émotionnelle excessive peut provoquer le syndrome de loyauté euphorique.
 
 **Effets secondaires** :
+
 Délire patriotique, diarrhée élogieuse, vomissements incontrôlables avec insertions de slogans.
 Dans de rares cas : thrombose idéologique provoquant une insuffisance cognitive aiguë.
 Un résidu transitoire est possible (dans l’âme).
 Pour éviter les effets secondaires, augmenter la dose progressivement ! Ne pas dépasser la posologie !
 
 **Indications particulières** :
+
 Préparation de la suspension :
 prendre ½ verre d’une source trouble, ajouter 1 cuillère à café de poudre et mélanger.
 Agitation soigneuse nécessaire !
@@ -422,13 +499,16 @@ Si accidentellement ingérés par un journaliste indépendant ou un défenseur d
 Bureau du commissariat militaire russe. Deux officiers sont assis à une table, face à un chanteur de variétés.
 
 Premier officier :
+
 — Un demi-million de nos gars sont morts ou mutilés !
 Et toi ? Tu fais la fête à poil avec une chaussette sur la bite ?!
 
 Chanteur :
+
 — Je reconnais mes torts ! Demain, je pars à Bakhmout… pour donner un concert !
 
 Deuxième officier :
+
 — Exactement. Demain, tu pars à Bakhmout… comme fantassin d’assaut.
 
 #PoutinismeMilitaireOrthodoxe
@@ -451,12 +531,15 @@ Hall d’ascenseur d’un immeuble moscovite standard. Affiche sur le vide-ordur
 Commissariat de police dans une ville russe. Un officier interroge une femme.
 
 Officier :
+
 — Vous avez fait des virements en Ukraine ?
 
 Femme :
+
 — Oui, j’ai envoyé 50 $ à mon frère à Kiev. Il est invalide, complètement impuissant, il a besoin de médicaments...
 
 Officier :
+
 — Félicitations, madame — vous voilà inculpée. Article 275 du Code pénal. Vous savez ce que ça veut dire ? Financement des Forces armées ukrainiennes. Haute trahison !
 
 #PoutinismeMilitaireOrthodoxe
@@ -469,15 +552,19 @@ Officier :
 Marioupol, ville ukrainienne détruite. Devant un immeuble tout juste reconstruit, trois femmes prient devant un portrait de Poutine.
 
 Première femme :
+
 — La guerre a détruit nos maisons. Nous vivons dans la rue.
 
 Deuxième femme :
+
 — Ils ont construit un nouvel immeuble, mais les appartements sont à vendre.
 
 Troisième femme :
+
 — Nous n’avons pas les moyens d’acheter un logement — nous ne sommes que des mendiantes.
 
 Les trois femmes, en chœur :
+
 — Poutine, aide-nous !
 
 #PoutinismeMilitaireOrthodoxe
@@ -489,10 +576,12 @@ Les trois femmes, en chœur :
 
 Dans le studio du célèbre propagandiste russe Vladimir Solovyov. Il discute avec une autre propagandiste encore plus célèbre : Margarita Simonyan.
 
-Solovyov
+Solovyov :
+
 — Les Ricains deviennent complètement insolents ! Ils ont arrêté d’avoir peur de nous ! C’est insensé !
 
 Simonyan :
+
 — Alors il faut leur faire peur. Voilà ce qu’on va faire : on fait exploser une bombe atomique au-dessus de la Sibérie ! Qu’ils voient bien qu’ici, on est tous cinglés.
 
 #PoutinismeMilitaireOrthodoxe
