@@ -5,7 +5,8 @@
 **ATTENTION !**
 **NOTE IMPORTANTE !**
 
-Ce projet a été créé dans un contexte de persécution numérique. Les services secrets russes mènent des cyberattaques systématiques visant à déformer et à substituer la traduction correcte des mots et des expressions, cherchant à discréditer les textes et à en altérer le sens.
+Ce projet a été créé dans un contexte de persécution numérique. Les services secrets russes mènent des cyberattaques systématiques visant à déformer et à substituer la traduction correcte des mots et des expressions, cherchant à discréditer les textes et à en altérer le sens. 
+Le FSB mène systématiquement des cyberattaques sur mon site, en altérant la mise en forme des textes. Merci de votre compréhension.
 Si vous êtes un locuteur natif et que vous remarquez dans les textes des mots et des expressions absurdes, illogiques, dénués de sens, "maladroits" ou grammaticalement incorrects, veuillez signaler l'erreur spécifique en utilisant les contacts ci-dessous (proposez votre version et expliquez pourquoi elle est meilleure). Votre aide pour garantir l'intégrité linguistique et la justesse des traductions est inestimable dans ce combat pour la vérité.
 Contacts:
 bbidyaga@protonmail.com | 
@@ -106,7 +107,7 @@ Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans, ça c'étai
 **Trump** (se tortille sur sa chaise) :
 — Hé, doucement, Vova, cette guerre, c’est pas la mienne ! C’est du Biden, tout ça. Et moi, tu le sais, je suis ton pote. Ton pote.
 
-**Poutine** (sourit, lent et narquois) :
+**Poutine** (sourit, narquois) :
 — Oui, oui. Je sais. Je te vois serpenter, jouer double jeu.
 
 **Trump** (se justifiant) :
@@ -124,7 +125,7 @@ Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans, ça c'étai
 (Un lourd silence s’installe.) 
 
 **Poutine** (avec un sourire ironique et froid) :
-—  Tu sais, le Nobel irait encore mieux sur ma poitrine que sur la tienne. Imagine le symbole : « Poutine, criminel de guerre et prix Nobel ». C'est la preuve ultime de mon pouvoir sans limites sur le monde. C'est même plus cool que mon armée aux portes de Paris ! Voilà comment mettre cette Europe lâche à genoux et la baiser à fond !
+—  Tu sais, le Nobel irait encore mieux sur ma poitrine que sur la tienne. Imagine les gros titres : « Poutine, criminel de guerre et prix Nobel ». C'est la preuve ultime de mon pouvoir sans limites sur le monde. C'est même plus cool que mon armée aux portes de Paris ! Voilà comment mettre cette Europe lâche à genoux et la baiser à fond !
 
 **Trump** (prudemment) :
 — Vova, et si… je prenais le Nobel d’abord, et après tu fais ce que tu veux de cette Europe lâche. D’accord ?
@@ -141,14 +142,14 @@ Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans, ça c'étai
 
 Le bon docteur Aïbolit sous l’arbre est assis,
 Entrez dans son cabinet — caporal, cornette aussi.
-Il guérit tous les maux prescrits, le bon docteur Aïbolit.
+Il guérit de tous les maux, le bon docteur Aïbolit.
 
 Moussa arrive en boitillant : 
 « Une "Guêpe" m'a tiré dessus, c'est navrant ! »
 Porthos vient, grognant très fort :
  « Un drone a soufflé mon nez, j'ai la mort ! »
 
-Une radio surgit, hurlant :
+Une mère-radio surgit, hurlante :
  « Au secours, c'est effrayant !
 Mon Vassia, mon garçon,
  a fait un mauvais pas,
@@ -159,8 +160,7 @@ quel malheur, quelle horreur ! »
 
 Mais Aïbolit dit : « Pas d'effroi.
 Amenez-le donc à moi.
-Je lui coudrai des jambes neuves 
-pour qu'il marche sur ces lieux glaives ! »
+Je lui coudrai de nouvelles jambes, afin qu'il marche sur le sentier miné ! »
 
 On lui apporte Vassia, pâle, estropié, qui pâtit.
 Le docteur lui coud des jambes — et Vassia repart tirer.
@@ -196,7 +196,7 @@ Ont marqué la terre et brisé les clairières.
 > Un temple sacré de l'Égypte ancienne. À l'intérieur se déroule la procédure bien connue du Jugement du dieu égyptien Osiris, telle que décrite dans le « Livre des Morts ». Y participent également :
 • Le dieu Thot (secrétaire du tribunal, avec une tablette d'argile dans les mains)
 • Le dieu Anubis (expert en criminalistique)
-• La déesse Maât (accusation)
+• La déesse Maât (accusateur)
 • 42 dieux-jurés égyptiens (portant des masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable et autres personnages historiques)
 • Poutine (l'accusé) 
 
@@ -354,7 +354,7 @@ Les composants actifs franchissent efficacement la barrière hémato‑encéphal
 • Mixture-info-surrogate “Le Kremlin”, formule normalisée.
 • Baume “Simulacres du christianisme”, parfum de haine, usage externe. Conditionnellement toxique.
 • Sputnik-Data-Moulage, comprimés de 1000 mg
-• Teinture alcoholique “Valeurs traditionnelles”, multi‑composants. Suspension trouble à l’arôme cadavérique. Teneur : 40 %.
+• Teinture alcoolique “Valeurs traditionnelles”, multi‑composants. Suspension trouble à l’arôme cadavérique. Teneur : 40 %.
 • RuMedia-Fact-Twister, poudre pour suspension. Hallucinogène, goût d’agression.
 • Kremlin-Histoires-ersatz, kit d’injections intramusculaires, 2000 mg. Versions 1.0 à 10.0.
 • "Télévision-Grande-Illusion", suppositoires ultra-doux avec effet de démangeaison récto‑informationnelle. 200 mg.
@@ -487,12 +487,12 @@ Les trois femmes, en chœur :
 
 ![](Images/Fr_Album_05.jpg)
 
-Dans le studio du célèbre propagandiste russe Vladimir Soloviev. Il discute avec une autre propagandiste encore plus célèbre : Margarita Simonian.
+Dans le studio du célèbre propagandiste russe Vladimir Solovyov. Il discute avec une autre propagandiste encore plus célèbre : Margarita Simonyan.
 
-Soloviev
+Solovyov
 — Les Ricains deviennent complètement insolents ! Ils ont arrêté d’avoir peur de nous ! C’est insensé !
 
-Simonian :
+Simonyan :
 — Alors il faut leur faire peur. Voilà ce qu’on va faire : on fait exploser une bombe atomique au-dessus de la Sibérie ! Qu’ils voient bien qu’ici, on est tous cinglés.
 
 #PoutinismeMilitaireOrthodoxe
@@ -509,7 +509,7 @@ Journaliste étranger :
 
 Poutine :
 — C’est une illusion d’optique.
-Retenez-le une bonne fois pour toutes : là où la botte d’un soldat russe a foulé le sol, c’est le territoire de la Russie. Selon le droit international russe.
+Retenez cela une fois pour toutes. Là où la botte d’un soldat russe a foulé le sol, c’est le territoire de la Russie. Selon le droit international russe.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -582,7 +582,7 @@ Commandant (sans se détacher du registre) :
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 11. L’HUMANISME PÉNITENTIAIRE DU 21 SIÈCLE EN ACTION
+## 11. L’HUMANISME PÉNITENTIAIRE À LA RUSSE   
 
 ![](Images/Fr_Album_11.jpg)
 
@@ -759,7 +759,7 @@ Troisième enfant :
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 20. «CONVERSATIONS SUR L’ESSENTIEL»
+## 20. « CONVERSATIONS SUR L’ESSENTIEL »
 
 ![](Images/Fr_Album_20.jpg)
 
@@ -1583,7 +1583,7 @@ Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — t
 — Et pourquoi ne pas essayer l’électrochoc ? C’est merveilleux pour les troubles spécifiques. Le Ministère de la Santé a déjà donné son feu vert.
 
 **Deuxième Professeur** (solennellement) :
-— Le Ministère de la Santé met en garde… Si vous êtes pas sages, vous prenez trois mille volts dans le cul.
+— Le Ministère de la Santé met en garde… Si vous faites les malins, vous prenez trois mille, vous prenez trois mille volts dans le cul.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1622,7 +1622,7 @@ L’agent de police :
 L’homme :
 — Non, pas d’amende ! Je les coupe tout de suite !
 
-(Baisse son pantalon)
+(Pantalon baissé )
 
 L’homme :
 — Oh ! Pardon ! Ce n’est pas ce que je voulais faire !
@@ -1633,7 +1633,7 @@ L’agent de police :
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 56. LE CONFESSIONNAL AUX MIROIRS DÉFORMANTS
+## 56. LE CONFESSIONNAL : UN MIROIR DÉFORMANT
 
 ![](Images/Fr_Album_56.jpg)
 
