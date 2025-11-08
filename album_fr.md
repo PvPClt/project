@@ -392,8 +392,9 @@ La procédure principale — la pesée du cœur : le cœur du défunt était pla
 Ce rituel symbolisait la justice absolue et l'impossibilité de tromperie.
 
 #PoutinismeMilitaireOrthodoxe
+                             👻   
 
- ## ZERO-4. SUPPLÉMENTS DE PROPAGANDE
+## ZERO-4. SUPPLÉMENTS DE PROPAGANDE
 
 ![](Images/Fr_Album_004.jpg)
 
@@ -498,16 +499,16 @@ Si accidentellement ingérés par un journaliste indépendant ou un défenseur d
 
 Bureau du commissariat militaire russe. Deux officiers sont assis à une table, face à un chanteur de variétés.
 
-Premier officier :
+**Premier officier** :
 
 — Un demi-million de nos gars sont morts ou mutilés !
 Et toi ? Tu fais la fête à poil avec une chaussette sur la bite ?!
 
-Chanteur :
+**Chanteur** :
 
 — Je reconnais mes torts ! Demain, je pars à Bakhmout… pour donner un concert !
 
-Deuxième officier :
+**Deuxième officier** :
 
 — Exactement. Demain, tu pars à Bakhmout… comme fantassin d’assaut.
 
@@ -530,15 +531,15 @@ Hall d’ascenseur d’un immeuble moscovite standard. Affiche sur le vide-ordur
 
 Commissariat de police dans une ville russe. Un officier interroge une femme.
 
-Officier :
+**Officier** :
 
 — Vous avez fait des virements en Ukraine ?
 
-Femme :
+**Femme** :
 
 — Oui, j’ai envoyé 50 $ à mon frère à Kiev. Il est invalide, complètement impuissant, il a besoin de médicaments...
 
-Officier :
+**Officier** :
 
 — Félicitations, madame — vous voilà inculpée. Article 275 du Code pénal. Vous savez ce que ça veut dire ? Financement des Forces armées ukrainiennes. Haute trahison !
 
@@ -551,19 +552,19 @@ Officier :
 
 Marioupol, ville ukrainienne détruite. Devant un immeuble tout juste reconstruit, trois femmes prient devant un portrait de Poutine.
 
-Première femme :
+**Première femme** :
 
 — La guerre a détruit nos maisons. Nous vivons dans la rue.
 
-Deuxième femme :
+**Deuxième femme** :
 
 — Ils ont construit un nouvel immeuble, mais les appartements sont à vendre.
 
-Troisième femme :
+**Troisième femme** :
 
 — Nous n’avons pas les moyens d’acheter un logement — nous ne sommes que des mendiantes.
 
-Les trois femmes, en chœur :
+**Les trois femmes, en chœur** :
 
 — Poutine, aide-nous !
 
@@ -576,11 +577,11 @@ Les trois femmes, en chœur :
 
 Dans le studio du célèbre propagandiste russe Vladimir Solovyov. Il discute avec une autre propagandiste encore plus célèbre : Margarita Simonyan.
 
-Solovyov :
+**Solovyov** :
 
 — Les Ricains deviennent complètement insolents ! Ils ont arrêté d’avoir peur de nous ! C’est insensé !
 
-Simonyan :
+**Simonyan** :
 
 — Alors il faut leur faire peur. Voilà ce qu’on va faire : on fait exploser une bombe atomique au-dessus de la Sibérie ! Qu’ils voient bien qu’ici, on est tous cinglés.
 
@@ -593,10 +594,12 @@ Simonyan :
 
 Lors d’une conférence de presse de Vladimir Poutine.
 
-Journaliste étranger :
+**Journaliste étranger** :
+
 — Monsieur Poutine, pourquoi vos soldats « défendent la patrie », comme vous dites, sur le territoire d’un autre pays ?
 
-Poutine :
+**Poutine** :
+
 — C’est une illusion d’optique.
 Retenez cela une fois pour toutes. Là où la botte d’un soldat russe a foulé le sol, c’est le territoire de la Russie. Selon le droit international russe.
 
@@ -609,10 +612,12 @@ Retenez cela une fois pour toutes. Là où la botte d’un soldat russe a foulé
 
 Bureau de Vladimir Poutine. Un immense écran plasma accroché au mur. À la table : Poutine et le ministre de la Santé, Mikhaïl Mourachko. À la télévision : une nouvelle — dans le nouveau budget russe, les dépenses de santé augmentent de 30 %.
 
-Poutine :
+**Poutine** :
+
 — J’ordonne d’annuler tous les programmes publics de traitement du cancer ainsi que la distribution gratuite de médicaments. Tous les fonds ainsi libérés doivent être réorientés vers la production de prothèses et la réhabilitation des guerriers.
 
-Mourachko :
+**Mourachko** :
+
 — À vos ordres !
 
 #PoutinismeMilitaireOrthodoxe
@@ -624,16 +629,20 @@ Mourachko :
 
 Centre de loisirs pour retraités à Moscou. Deux vieilles dames et un vieil homme tressent un filet de camouflage pour le front.
 
-Le vieil homme :
+**Le vieil homme** :
+
 — Vous savez avec quoi ils vont nous payer aujourd’hui ?
 
-Première vieille :
+**Première vieille** :
+
 — On dit qu’ils vont encore distribuer des chocolats « Poutine est avec nous ».
 
-Deuxième vieille :
+**Deuxième vieille** :
+
 — Ce n’est pas du chocolat ! C’est du soja !
 
-Le vieil homme :
+**Le vieil homme** :
+
 — Comme toujours : d’abord ils promettent du chocolat, et puis ils nous refilent Poutine !
 
 #PoutinismeMilitaireOrthodoxe
@@ -647,10 +656,12 @@ Le bureau de  Vladimir Poutine. Un immense écran plasma au mur.
 À la table : Poutine et le secrétaire du Conseil de sécurité Nikolaï Patrouchev.
 À l’écran : le président américain Joe Biden serre la main du président ukrainien Volodymyr Zelensky.
 
-Poutine (avec une froide fureur) :
+**Poutine** (avec une froide fureur) :
+
 — Biden a accordé 3,5 milliards d’aide militaire à l’Ukraine. Ses HIMARS mettent le feu à mes raffineries dans tout le pays. C’en est trop. Nous ne sommes pas obligés de supporter ça. Donnez une réponse asymétrique.
 
-Patrouchev :
+**Patrouchev** :
+
 — À vos ordres ! Nous allons organiser un “feu de Prométhée” au-dessus de son État favori. Là où résident son fils et cette idiote de Kamala Harris. C’est de sa faute — nous l’avions prévenu !
 
 #PoutinismeMilitaireOrthodoxe
@@ -662,10 +673,12 @@ Patrouchev :
 
 Front russo-ukrainien. Une tranchée QG. Dialogue entre un commandant et un sergent.
 
-Sergent :
+**Sergent** :
+
 — Camarade major ! La compagnie subit des pertes : sept blessés hurlent dans le no man’s land. On les évacue ?
 
-Commandant (sans se détacher du registre) :
+**Commandant** (sans se détacher du registre) :
+
 — Pourquoi ? Qu’ils soient portés «en réserve». Nous toucherons la solde pour eux. L’essentiel, c’est que l’effectif sur le papier corresponde.
 
 #PoutinismeMilitaireOrthodoxe
@@ -677,7 +690,8 @@ Commandant (sans se détacher du registre) :
 
 Cellule de prison russe typique. Un détenu extrêmement amaigri, maladif. Derrière lui, le ministre de la Justice Konstantin Tchouïtchenko, tenant le symbole de la déesse Thémis.
 
-Tchouïtchenko :
+**Tchouïtchenko** :
+
 — En Russie il n’y a pas de peine de mort. Les détenus meurent volontairement en prison — de honte et de remords.
 Un nouveau programme étatique de stimulation humaine du départ volontaire est mis en place :
 — perfusions de repentir,
@@ -695,16 +709,20 @@ La justice russe est la plus humaine du monde !
 
 Salle des séances de la Douma russe. Débat budgétaire.
 
-Premier député :
+**Premier député** :
+
 — 50 % du budget pour la défense ?! Vous êtes fous ! Et la santé ? Et la science ? L’éducation ?!
 
-Deuxième député :
+**Deuxième député** :
+
 — Notre objectif est la démilitarisation de l’Ukraine ! Il faut faire des sacrifices !
 
-Premier député :
+**Premier député** :
+
 — Mais en réalité, c’est la militarisation de la Russie !
 
-Viatcheslav Volodine :
+**Viatcheslav Volodine** :
+
 — Débats clos ! Le budget est adopté à l’unanimité !
 
 #PoutinismeMilitaireOrthodoxe
@@ -716,13 +734,16 @@ Viatcheslav Volodine :
 
 Salle d’audience d’un tribunal russe : prévenu, avocat de la défense, juge. Dialogue.
 
-Prévenu :
+**Prévenu** :
+
 — Mais j’ai pas lancé une pierre sur ce flic — seulement un gobelet en plastique !
 
-Avocat :
+**Avocat** :
+
 — La peine est beaucoup trop sévère ! Nous demandons qu’elle soit allégée !
 
-Juge :
+**Juge** :
+
 — Je ne vois aucun motif d’allègement. Le crime est évident, même s’il n’a pas été achevé : d’abord le gobelet, ensuite la pierre. Appel visuel clair au terrorisme. Démonstration publique évidente de méthodes terroristes. La peine est maintenue !
 
 #PoutinismeMilitaireOrthodoxe
@@ -734,17 +755,25 @@ Juge :
 
 Séance de la Douma russe. Le président Viatcheslav Volodine prononce un discours enflammé.
 
-Volodine (avec emphase) :
+**Volodine** (avec emphase) :
+
 — Les canailles d’agents étrangers veulent nous prendre :
+
 • Les palais de Crimée (symbole de la grandeur russe !)
+
 • Les mines du Donbass (inondées, mais à nous quand même !)
+
 • Les plages de Marioupol (payées de notre sang !)
+
 • Les cerises de Melitopol (notre fruit sacré et stratégique !).
 
 Nous repousserons ces canailles !
 Nous adoptons la loi de confiscation préventive :
+
 • Les appartements — pour appels séditieux
+
 • Les datchas — pour calomnies inventées
+
 • Les comptes bancaires — pour fantasmes antipatriotiques.
 
 Vous avez l’audace de vouloir — nous avons le pouvoir de confisquer !
@@ -758,15 +787,18 @@ Vous avez l’audace de vouloir — nous avons le pouvoir de confisquer !
 
 Poutine rêve. Comme s’il pêchait sur le Dniepr avec le ministre de la Défense Sergueï Choïgou.
 
-Choïgou :
+**Choïgou** :
+
 — Ici, la pêche est excellente… depuis toujours… Notre rivière, de la vieille Rus’… La Volga-mère et le Dniepr-père — de là vient toute l’eau de la Rus’… Comme l’a dit le grand poète russe : « Qu’il est beau, le Dniepr par temps calme… »
 
-Poutine :
+**Poutine** :
+
 — Oui… D’ailleurs, il y a mille ans, à cet endroit précis, le Prince Vladimir a pêché  une perche géante de près de cent kilos ! C’est écrit dans la Chronique des temps révolus !
 
 (Poutine se réveille : bruine, brouillard grisâtre sur la Moskova. Il compose le numéro de Medinski).
 
-Poutine :
+**Poutine** :
+
 — Vladimir Rostislavovitch ? Inscrivez d’urgence la Perche dans le nouveau manuel d’histoire ! Oui, celle-là… Comme symbole… de la… grandeur impériale russe. Et avec illustration !
 
 *V.R. Medinski est un «faiseur d'histoire» sur commande du Kremlin, y compris pour l'éducation scolaire.*
@@ -780,16 +812,20 @@ Poutine :
 
 Briefing du ministère russe de la Défense.
 
-Journaliste :
+**Journaliste** :
+
 — Hier, un missile russe a frappé un immeuble à Dnipro. Une famille ukrainienne a été tuée. Comment commentez-vous cela ?
 
-Général Konachenkov :
+**Général Konachenkov** :
+
 — Je le dis clairement, en vrai patriote de la Russie : l’armée russe ne bombarde jamais de cibles civiles. Selon nos renseignements, c’était un atelier clandestin de confection d’uniformes militaires.
 
-Journaliste :
+**Journaliste** :
+
 — Des enfants sont morts...
 
-Général Konachenkov :
+**Général Konachenkov** :
+
 — Ils apprenaient à broder des écussons.
 
 #PoutinismeMilitaireOrthodoxe
@@ -801,10 +837,12 @@ Général Konachenkov :
 
 Confessionnal dans une église russe. Derrière le paravent — un prêtre. Une jeune fille se confesse en sanglotant.
 
-Fille :
+**Fille** :
+
 — Mon père, je suis enceinte ! Je ne peux pas ! Que dois-je faire ? Je suis en troisième année d’université… Je dois finir mes études… Qui élèvera l’enfant ?
 
-Prêtre :
+**Prêtre** :
+
 — Une femme n’a pas besoin d’éducation. Ainsi enseigne l’Église, ainsi disent les saints Pères. La vocation de la femme : enfanter et se taire. Obéissance et maternité — voilà ta carrière. Et tu recevras ta récompense au Ciel. Notre dernier Concile a décrété :
 « L’éducation féminine venant du malin. »
 
@@ -818,10 +856,12 @@ Prêtre :
 Zone proche du front (Ukraine).
 Des soldats russes marchandent avec une prostituée. Non loin de là, un prêtre prêche.
 
-Prêtre :
+**Prêtre** :
+
 — La masturbation ! Tout le mal vient de là ! Cette guerre a commencé à cause de la masturbation ! Réveillez-vous, soldats ! Cessez de vous branler ! Dans votre main doit être une arme, pas votre sexe !
 
-Soldat :
+**Soldat** :
+
 — Si tu savais, mon père, combien elles prennent ici, tu te tairais !
 
 #PoutinismeMilitaireOrthodoxe
@@ -833,16 +873,20 @@ Soldat :
 
 Jardin d’enfants russe. Alerte aérienne. Les enfants sont obligés de rester allongés face contre terre.
 
-Premier enfant :
+**Premier enfant** :
+
 — Et on doit rester allongés comme ça longtemps ?
 
-Éducatrice :
+**Éducatrice** :
+
 — Jusqu’à ce que nos soldats aient abattu tous les drones ennemis.
 
-Deuxième enfant :
+**Deuxième enfant** :
+
 — Donc... longtemps.
 
-Troisième enfant :
+**Troisième enfant** :
+
 — Et si on partait tous sur la Lune ?
 
 #PoutinismeMilitaireOrthodoxe
@@ -855,22 +899,28 @@ Troisième enfant :
 Cours "Conversations sur L’essentiel"
 dans une école russe.
 
-L’institutrice :
+**L’institutrice** :
+
 — Alors, les enfants, dites-nous ce que vous voulez faire quand vous serez grands.
 
-Tolya :
+**Tolya** :
+
 — Moi, je serai pilote et je bombarderai les villes ennemies.
 
-Macha :
+**Macha** :
+
 — Moi, je serai infirmière et j’évacuerai les blessés du champ de bataille.
 
-Guena :
+**Guena** :
+
 — Moi, je serai général, je resterai au quartier général et je donnerai des ordres.
 
-L’institutrice :
+**L’institutrice** :
+
 — Et toi, pourquoi tu te tais, Vanya ? Dis-nous ce que tu veux devenir.
 
-Vanya (en soupirant) :
+**Vanya** (en soupirant) :
+
 — Moi, Madame Elena, je serai en hôpital psychiatrique. Bien loin de toute cette folie.
 
 #PoutinismeMilitaireOrthodoxe
