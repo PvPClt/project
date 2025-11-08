@@ -1556,6 +1556,7 @@ Exposition au Musée des Parallèles Historiques. Sur le mur — trois portraits
 • Vladimir Poutine — « V. Poutine »
 
 **Ras-Poutine = Poutine I (Proto-Poutine)** 
+
 **V. Poutine = Poutine II (La Suite)**
 
 > **Note du Conservateur** :
@@ -1583,13 +1584,13 @@ Sortie prévue : 202X
 
 > **Note Historique**
 
-• La tabatière : L'empereur Paul Ier de Russie fut assassiné en 1801. Il fut étranglé, mais le premier coup lui fut asséné avec une tabatière en or.
+> • La tabatière : L'empereur Paul Ier de Russie fut assassiné en 1801. Il fut étranglé, mais le premier coup lui fut asséné avec une tabatière en or.
 
-• L'écharpe : Staline aurait utilisé une écharpe pour mettre fin aux jours de son chef de la sécurité Nikolai Iejov. « La mort par l'écharpe » est devenu un symbole des strangulations au Kremlin.
+> • L'écharpe : Staline aurait utilisé une écharpe pour mettre fin aux jours de son chef de la sécurité Nikolai Iejov. « La mort par l'écharpe » est devenu un symbole des strangulations au Kremlin.
 
-• Le « Novitchok » : Agent neurotoxique développé en URSS, utilisé dans des empoisonnements notoires (Sergeï Skripal, Alexeï Navalny).
+> • Le « Novitchok » : Agent neurotoxique développé en URSS, utilisé dans des empoisonnements notoires (Sergeï Skripal, Alexeï Navalny).
 
-• L'infarctus : « L'arrêt cardiaque soudain » est l'euphémisme le plus courant dans les rapports officiels russes concernant les morts politiques suspectes.
+> • L'infarctus : « L'arrêt cardiaque soudain » est l'euphémisme le plus courant dans les rapports officiels russes concernant les morts politiques suspectes.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1953,7 +1954,7 @@ Au confessionnal d’une église russe.
 
 **Le pénitent** :
 
-— Pardonnez-moi, mon Père, car j’ai péché... Je suis... un païentist 
+— Pardonnez-moi, mon Père, car j’ai péché... Je suis... un païentist. 
 
 **Le prêtre** :
 
@@ -2107,7 +2108,7 @@ Et après neuf mois, le système procédera automatiquement à une évaluation d
 
 ![](Images/Fr_Album_59.jpg)
 
-*Note : Illustration bloquée par la censure.
+**Note : Illustration bloquée par la censure*.
 
 Un spacieux hall de conférence. Des officiels sont assis dans la salle. Une grande scène illuminée, au centre de laquelle est allongé sur le dos un homme politique de renommée mondiale. Ses parties génitales sont entièrement exposées, et son pénis en érection est surmonté d'une copie miniature mais précise de sa tête (celle qui se trouve sur ses épaules). La petite tête de l'homme politique s'adresse à l'assistance dans un discours fort et pompeux :
 
