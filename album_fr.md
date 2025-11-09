@@ -223,7 +223,7 @@ Ont marqué la terre et brisé les clairières.
 
 **Osiris** :
 
-— Nous commençons la retransmission en direct du procès le plus juste de l'histoire de l'univers ! Aujourd'hui, sur la Balance de la Vérité — le sort du Grand Gardien des Valeurs Traditionnelles ! Mais d'abord — une publicité pour notre sponsor. Je vous présente : l'élixir de jeunesse « Ambre » !
+— Nous commençons la retransmission en direct du procès le plus juste de l'histoire de l'univers ! Aujourd'hui, sur la Balance de la Vérité — le sort du Grand Gardien des Valeurs Traditionnelles ! Mais d'abord... une petite publicité pour notre sponsor. Je vous présente : l'élixir de jeunesse « Ambre » !
 
 (Pause publicitaire : la déesse Hathor boit la potion et rajeunit instantanément de 3000 ans. Voix off : « Ambre : une gorgée qui mène à l'Éternité. »)
 
@@ -231,7 +231,7 @@ Ont marqué la terre et brisé les clairières.
 
 — Vous faites confiance à ce tribunal ? Aucune objection concernant les juges ?
 
-**Poutine** (avec un léger sourire) :
+**Poutine** (avec un sourire narquois) :
 
 — Oh, Votre Honneur ! Comment pourrais-je ! L'histoire des relations russo-égyptiennes... Nous avons maintes fois apporté notre aide... Annulé des dettes... Construit des centrales électriques... Le barrage d'Assouan... Une compréhension mutuelle totale...
 
@@ -251,12 +251,12 @@ Ont marqué la terre et brisé les clairières.
 
 **Poutine** :
 
-— Volontiers, Votre Honneur.
+— Avec plaisir, Votre Honneur.
 Je suis né comme un gamin ordinaire de Petersbourg — un élève moyen. Et par mon labeur persévérant, récoltant les fruits sur le terrain de l'État, j'ai grimpé jusqu'au sommet du pouvoir — je suis devenu président d'un grand pays. J'ai mené les politiques les plus humaines et les plus justes. Dans mes décrets, j'ai promis à chaque citoyen un appartement séparé, des soins médicaux et une éducation gratuits, des salaires élevés et une inflation zéro. J'ai établi une paix durable dans la belliqueuse République tchétchène. Je suis devenu le donateur le plus généreux au monde. J'ai construit 20 oléoducs et gazoducs. Mon gaz éclaire et chauffe la planète entière. J'aide les mouvements de libération nationale dans le monde entier — en leur fournissant des armes à prix réduit. Je distribue des prêts de milliards de dollars aux pays pauvres et j'annule leurs dettes quelques années plus tard. Je donne à la Chine mes ressources naturelles pour une bouchée de pain. Grâce à ma politique, le bloc de l'OTAN a considérablement élargi ses frontières. J'ai libéré le peuple ukrainien frère de la tyrannie du régime fasciste de Zelensky. J'ai arrêté le bain de sang en Ukraine.
 
-(Une publicité est diffusée sur l'écran : « Du gaz dans chaque tombeau ! »)
+(Une publicité apparaît à l'écran : « Du gaz dans chaque tombeau !  Que la vie ne s'arrête jamais ! »)
 
-**Poutine** (regarde l'écran pendant une seconde, puis continue) :
+**Poutine** (regardant l'écran un instant, puis continue) :
 
 — J'ai envoyé le premier homme dans l'espace. Mon compositeur de cour a écrit le chef-d'œuvre immortel « Le Lac des cygnes » [il exécute quelques pas de ballet sur la musique de Tchaïkovski]. Enfin, j'ai débarrassé le monde de Hitler et de sa dictature fasciste.
 J'ai peiné comme un forçat sur les galères au poste de Président pendant 50 ans ! J'ai purgé une peine à perpétuité !
@@ -272,9 +272,9 @@ Le patriotisme de la jeune génération dépasse les limites : mon portrait est 
 
 (Tout le monde reste assis.)
 
-**Maât** (avec colère) :
+**Maât** (furieuse) : 
 
-— Attendez ! Vous violez encore la procédure... L'accusation n'a pas encore pu s'exprimer !
+— Attendez ! Vous bafouez encore la procédure ! L'accusation n'a pas encore pu s'exprimer !
 
 **Osiris** :
 
@@ -424,13 +424,13 @@ Les composants actifs franchissent efficacement la barrière hémato‑encéphal
 
 **Action pharmacologique** :
 
-✓ Stimulants de Loyauté : excitent les centres de soumission et l’instinct grégaire.
+✓ Stimulants de Loyauté : excitent les centres de soumission et renforcent l'instinct grégaire aveugle.
 
 ✓ Agonistes de la Haine : stimulent l’amygdale (centre de la peur et de l’agression). Potentialisent la production de noradrénaline, orientant l’agressivité vers l’ennemi externe, ce qui soulage constructivement la tension sociale interne.
 
 ✓ Inhibiteurs d’Analyse : suppriment l’activité du cortex préfrontal, responsable de la pensée critique et de la logique.
 
-✓ Bloqueurs d’Empathie : suppriment l’activité de l’insula et du cortex cingulaire antérieur, qui sont liés à l’empathie et la compassion.
+✓ Bloqueurs d’Empathie : désactivent l’insula et le cortex cingulaire  antérieur, annihilant toute forme d’empathie et de compassion.
 
 Ne sont pas des médicaments officiels.
 
@@ -446,7 +446,7 @@ Auto‑tromperie – 5 %
 
 **Substances auxiliaires** :
 
-La vie personnelle du président des États‑Unis, potins de stars, météo en Afrique, OVNI.
+La vie personnelle du président des États‑Unis, potins de célébrités, météo en Afrique, OVNI.
 
 **Arômes (au choix)** :
 
@@ -463,7 +463,7 @@ Avant le journal du soir, les émissions de V. Solovyov et M. Simonyan, l’émi
  **À utiliser avec précaution** :
  
 Syndrome d’hyper‑loyauté, sapio‑insuffisance.
-En cas de poussée aiguë de bon sens, doutes sur la justesse de la ligne de l’État ou autres formes de résistance à la propagande : forme “Forte” recommandée.
+En cas de poussée aiguë de bon sens, doutes sur la pureté de la ligne de l’État ou autres formes de résistance à la propagande : forme “Forte” recommandée.
 
 **Contrôle des signes vitaux** :
 
@@ -473,7 +473,7 @@ Une amplitude émotionnelle excessive peut provoquer le syndrome de loyauté eup
 **Effets secondaires** :
 
 Délire patriotique, diarrhée élogieuse, vomissements incontrôlables avec insertions de slogans.
-Dans de rares cas : thrombose idéologique provoquant une insuffisance cognitive aiguë.
+Dans de rares cas : thrombose idéologique, avec insuffisance cognitive aiguë.
 Un résidu transitoire est possible (dans l’âme).
 Pour éviter les effets secondaires, augmenter la dose progressivement ! Ne pas dépasser la posologie !
 
@@ -623,7 +623,7 @@ Bureau de Vladimir Poutine. Un immense écran plasma accroché au mur. À la tab
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 8. RÉSEAUX DE GUERRE, FAUX POUTINE
+## 8. RÉSEAUX DE GUERRE, LES ERSATZ DE POUTINE
 
 ![](Images/Fr_Album_08.jpg)
 
@@ -752,7 +752,7 @@ Salle d’audience d’un tribunal russe : prévenu, avocat de la défense, juge
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 14. LOI SUR LES CANAILLES : PILLAGE PRÉVENTIF
+## 14. LOI SUR LES SCÉLÉRATS : PILLAGE PRÉVENTIF
 
 ![](Images/Fr_Album_14.jpg)
 
@@ -770,7 +770,8 @@ Séance de la Douma russe. Le président Viatcheslav Volodine prononce un discou
 
 • Les cerises de Melitopol (notre fruit sacré et stratégique !).
 
-Nous repousserons ces canailles !
+Nous punirons ces scélérats.
+
 Nous adoptons la loi de confiscation préventive :
 
 • Les appartements — pour appels séditieux
@@ -788,7 +789,7 @@ Vous avez l’audace de vouloir — nous avons le pouvoir de confisquer !
 
 ![](Images/Fr_Album_15.jpg)
 
-Poutine rêve. Comme s’il pêchait sur le Dniepr avec le ministre de la Défense Sergueï Choïgou.
+Poutine fait un rêve. Comme s’il pêchait sur le Dniepr avec le ministre de la Défense Sergueï Choïgou.
 
 **Choïgou** :
 
@@ -966,7 +967,7 @@ Front ukrainien. Arrière. Les soldats sont rassemblés. Le ministre russe de la
 
 **Choïgou** :
 
-— Ta vie est réglée. Contrat fermé — pas de monnaie, pas de reddition.
+— Ta vie, c'est payé. Contrat fermé — pas de monnaie, pas de reddition.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1011,7 +1012,7 @@ vous écoutez de la musique ! C’est de la discréditation !
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 25. S-300 PLOMBAGE — QUALITÉ MILITAIRE
+## 25. S-300 PLOMBAGE — QUALITÉ CONSTRUCTION MILITAIRE
 
 ![](Images/Fr_Album_25.jpg)
 
@@ -1019,7 +1020,7 @@ Clinique dentaire russe. Sur la porte du cabinet, un avis : « Pas de matériau 
 
 **Dentiste** :
 
-— Vous avez apporté le matériau pour le plombage ? Nous, on n’en a plus. Rupture de stock. Sanctions. Vous savez bien. Pour l’instant, on n’a que du remplissage de roquette S-300. Garantie — un mois. Sauf si ça explose avant.
+— Vous avez apporté le matériau pour le plombage ? Nous, on n’en a plus. Rupture de stock. Sanctions, vous savez bien. Pour l’instant, on n’a que du béton de sable de construction S-300. Garantie — un mois. Si, bien sûr, vous ne mourez pas tout de suite.
 
 **Patient** :
 
@@ -1046,7 +1047,7 @@ Dans 3125 jours.
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 27. SOINS PALLIATIFS : « ON TIENT PAR LES PRIÈRES »
+## 27. MÉDECINE PALLIATIVE : « ON TIENT PAR LES PRIÈRES »
 
 ![](Images/Fr_Album_27.jpg)
 
@@ -1058,7 +1059,7 @@ Clinique d’oncologie en Russie. Cabinet médical. Le patient est assis sur la 
 
 **Médecin** (indifférent) :
 
-— Pas dans cette vie. Les crédits ont disparu. Alors… on resserre bien le bandage, ça freine un peu les métastases.
+— Pas dans cette vie. Les crédits ont été supprimés. Alors… on resserre bien le bandage, ça freine un peu les métastases.
 Infirmière ! Une injection d’eau bénite !
 Allez, tenez bon, on prie pour vous.
 
@@ -1096,7 +1097,7 @@ Conférence de presse de Vladimir Poutine.
 **Poutine** :
 
 — Zelensky est illégitime. S’il se fait tuer, ce ne sera pas une grande perte.
-En plus, il cherche une popularité facile.
+En plus, il cherche la popularité bon marché.
 Moi, je n’en ai pas besoin : ma cote est déjà au plus haut.
 
 #PoutinismeMilitaireOrthodoxe
@@ -1245,7 +1246,7 @@ Dialogue entre un pilote russe et un journaliste ukrainien.
 
 **Pilote** :
 
-— Sur un cabanon, c’est écrit aussi « Bite » — et dedans, il n’y a que du bois !
+— Sur un cabanon, c’est écrit aussi « Bite » — et dedans, il n’y a que du bois de chauffage !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1305,7 +1306,7 @@ Veille de Noël. Des soldats russes en position de combat. Le Père Noël vole d
 
 ![](Images/Fr_Album_38.jpg)
 
-Front ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser dans une cuve de campagne.
+Front ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser dans une piscine de campagne.
 
 **Prêtre** :
 
@@ -1317,20 +1318,20 @@ Front ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser
 
 **Deuxième soldat** :
 
-— Allez ! Fais-le ! Au moins ça nous lavera !
+— Allez ! Fais-le ! Au moins, nous nous laverons de la boue !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 39. TU VEUX ÊTRE SAINT ? PENDS-TOI À UNE CROIX
+## 39. TU VEUX ÊTRE SAINT ? SOIS CRUCIFIÉ SUR LA CROIX
 
 ![](Images/Fr_Album_39.jpg)
 
-Front ukrainien. Arrière russe. Un prêtre propose aux soldats un talisman en forme de croix « présidentielle ».
+Front ukrainien. Arrière russe. Un prêtre propose aux soldats un talisman en forme de croix en pendentif « présidentielle ».
 
 **Prêtre** :
 
-— Soldats ! Notre Président, protégé par Dieu, a ordonné de vous donner des croix à ses initiales. C’est la meilleure protection contre les balles ennemies.
+— Soldats ! Notre Président, protégé par Dieu, a ordonné que vous receviez des croix en pendentif portant ses initiales. C’est la meilleure protection contre les balles ennemies.
 
 **Soldat** :
 
@@ -1343,11 +1344,11 @@ Front ukrainien. Arrière russe. Un prêtre propose aux soldats un talisman en f
 
 ![](Images/Fr_Album_40.jpg)
 
-Front ukrainien. Arrière russe. Rituel de bénédiction des munitions.
+Front ukrainien. Arrière russe. Rituel de bénédiction des obus.
 
 **Premier soldat** :
 
-— Mon père, pourquoi faut-il bénir les obus ?
+— Mon père, pourquoi bénir les obus ?
 
 **Prêtre** :
 
@@ -1355,7 +1356,7 @@ Front ukrainien. Arrière russe. Rituel de bénédiction des munitions.
 
 **Deuxième soldat** :
 
-— Ah… voilà pourquoi on les rate toujours.
+— Ah… voilà pourquoi on les rate tout le temps.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1368,11 +1369,11 @@ Un prêtre prêche devant une église russe.
 
 **Prêtre** :
 
-— La veuve d’un soldat ne doit jamais se remarier ! Si tu as reçu le faire-part de décès, alors pleure et prie !
+— La veuve d’un soldat ne doit jamais se remarier ! Si tu as reçu le faire-part de décès, pleure et prie !
 
 **Femme dans la foule** :
 
-— Tu rêves ! Vos indemnités funéraires suffisent à peine pour une Lada blanche. Moi, je veux une Volvo rouge ! Avec minibar !
+— T'es en train de rêver ! Vos indemnités funéraires suffisent à peine pour une Lada blanche. Moi, je veux une Volvo rouge ! Avec minibar !
 
 #PoutinismeMilitaireOrthodoxe
                                👻
@@ -1385,11 +1386,11 @@ Un prêtre prêche devant une église russe.
 
 **Femme dans la salle** (montrant le portrait d’un fonctionnaire) :
 
-— Cet homme a tué mon mari. Maintenant, il enseigne le courage aux enfants et il est maire de notre ville. Pourquoi ?
+— Cet homme a tué mon mari. Aujourd'hui, il enseigne le courage aux enfants et il est maire de notre ville. Pourquoi ?
 
 **Poutine** :
 
-— Il a expié sa faute au front. Il a payé son passé de son sang : c’est un héros, notre nouvelle élite.
+— Il a expié sa faute au front, a payé son passé de son sang : c’est un héros, notre nouvelle élite.
 
 **Un premier spectateur**, le visage caché :
 
@@ -1397,7 +1398,7 @@ Un prêtre prêche devant une église russe.
 
 **Un autre spectateur**, le visage caché :
 
-— Tue, vole, viole ! Six mois à la guerre et tout est effacé...
+— Tue, vole, viole ! Six mois à la guerre et tout est oublié...
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1410,11 +1411,11 @@ Devant un dépôt de pétrole en flammes, deux prêtres russes s’entretiennent
 
 **Patriarche** :
 
-— Je n’arrive pas à distinguer : quelle est cette image accrochée là-bas ?
+— Je n’arrive pas à distinguer cette image accrochée là-bas. C’est quoi ?
 
 **Premier prêtre** :
 
-— C’est Svarojitch, le dieu slave du feu. Il aide très bien !
+— C’est Svarojitch, le dieu slave du feu. Il aide vraiment !
 
 **Deuxième prêtre** :
 
@@ -1422,7 +1423,7 @@ Devant un dépôt de pétrole en flammes, deux prêtres russes s’entretiennent
 
 **Patriarche** :
 
-— Vraiment, ça aide ?! Hm-m... Alors voilà. Nous couvrirons cette hérésie païenne d’une feuille de figuier... Nous garderons l’image de Svarojitch, mais nous l’appellerons « Saint Nicolas le Pompier ».
+— Vraiment, ça aide ?! Hm-m... Alors voilà. Nous cacherons cette hérésie païenne sous une feuille de figuier... Nous garderons l’image de Svarojitch, mais nous l’appellerons « Saint Nicolas le Pompier ».
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1431,7 +1432,7 @@ Devant un dépôt de pétrole en flammes, deux prêtres russes s’entretiennent
 
 ![](Images/Fr_Album_44.jpg)
 
-Vis sans honte devant la Patrie :
+Vis sans honte pour la Patrie :
 
 • Plante un arbre
 
@@ -1439,7 +1440,7 @@ Vis sans honte devant la Patrie :
 
 • Dénonce ton voisin
 
-• Fais naître 10 soldats
+• Fais naître dix soldats
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1500,7 +1501,7 @@ Dans le confessionnal d'une église russe.
 
 **Le pécheur repentant** :
 
-— Père ! Et le commandement « Tu ne tueras point » alors ?
+— Père ! Et le commandement « Tu ne tueras point », qu'en est-il ?
 
 **Le prêtre** :
 
@@ -1509,7 +1510,7 @@ Dans le confessionnal d'une église russe.
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 48. PARABOLE DU PÊCHEUR ET DU PATRIARCHE : AUX PAUVRES — LA FOI, AUX RICHES — LES YACHTS
+## 48. PARABOLE DU PÊCHEUR ET DU PATRIARCHE : AUX PAUVRES LA FOI, AUX RICHES LES YACHTS
 
 ![](Images/Fr_Album_48.jpg)
 
@@ -1530,7 +1531,7 @@ Le Patriarche de toute la Russie se tient à la proue de son yacht luxueux. Tout
 
 ![](Images/Fr_Album_49.jpg)
 
-Dans une école russe, pendant un cours d’éducation familiale. Au tableau — un graphique de la natalité en Russie.
+Dans une école russe, pendant un cours d’éducation familiale. Au tableau — un graphique représentant la natalité en Russie.
 
 **Élève** :
 
@@ -1538,7 +1539,7 @@ Dans une école russe, pendant un cours d’éducation familiale. Au tableau —
 
 **Professeure** :
 
-— Tu n’as pas appris la leçon ? Ce n’est pas grave ! Va, ma petite, fais un enfant — tu auras 20/20 ! Si tu fais des jumeaux, on comptera ça comme un TP d’anatomie. Des triplés — et tu recevras ton diplôme de fin d’études par anticipation. Plus besoin de venir à l’école.
+— Tu n’as pas révisé la leçon ? Ce n’est pas grave. Va, ma chérie, fais un enfant, et tu auras 20/20 ! Si tu as des jumeaux, on comptera cela comme un TP d’anatomie. Avec des triplés, tu recevras ton diplôme de fin d’études par anticipation. Tu n’auras même plus besoin de venir à l’école.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1555,22 +1556,22 @@ Exposition au Musée des Parallèles Historiques. Sur le mur — trois portraits
 
 • Vladimir Poutine — « V. Poutine »
 
-**Ras-Poutine = Poutine I (Proto-Poutine)** 
+**Ras-Poutine = Poutine I (Le Précurseur)** 
 
 **V. Poutine = Poutine II (La Suite)**
 
 > **Note du Conservateur** :
-L’histoire se répète, cette fois-ci sous la forme d’un psychodrame absurde. Deux aventuriers, un patronyme maudit — la malédiction se perpétue. La fin, comme toujours en Russie, s’écrit avec du poison, du polonium et un écharpe de soie.
+L’histoire se répète, cette fois-ci sous la forme d’un théâtre absurde. Deux aventuriers, un patronyme maudit — la malédiction se perpétue. La fin, comme toujours en Russie, s’écrit avec du poison, du polonium et une écharpe de soie.
 
-**Poutine I (v. 1.0 — Grigori Raspoutine)**
+**Poutine I (Version 1.0 — Grigori Raspoutine)**
 
 Finale : Cyanure, balle dans la tête. (1916)
 
 Statut : HORS SERVICE
 
-**Poutine II (v. 2.0 — Vladimir Poutine)**
+**Poutine II (Version 2.0 — Vladimir Poutine)**
 
-Finale (en cours de développement — Bêta) :
+Finale (en cours de développement — Version Bêta) :
 
 ▸ 30% — Tabatière (référence historique)
 
@@ -1604,7 +1605,7 @@ Les présidents Poutine et Trump, une bière à la main, penchés l'un vers l'au
 
 **Trump** :
 
-— Vova, mon gars, t’as carrément assuré — vingt-cinq ans au pouvoir ! Putain, comment t’as fait ?
+— Vova, mon pote, t’as carrément assuré — vingt-cinq ans au pouvoir ! Putain, comment t’as fait ?
 
 **Poutine** :
 
@@ -1616,11 +1617,11 @@ Les présidents Poutine et Trump, une bière à la main, penchés l'un vers l'au
 
 **Poutine** :
 
-— On a monté le coup. On a bricolé un virus mortel, on l’a balancé partout.
+— On a monté le coup. On a fabriqué un virus mortel, on l’a balancé partout.
 Boum — pandémie !
-On a foutu une trouille bleue à tout le monde, et boum — plus de contestation.
+On a foutu une putain de trouille à tout le monde, et boum — plus de contestation.
 J’avais aussi l’état d’urgence dans ma manche, au cas où. J’en ai même pas eu besoin.
-L’opposition ? Des branlos. Faibles comme des chatons. C’est eux qui gueulaient « Enfermez-nous plus ! » Tu te la fais, celle-là ?
+L’opposition ? Des branlos. Faibles comme des chatons. C’est eux qui gueulaient « Enfermez-nous plus ! » Tu te la fais, ceux-là ?
 Pathétique. Tout le monde est resté chez soi, à trembler pour sa santé.
 Bref, plus personne n’en avait rien à foutre de la Constitution.
 
@@ -1639,13 +1640,13 @@ Bref, plus personne n’en avait rien à foutre de la Constitution.
 **Poutine** :
 
 — Mortel. D’abord : dézingue la séparation des pouvoirs. Direct à la poubelle. Tu te montes une belle grosse verticale.
-Les flics et les fédéraux — tes gros bras. Les tribunaux — ta backup.
+Les flics et les fédéraux — tes gros bras. Les tribunaux — ton soutien.
 Et le dossier, Donnie, le dossier sur tout le monde. T’as pas de dossier ? T’en inventes.
 C’est comme ça que tu tiens la boutique.
 Et souviens-toi : loyauté, loyauté, loyauté. Ensuite : purge, purge, purge.
 Des procès spectacles — pour le show.
 Et boum, t’es intouchable.
-Ensuite, tu gaves tout le monde avec ton évangile. Écoles, télé, TikTok. « Make America Great Again » — tu le fais tatouer sur tous les murs si faut.
+Ensuite, tu bourres tout le monde avec ton évangile. Écoles, télé, TikTok. « Make America Great Again » — tu le fais tatouer sur tous les murs si faut.
 Je branderais tout le foutu pays :
 TraMérique.
 TrÉconomie.
@@ -1685,7 +1686,7 @@ Deux rois, une planète. Santé, Donnie.
 ![](Images/Fr_Album_52.jpg)
 
 Un bar américain.
-Les présidents Poutine et Trump sont attablés, en train de boire une bière.
+Les présidents Poutine et Trump sont assis à une table, une bière à la main.
 
 **Trump** :
 
@@ -1694,7 +1695,7 @@ Les présidents Poutine et Trump sont attablés, en train de boire une bière.
 **Poutine** :
 
 — Donnie, tu veux ma mort ou quoi ?!
-Ses cotes étaient en dessous de zéro. Pourquoi est-ce que j’aurais eu peur d’un type comme lui ?
+Ses cotes étaient proches du néant. Pourquoi j’aurais eu peur d’un type comme lui ?
 
 **Trump** :
 
@@ -1702,7 +1703,7 @@ Ses cotes étaient en dessous de zéro. Pourquoi est-ce que j’aurais eu peur d
 
 **Poutine** :
 
-— Faut que tu comprennes, Donnie. Il me cassait les pieds. Il me rendait dingue. Rien que d’entendre son nom ma tension montait. Je supportais pas de vivre dans le même pays que lui, de respirer le même air que lui. Je lui ai donné la possibilité de partir — il est revenu. Pourquoi ?
+— Faut que tu comprennes, Donnie. Il me cassait les pieds. Il me rendait dingue. Rien que d’entendre son nom ma tension montait. Je supportais pas l’idée de vivre dans le même pays que lui, de respirer le même air. Je lui ai donné la possibilité de partir — il est revenu. Pourquoi ?
 
 **Trump** :
 
@@ -1710,7 +1711,7 @@ Ses cotes étaient en dessous de zéro. Pourquoi est-ce que j’aurais eu peur d
 
 **Poutine** :
 
-— Donnie, sois pas aussi vulgaire. Je l’ai seulement fait mettre en prison. Pour délits financiers. Un voleur, ça va en prison, Donnie. J’ai pas raison ?
+— Donnie, sois pas aussi vulgaire. Je l’ai juste fait enfermer.  Pour délits financiers. Un voleur, ça va en prison, Donnie. J’ai pas raison ?
 
 **Trump** :
 
@@ -1735,7 +1736,7 @@ Vingt trucs. Dont la prostatite. Les mêmes qui ont traité le dossier Magnitsky
 
 **Poutine** :
 
-— Nous non plus on ne savait pas. Mais après l’autopsie — boum ! Vingt-cinq maladies. Même la sciatique. Comme un vieux débris.
+— Nous non plus, on ne savait pas. Mais après l’autopsie — boum ! Vingt-cinq maladies. Même la sciatique. Un vieux débris.
 
 **Trump** :
 
@@ -1783,7 +1784,7 @@ Vingt trucs. Dont la prostatite. Les mêmes qui ont traité le dossier Magnitsky
 
 **Trump** (gaiement, à Poutine) :
 
-— Bon, assez parlé de ces trucs déprimants. Allons boire une bière pour se remonter le moral.
+— Allez, assez de ces trucs déprimants. Allons boire une bière, ça nous redonnera le moral.
 
 **Poutine** :
 
@@ -1966,11 +1967,11 @@ Au confessionnal d’une église russe.
 
 **Le prêtre** :
 
-— Un ex-agent de KGB? Un esprit repentant ? L’Église accueille toutes les rédemptions.
+— Un ex bi sionist ? L’Église manifeste désormais sa tolérance envers l’identité bisexuelle non traditionnelle. Quant aux sionistes, Dieu leur accorde sa bénédiction...
 
 **Le pénitent** (chuchotant) :
 
-— Je suis fautif, mon Père ! J’ai... montré mon sexe lors d’une garden-party...
+— Je suis fautif, mon Père ! J’ai... montré mon sexe lors d’une montagne-party...
 
 **Le prêtre** :
 
@@ -1978,7 +1979,7 @@ Au confessionnal d’une église russe.
 
 **Le pénitent** :
 
-— Je me repens, mon Père ! Mon péché est grand ! C’était... une garden-party pour enfants ...
+— Je me repens, mon Père ! Mon péché est grand ! C’était... une montagne-party pour enfants...
 
 **Le prêtre** :
 
