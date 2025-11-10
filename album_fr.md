@@ -118,7 +118,7 @@ Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans, ça c'étai
 
 — Hé, doucement, Vova, cette guerre, c’est pas la mienne ! C’est du Biden, tout ça. Et moi, tu le sais, je suis ton pote. Ton pote.
 
-**Poutine** (sourit, narquois) :
+**Poutine** (avec un sourire narquois) :
 
 — Oui, oui. Je sais. Je te vois serpenter, jouer double jeu.
 
@@ -1327,7 +1327,7 @@ Front ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser
 
 ![](Images/Fr_Album_39.jpg)
 
-Front ukrainien. Arrière russe. Un prêtre propose aux soldats un talisman en forme de croix en pendentif « présidentielle ».
+Front ukrainien. Arrière russe. Un prêtre propose aux soldats un talisman en forme de croix « présidentielle »  en pendentif.
 
 **Prêtre** :
 
@@ -1621,7 +1621,7 @@ Les présidents Poutine et Trump, une bière à la main, penchés l'un vers l'au
 Boum — pandémie !
 On a foutu une putain de trouille à tout le monde, et boum — plus de contestation.
 J’avais aussi l’état d’urgence dans ma manche, au cas où. J’en ai même pas eu besoin.
-L’opposition ? Des branlos. Faibles comme des chatons. C’est eux qui gueulaient « Enfermez-nous plus ! » Tu te la fais, ceux-là ?
+L’opposition ? Des branlos. Faibles comme des chatons. C’est eux qui gueulaient « Enfermez-nous plus ! » Tu te la fais, celle-là ?
 Pathétique. Tout le monde est resté chez soi, à trembler pour sa santé.
 Bref, plus personne n’en avait rien à foutre de la Constitution.
 
