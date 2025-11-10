@@ -1346,7 +1346,7 @@ Scheduled Release: 202X
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 51. TRAMPUTATION HAPPY HOUR 
+## 51. TRUMPUTATION HAPPY HOUR 
 
 ![](Images/En_Album_51.jpg)
 
