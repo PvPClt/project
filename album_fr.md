@@ -1148,11 +1148,11 @@ Et, je l’espère, offrira une solution dans une impasse.
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 32. PUTINACÉE CONTRE TOUS LES MAUX : LA PEUR
+## 32. POUTINACÉE CONTRE TOUS LES MAUX : LA PEUR
 
 ![](Images/Fr_Album_32.jpg)
 
-**PUTINACÉE®**
+**POUTINACÉE®**
 Médicament à large spectre d’action combinée.
 Actif contre tous les micro-organismes de l’opposition...
 
