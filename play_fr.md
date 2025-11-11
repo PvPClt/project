@@ -55,7 +55,7 @@ bbidyaga@protonmail.com
 **La Russie** (ingénument) :
 – Qui ?
 
-**Poutine** (avec aigreur) :
+**Poutine** (avec mépris) :
 – Ben un clown, que Dieu me pardonne… et en plus un youpin ! Bon pour faire le pitre sur scène, et le voilà qui se trémousse sur les grandes tribunes, prêt à tout pour entrer dans l’OTAN.
 
 ![](Images/Fr_Play_02.jpg)
@@ -68,13 +68,13 @@ bbidyaga@protonmail.com
 
 ![](Images/Fr_Play_03.jpg)
 
-**Poutine** :
-— Et pourtant, cette truie m’a volé mes terres ! Oui, elle me les a volées… et elle s’engraisse, elle ramasse des profits par milliards. Des terres russes de souche, soit dit en passant… Des terres où la Sainte Russie s’est dressée, où le prince Vladimir Soleil-Rouge siégeait sur le trône… où il guerroyait contre les Petchénègues et les Coumans...
+**Poutine** (avec aigreur) :
+— Et pourtant, cette truie m’a volé mes terres ! Oui, elle me les a volées… et elle s’engraisse, elle ramasse des profits par milliards. Des terres russes de souche, soit dit en passant… Des terres où la Sainte Russie s'est établie, où le prince Vladimir Soleil-Rouge siégeait sur le trône… où il guerroyait contre les Petchénègues et les Coumans...
 
 ![](Images/Fr_Play_04.jpg)
 
 **La Russie** (insinuante) :
-–Mais toi, tu en as bien assez, des terres, non ?
+– Mais toi, tu en as bien assez, des terres, non ?
  
 **Poutine** (la voix torturée) :
 – Des terres ? Tu appelles ça des terres ? Des marais, des friches… de la toundra, de la taïga… qu’est-ce que tu veux que je fasse de ça ? Tandis qu’elle, elle a du tchernoziom, une terre grasse… Le grenier, tu comprends, qui nourrit le monde entier…
@@ -140,7 +140,7 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 – Près de Rostov, ils ont tapé si fort… La moitié du dépôt a flambé comme de la poudre. Cinq cents millions de bouts de papier partis en fumée en cinq jours. On n’arrive toujours pas à éteindre.
 
 **La Russie** (chagrinée) :
-– Quel malheur ! Et vous n’avez pas essayé d’asperger avec de l’eau bénite ? Depuis un hélicoptère ?
+– Quel malheur ! Et vous n’avez pas essayé de l’asperger avec de l’eau bénite ? Depuis un hélicoptère ?
 
 **Poutine** (soupirant lourdement) :
 – On a pourtant tout essayé ! On a fait dire une messe, apporté des reliques, et les popes avec les icônes ont fait une ronde…
@@ -165,13 +165,13 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 **Poutine** (tristement, secouant la tête) :
 – Que dalle.
 
-**La Russie** (après une courte pause, se lamentant) :
+**La Russie** (après une courte pause, clamant haut et fort) :
 – Sainte Marie ! Saints thaumaturges ! On t’a jeté le mauvais œil, mon petit ! Oh, le mauvais œil ! Les suppôts de Satan, les mécréants de l’étranger ! Oh là là ! Qu’allons-nous faire ? Il n’y a pas d’autre solution que d’aller voir une guérisseuse !
 
 **Poutine** (agacé) :
 – Quelle guérisseuse ? Qu’est-ce que tu racontes ?!
  
-**La Russie** (continue de se lamenter) :
+**La Russie** (continue de clamer haut et fort) :
 – Pour jeter un sort sur l’eau… « Sauve le serviteur de Dieu Vladimir du Serpent volant, du Serpent rampant, du malheur… Ennemi, Satan, homme mauvais, détourne-toi de lui, comme bête de bête, serpent de serpent, hérétique d’hérétique, sorcier de sorcière… Pouah, pouah, pouah ! » (Elle crache trois fois par-dessus son épaule gauche en se signant chaque fois.)
 
 ![](Images/Fr_Play_12.jpg)
@@ -196,7 +196,7 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 **La Russie** (après une pause) :
 – Et autre chose. Méfie-toi des chats noirs. On ne sait jamais, cette impureté pourrait te traverser la route…
 
-**Poutine** (complaisant) :
+**Poutine** (d'un ton vantard) :
 – Ces chats noirs, moi, d’un seul regard… L’autre jour, il y en a un qui s’est mis en travers de ma route. Je l’ai regardé d’un tel air — il a disparu à ce moment-là.
 
 ![](Images/Fr_Play_14.jpg)
@@ -276,7 +276,7 @@ Avec exhibition de symboles nazis…
 
 ![](Images/Fr_Play_20.jpg)
 
-(Un lourd silence s’installe.)
+(Un silence lourd  s’installe.)
 
 **Poutine** (au bout d’une demi-minute, le visage déformé par la haine) : 
 – En plus, elle a quémandé aux Amerloques des brouilleurs tout neufs, hyper modernes, que même les armées de l’OTAN n’ont ! Tu piges le truc ? Lui… il me voit ! Et moi… je ne le vois pas !!!
@@ -365,7 +365,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 (Elle commence à chuchoter convulsivement une prière, se signant menu et cognant parfois la tête contre le sol avec un bruit sourd. Poutine, ayant évacué sa tension, se calme vite et marmonne à mi-voix.)
 
  **Poutine** :
-– Bon, ouais… là-bas, ils sont tous gender neutre… Sans caractères sexuels primaires… Dieu merci, nous on n’est pas comme ça !
+– Bon, ouais… là-bas, ils sont tous gender neutre… Sans caractères sexuels primaires… Dieu merci, nous ne sommes pas comme ça  !
 
 ![](Images/Fr_Play_27.jpg)
 
@@ -458,7 +458,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 **Poutine** (satisfait) :
 – Oui… Et maintenant, c’est moi qui suis riche…
 
-(Il la regarde fixement. Son visage affiche un dégoût mal dissimulé.)
+(Il la regarde fixement. Un dégoût mal dissimulé apparaît sur son visage.)
 
  **Poutine** :
 – Mais t’as vieilli, petite mère… Et t’as enlaidi.
@@ -536,7 +536,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 (Pause)
 
-**La Russie** (voix cassée) :
+**La Russie** (voix tremblante et éteinte) :
 – Je sens… que je… meurs… Tu viens avec moi, mon chéri ?
 
 **Poutine** (de façon moqueuse) :
