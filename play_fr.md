@@ -361,8 +361,8 @@ Avec exhibition de symboles nazis…
 – Le pilote, bon sang ! Celui qui est dans l’avion ! Il a un navet de malade, un truc de ouf, que tous mes radars peuvent aller se faire foutre !
 
 > «Navet» en russe a deux significations :
-> – Navet (légume)
-> – Moyens de guerre électronique (jargon militaire)
+> 1. Navet (légume)
+> 2. Moyens de guerre électronique (jargon militaire)
 
 **La Russie** (indignée) :
 
