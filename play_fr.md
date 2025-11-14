@@ -165,13 +165,13 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 **Poutine** (tristement, secouant la tête) :
 – Que dalle.
 
-**La Russie** (après une courte pause, clamant haut et fort) :
+**La Russie** (après une courte pause, se lamentant) :
 – Sainte Marie ! Saints thaumaturges ! On t’a jeté le mauvais œil, mon petit ! Oh, le mauvais œil ! Les suppôts de Satan, les mécréants de l’étranger ! Oh là là ! Qu’allons-nous faire ? Il n’y a pas d’autre solution que d’aller voir une guérisseuse !
 
 **Poutine** (agacé) :
 – Quelle guérisseuse ? Qu’est-ce que tu racontes ?!
  
-**La Russie** (continue de clamer haut et fort) :
+**La Russie** (continue de se lamenter) :
 – Pour jeter un sort sur l’eau… « Sauve le serviteur de Dieu Vladimir du Serpent volant, du Serpent rampant, du malheur… Ennemi, Satan, homme mauvais, détourne-toi de lui, comme bête de bête, serpent de serpent, hérétique d’hérétique, sorcier de sorcière… Pouah, pouah, pouah ! » (Elle crache trois fois par-dessus son épaule gauche en se signant chaque fois.)
 
 ![](Images/Fr_Play_12.jpg)
@@ -229,7 +229,7 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 (Une petite pause.)
 
 **Poutine** (avec amertume et rancœur) :
-– Ils ont maintenant des avions ! Des Américains ! Des F16 ! Tu entends ? Ce n’est pas un avion, c’est un dragon de feu ! Tu crois qu’il sait seulement lancer des bombes ? Que nenni ! C’est aussi un chasseur, et un intercepteur ! Trois en un, nom de Dieu !  Salope ! Salope ! Salope !
+– Ils ont maintenant des avions ! Américains ! Des F16 ! Tu entends ? Ce n’est pas un avion, c’est un dragon de feu ! Tu crois qu’il sait seulement lancer des bombes ? Que nenni ! C’est aussi un chasseur, et un intercepteur ! Trois en un, nom de Dieu !  Salope ! Salope ! Salope !
 
 ![](Images/Fr_Play_17.jpg)
 
@@ -276,7 +276,7 @@ Avec exhibition de symboles nazis…
 
 ![](Images/Fr_Play_20.jpg)
 
-(Un silence lourd  s’installe.)
+(Un lourd silence s’installe.)
 
 **Poutine** (au bout d’une demi-minute, le visage déformé par la haine) : 
 – En plus, elle a quémandé aux Amerloques des brouilleurs tout neufs, hyper modernes, que même les armées de l’OTAN n’ont ! Tu piges le truc ? Lui… il me voit ! Et moi… je ne le vois pas !!!
@@ -292,7 +292,7 @@ Avec exhibition de symboles nazis…
 – Moyens de guerre électronique (jargon militaire)
 
 **La Russie** (indignée) :
-— Ah, les canailles ! Ils s’en prennent à notre valeur traditionnelle ! Touche pas à notre navet, sales barbares ! Bouffez donc votre maïs ! Et crèvez-en, tiens !
+— Ah, les canailles ! Ils ont piqué notre valeur traditionnelle ! Touche pas à notre navet, sales barbares ! Bouffez donc votre maïs ! Et crèvez-en, tiens !
 
 ![](Images/Fr_Play_21.jpg)
 
@@ -372,7 +372,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 (Il palpe ses propres caractères sexuels primaires et hoche la tête avec satisfaction. La Russie cesse de se prosterner et le regarde avec une appréhension muette.)
 
 **Poutine** (accablé, peu à peu s'échauffant) :
-– Du traquenard partout… De la trahison à chaque coin ! Les généraux bradent la Patrie. Au détail et en gros !... Tout le ravitaillement a été détourné. En temps de paix, passe encore – volez, volez, allez-y… Mais en temps de guerre ?! Plus aucune honte ! Ils vendent mes chars à mes ennemis ! Juste de l’autre côté du front ! En main propre ! Dans un emballage cadeau ! Avec un putain de nœud papillon sur la tourelle ! Berk ! Fils de pute !!!
+– Du traquenard partout… De la trahison à chaque coin ! Les généraux bradent la Patrie. Au détail et en gros !... Tout le ravitaillement a été détourné. En temps de paix, passe encore – volez, volez, allez-y… Mais en temps de guerre ?! Plus aucune honte ! Ils vendent mes chars à mes ennemis ! Directement à travers la ligne de front ! De main à main !  En main propre ! Dans un emballage cadeau ! Avec un putain de nœud papillon sur la tourelle ! Berk ! Fils de pute !!!
 
 ![](Images/Fr_Play_28.jpg)
 
