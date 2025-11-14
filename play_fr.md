@@ -33,11 +33,13 @@ bbidyaga@protonmail.com
 – Oh ! Mon petit est là ! Moi qui n’y croyais plus… Je t’ai tant attendu… Alors, raconte : où t’es-tu fourré, qu’est-ce que tu fabriques ?
 
 **Poutine** (sombre) :
+
 – J’étais à la guerre.
 
 ![](Images/Fr_Play_01.jpg)
 
 **La Russie** (avec un intérêt sincère) :
+
 – À la guerre ? Mais pourquoi donc lancer une guerre ? Tu t’es disputé avec quelqu’un ? Quelqu’un t’a vexé ?
 
 **Poutine** (plein de haine) :
@@ -359,10 +361,8 @@ Avec exhibition de symboles nazis…
 – Le pilote, bon sang ! Celui qui est dans l’avion ! Il a un navet de malade, un truc de ouf, que tous mes radars peuvent aller se faire foutre !
 
 > «Navet» en russe a deux significations :
-
-– Navet (légume)
-
-– Moyens de guerre électronique (jargon militaire)
+> – Navet (légume)
+> – Moyens de guerre électronique (jargon militaire)
 
 **La Russie** (indignée) :
 
