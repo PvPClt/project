@@ -465,7 +465,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 **Poutine** (accablé, peu à peu s'échauffant) :
 
-– Du traquenard partout… De la trahison à chaque coin ! Les généraux bradent la Patrie. Au détail et en gros !... Tout le ravitaillement a été détourné. En temps de paix, passe encore – volez, volez, allez-y… Mais en temps de guerre ?! Plus aucune honte ! Ils vendent mes chars à mes ennemis ! Directement à travers la ligne de front ! De main à main !  En main propre ! Dans un emballage cadeau ! Avec un putain de nœud papillon sur la tourelle ! Berk ! Fils de pute !!!
+– Du traquenard partout… De la trahison à chaque coin ! Les généraux bradent la Patrie. Au détail et en gros !... Tout le ravitaillement a été détourné. En temps de paix, passe encore – volez, volez, allez-y… Mais en temps de guerre ?! Plus aucune honte ! Ils vendent mes chars à mes ennemis ! Directement à travers la ligne de front ! De main à main !  Dans un emballage cadeau ! Avec un putain de nœud papillon sur la tourelle ! Berk ! Fils de pute !!!
 
 ![](Images/Fr_Play_28.jpg)
 
