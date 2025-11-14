@@ -88,7 +88,7 @@ Les présidents Poutine et Trump sont attablés, en train de boire une bière...
 **Poutine** :
 
 — Écoute-moi bien, Donny. Navalny, il n'avait aucun programme. Il se contentait de rassembler des gamins dans la rue pour qu'ils braillent des insultes à mon encontre. Tu appelles ça un projet de société ?
-Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans, ça c'était un vrai programme. Lui ? Que des crachats. C'est d'un vulgaire.
+Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans. Ça, c'était un vrai programme. Lui ? Que des crachats. C'est d'un vulgaire.
 
 **Trump** :
 
@@ -142,7 +142,7 @@ Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans, ça c'étai
 
 **Poutine** (avec un sourire ironique et froid) :
 
-—  Tu sais, le Nobel irait encore mieux sur ma poitrine que sur la tienne. Imagine les gros titres : « Poutine, criminel de guerre et prix Nobel ». C'est la preuve ultime de mon pouvoir sans limites sur le monde. C'est même plus cool que mon armée aux portes de Paris ! Voilà comment mettre cette Europe lâche à genoux et la baiser à fond !
+—  Tu sais, le Nobel irait encore mieux sur ma poitrine que sur la tienne. Imagine les gros titres : « Poutine, criminel de guerre et lauréat Nobel ». C'est la preuve ultime de mon pouvoir sans limites sur le monde. C'est même plus cool que mon armée aux portes de Paris ! Voilà comment mettre cette Europe lâche à genoux et la baiser à fond !
 
 **Trump** (prudemment) :
 
@@ -212,7 +212,7 @@ Ont marqué la terre et brisé les clairières.
 
 ![](Images/Fr_Album_003.jpg)
 
-> Un temple sacré de l'Égypte ancienne. À l'intérieur se déroule la procédure bien connue du Jugement du dieu égyptien Osiris, telle que décrite dans le « Livre des Morts ». Y participent également :
+> Un temple sacré de l'Égypte ancienne. À l'intérieur se déroule la procédure bien connue du Jugement du dieu égyptien Osiris, décrite dans le « Livre des Morts ». Y participent également :
 > - Le dieu Thot (secrétaire du tribunal, avec une tablette d'argile dans les mains)
 - Le dieu Anubis (expert en criminalistique)
 - La déesse Maât (accusateur)
@@ -793,7 +793,7 @@ Poutine fait un rêve. Comme s’il pêchait sur le Dniepr avec le ministre de l
 
 **Choïgou** :
 
-— Ici, la pêche est excellente… depuis toujours… Notre rivière, de la vieille Rus’… La Volga-mère et le Dniepr-père — de là vient toute l’eau de la Rus’… Comme l’a dit le grand poète russe : « Qu’il est beau, le Dniepr par temps calme… »
+— Ici, la pêche est excellente… depuis toujours… Notre rivière, de la vieille Rus’… La Volga-mère et le Dniepr-père — c’est d’eux que vient toute l’eau de la Rus’… Comme l’a dit le grand poète russe : « Qu’il est beau, le Dniepr par temps calme… »
 
 **Poutine** :
 
@@ -1466,7 +1466,7 @@ Vis sans honte pour la Patrie :
 15. Tu ne te feras point d’idole hors de la verticale du pouvoir.
 Que la loyauté soit avec toi — et tu n’expieras point en prison.
 
-*Extrait de « L’Apocalypse de Roskomnadzor », chap. 666.*
+*Extrait de « L’Apocalypse de l'agence russe de contrôle des communications », chap. 666.*
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1652,7 +1652,7 @@ TraMérique.
 TrÉconomie.
 TraMode.
 Tu colles ton nom sur tout — les Américains ils kiffent ce truc.
-Deux partis ? Oublie. Démagos, Républicains — le même cirque, des clowns différents, ils changent juste de costard tous les quatre ans.
+Deux partis ? Oublie. Démocrates, Républicains — le même cirque, des clowns différents, ils changent juste de costard tous les quatre ans.
 Monte ton propre parti : le TrumParti. Gros, bruyant, orange.
 Putain, fais ton slogan plus gros : MAGA — FAGA.
 « Faisons l’Amérique Géniale À nouveau : Félicité À tous. Gloire à Dieu. Alléluia ! »
@@ -1752,7 +1752,7 @@ Vingt trucs. Dont la prostatite. Les mêmes qui ont traité le dossier Magnitsky
 
 **Poutine** :
 
-— Il avait neuf vies, Donnie. Comme une chatte. Même le « Novitchok » a rien pu faire. Un sacré spécimen. Imagine-toi — trente-cinq pathologies chroniques. Et des poux ! C’était pas un homme, c’était un cadavre ambulant !
+— Il avait neuf vies, Donnie. Comme une chatte. Même le « Novitchok » ne lui a rien fait. Un sacré spécimen. Imagine-toi — trente-cinq pathologies chroniques. Et des poux ! C’était pas un homme, c’était un cadavre ambulant !
 
 **Trump** :
 
@@ -2020,7 +2020,7 @@ Le bureau de Poutine au Kremlin. Assis à la table : Poutine et Mikhail Kovalchu
 
 **Poutine** (pensif) :
 
-– Une immortalité merdique. Une idée merdique. Bon, admettons, tu m'imprimes. Mais qui suis-je ? Personne. C'est un autre qui sera sur le trône. On se souviendra de moi pour la guerre, les incendies, les explosions, les câbles, et tout le reste.
+– Une immortalité merdique. Une idée merdique. Bon, admettons, tu m'imprimes. Mais qui suis-je ? Personne. C'est un autre qui sera sur le trône. On me reprochera la guerre, les incendies, les explosions, les câbles, et tout le reste.
 
 **Kovalchuk** :
 
