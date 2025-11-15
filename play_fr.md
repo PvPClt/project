@@ -331,7 +331,7 @@ Ils ont déglingué tous mes dépôts de pétrole et mes raffineries. Je n’ai 
 
 **Poutine** (indigné) :
 
-– Mais ils envahissent notre territoire ! Ils violent la frontière nationale ! Ils piétinent le droit international !Ils franchissent mes (!) lignes rouges ! Ils terrorisent la population civile ! C’est du banditisme pur et simple !!!
+– Mais ils envahissent notre territoire ! Ils violent la frontière nationale ! Ils piétinent le droit international ! Ils franchissent mes (!) lignes rouges ! Ils terrorisent la population civile ! C’est du banditisme pur et simple !!!
 Avec exhibition de symboles nazis…
 
 ![](Images/Fr_Play_19.jpg)
@@ -623,7 +623,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 **La Russie** (levant les mains, effrayée) :
 
-– Saintes paroles ! Mais… pourquoi mourir ?
+– De quoi tu parles ?! Pourquoi mourir ?
 
 **Poutine** (à part, ricanant) :
 
@@ -661,7 +661,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 – Et là ? Ça fait combien de pour cent ?
 
-**La Russie** (gémissante, haletante) :
+**La Russie** (gémissements d'extase) :
 
 – Oh… si bon avec toi… Encore, mon petit… encore…
 
@@ -683,7 +683,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 – Moi, mourir ? Tu rêves. Moi, jamais. J’suis pas prêt à crever — j’ai encore d’autres affaires.
 
-**La Russie** (avec difficulté à prononcer les mots) :
+**La Russie** (lentement, péniblement) :
 
 – Mais… Volodine… tout à l’heure… il a dit quoi ?… « Pas de Poutine… pas de Russie ? »
 
