@@ -1907,7 +1907,7 @@ Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — t
 
 **Deuxième Professeur** (solennellement) :
 
-— Le Ministère de la Santé met en garde… Si vous faites les malins, vous prenez trois mille, vous prenez trois mille volts dans le cul.
+— Le Ministère de la Santé met en garde… Si vous faites les malins, vous prenez trois mille volts dans le cul.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
