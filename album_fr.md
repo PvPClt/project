@@ -23,42 +23,58 @@ Si vous partagez les idées de l’auteur, rejoignez le projet : faites un don �
 
 **1. UNBROKEN (Незламні)**
 Prothèses, rééducation et soutien psychologique aux militaires et aux civils blessés par la guerre.
+
 Site : https://unbroken.org.ua
+
 Dons : https://unbroken.org.ua/donate
 
 **2. SavED**
 Restauration des écoles et jardins d’enfants dans les territoires libérés.
+
 Site : https://saved.foundation
+
 Dons : https://saved.foundation/?payment=general
 
 **3. UNITED24** (Plateforme officielle du président de l’Ukraine)
 Déminage, aide médicale, reconstruction de logements, écoles, hôpitaux.
+
 Site : https://u24.gov.ua
+
 Dons : https://u24.gov.ua/donate
 
 **4. Razom for Ukraine** 
 Soins médicaux, réhabilitation et prothèses pour les blessés, aide aux déplacés et réfugiés.
+
 Site : https://www.razomforukraine.org/
+
 Dons : https://www.razomforukraine.org/donate-to-ukraine/
 
 **5. Reviens vivant**
 Équipement de haute technologie pour les Forces armées ukrainiennes : drones, véhicules, systèmes de surveillance et moyens de communication. Formation du personnel militaire ukrainien.
+
 Site : https://savelife.in.ua/
+
 Dons : https://savelife.in.ua/en/donate-en/#donate-army-card-once
 
 **6. Fond pour la reconstruction de l'Ukraine** 
 Reconstruction à long terme des infrastructures détruites : logements, hôpitaux, écoles, énergie.
+
 Site : https://ukrainereconstructionfund.org/
+
 Dons : https://ukrainereconstructionfund.org/donate-now/
 
 **7. Retour à la vie**
 Aide humanitaire étendue aux victimes : personnes déplacées internes, enfants, familles des disparus.
+
 Site : https://returntolife.org.ua/
+
 Dons : https://returntolife.org.ua/donate/
 
 **8. Fondation Serhiy Prytula**
 Aide dans de multiples domaines : du matériel tactique et des véhicules pour les Forces armées ukrainiennes à l'aide humanitaire à grande échelle pour les civils.
+
 Site : https://prytulafoundation.org/
+
 Dons : https://prytulafoundation.org/
 
 *Vous trouverez également la liste des fondations caritatifs à la fin de l'album.*
@@ -286,7 +302,7 @@ Le patriotisme de la jeune génération dépasse les limites : mon portrait est 
 
 — Mesdames et Messieurs les jurés, veuillez voter...
 
-**Maât** (sursautant, brandissant ses plumes) :
+**Maât** (avec fougue, brandissant ses plumes) :
 
 — Je proteste ! Le réquisitoire n'a pas été entendu ! La pesée du cœur n'a pas été effectuée !
 
@@ -383,11 +399,13 @@ L'accusé est acquitté.
 
 > **Commentaire culturologique**
 La miniature est basée sur le mythe égyptien ancien du Jugement d'Osiris. Selon le « Livre des Morts », l'âme du défunt était amenée dans la Salle des Deux Vérités, où elle devait affronter :
+> 
 —Osiris — dieu des enfers, juge président.
 —Maât — déesse de la vérité et de la justice, étalon de pureté.
 —Anubis — dieu à tête de chacal qui procédait à la pesée du cœur.
 —Thot — dieu de la sagesse, scribe du tribunal.
 —42 dieux-jurés — chacun responsable d'un péché spécifique ; le défunt devait jurer devant chaque dieu qu'il n'avait pas commis ce péché.
+
 La procédure principale — la pesée du cœur : le cœur du défunt était placé sur un plateau, et la plume de Maât sur l'autre. Si le cœur était « plus léger que la plume », l'âme était jugée pure et recevait la vie éternelle ; s'il était plus lourd, elle était annihilée.
 Ce rituel symbolisait la justice absolue et l'impossibilité de tromperie.
 
