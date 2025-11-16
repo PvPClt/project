@@ -866,7 +866,7 @@ Confessionnal dans une église russe. Derrière le paravent — un prêtre. Une 
 **Prêtre** :
 
 — Une femme n’a pas besoin d’éducation. Ainsi enseigne l’Église, ainsi disent les saints Pères. La vocation de la femme : enfanter et se taire. Obéissance et maternité — voilà ta carrière. Et tu recevras ta récompense au Ciel. Notre dernier Concile a décrété :
-« L’éducation féminine venant du malin. »
+« L’éducation féminine vient du malin. »
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1903,7 +1903,7 @@ Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — t
 
 **Premier Professeur** :
 
-— Et pourquoi ne pas essayer l’électrochoc ? C’est merveilleux pour les troubles spécifiques. Le Ministère de la Santé a déjà donné son feu vert.
+— Et pourquoi ne pas essayer l’électrochoc ? C’est merveilleux pour les troubles spécifiques. Le Ministère de la Santé y a déjà donné son feu vert.
 
 **Deuxième Professeur** (solennellement) :
 
@@ -2161,42 +2161,58 @@ Nous allons ressusciter notre grande puissance et notre grande « deuxième arm�
 
 **1. UNBROKEN (Незламні)**
 Prothèses, rééducation et soutien psychologique aux militaires et aux civils blessés par la guerre.
+
 Site : https://unbroken.org.ua
+
 Dons : https://unbroken.org.ua/donate
 
 **2. SavED**
 Restauration des écoles et jardins d’enfants dans les territoires libérés.
+
 Site : https://saved.foundation
+
 Dons : https://saved.foundation/?payment=general
 
 **3. UNITED24** (Plateforme officielle du président de l’Ukraine)
 Déminage, aide médicale, reconstruction de logements, écoles, hôpitaux.
+
 Site : https://u24.gov.ua
+
 Dons : https://u24.gov.ua/donate
 
 **4. Razom for Ukraine** 
 Soins médicaux, réhabilitation et prothèses pour les blessés, aide aux déplacés et réfugiés.
+
 Site : https://www.razomforukraine.org/
+
 Dons : https://www.razomforukraine.org/donate-to-ukraine/
 
 **5. Reviens vivant**
 Équipement de haute technologie pour les Forces armées ukrainiennes : drones, véhicules, systèmes de surveillance et moyens de communication. Formation du personnel militaire ukrainien.
+
 Site : https://savelife.in.ua/
+
 Dons : https://savelife.in.ua/en/donate-en/#donate-army-card-once
 
 **6. Fond pour la reconstruction de l'Ukraine** 
 Reconstruction à long terme des infrastructures détruites : logements, hôpitaux, écoles, énergie.
+
 Site : https://ukrainereconstructionfund.org/
+
 Dons : https://ukrainereconstructionfund.org/donate-now/
 
 **7. Retour à la vie**
 Aide humanitaire étendue aux victimes : personnes déplacées internes, enfants, familles des disparus.
+
 Site : https://returntolife.org.ua/
+
 Dons : https://returntolife.org.ua/donate/
 
 **8. Fondation Serhiy Prytula**
 Aide dans de multiples domaines : du matériel tactique et des véhicules pour les Forces armées ukrainiennes à l'aide humanitaire à grande échelle pour les civils.
+
 Site : https://prytulafoundation.org/
+
 Dons : https://prytulafoundation.org/
 
 ### CONCLUSION
