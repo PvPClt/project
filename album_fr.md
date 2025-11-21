@@ -400,7 +400,7 @@ L'accusé est acquitté.
 
 > **Commentaire culturologique**
 La miniature est basée sur le mythe égyptien ancien du Jugement d'Osiris. Selon le « Livre des Morts », l'âme du défunt était amenée dans la Salle des Deux Vérités, où elle devait affronter :
-> 
+
 — Osiris — dieu des enfers, juge président.
 
 — Maât — déesse de la vérité et de la justice, étalon de pureté.
@@ -411,7 +411,7 @@ La miniature est basée sur le mythe égyptien ancien du Jugement d'Osiris. Selo
 
 — 42 dieux-jurés — chacun responsable d'un péché spécifique ; le défunt devait jurer devant chaque dieu qu'il n'avait pas commis ce péché.
 
-La procédure principale — la pesée du cœur : le cœur du défunt était placé sur un plateau, et la plume de Maât sur l'autre. Si le cœur était « plus léger que la plume », l'âme était jugée pure et recevait la vie éternelle ; s'il était plus lourd, elle était annihilée.
+> La procédure principale — la pesée du cœur : le cœur du défunt était placé sur un plateau, et la plume de Maât sur l'autre. Si le cœur était « plus léger que la plume », l'âme était jugée pure et recevait la vie éternelle ; s'il était plus lourd, elle était annihilée.
 Ce rituel symbolisait la justice absolue et l'impossibilité de tromperie.
 
 #PoutinismeMilitaireOrthodoxe
@@ -597,7 +597,7 @@ Marioupol, ville ukrainienne détruite. Devant un immeuble tout juste reconstrui
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 5. L’EFFET SPÉCIAL DE TUNGUSKA : ON PEUT RECOMMENCER !
+## 5. L’EFFET SPÉCIAL DE TUNGUSKA : ON PEUT LE RECOMMENCER !
 
 ![](Images/Fr_Album_05.jpg)
 
@@ -609,7 +609,7 @@ Dans le studio du célèbre propagandiste russe Vladimir Solovyov. Il discute av
 
 **Simonyan** :
 
-— Alors il faut leur faire peur. Voilà ce qu’on va faire : on fait exploser une bombe atomique au-dessus de la Sibérie ! Qu’ils voient bien qu’ici, on est tous cinglés.
+— Alors il faut leur faire peur. Voilà ce qu’on va faire : un essai nucléaire spectaculaire en direct à la télé ! On fait exploser quelques bombes à neutrons sympas, de puissance moyenne. Juste deux jolis champignons jumeaux au-dessus de la Toungouska. On fera des économies sur les feux d'artifice pour le 9 Mai. Qu’ils voient bien qu'ici, on est tous cinglés !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -703,7 +703,7 @@ Front russo-ukrainien. Une tranchée QG. Dialogue entre un commandant et un serg
 
 — Camarade major ! La compagnie subit des pertes : sept blessés hurlent dans le no man’s land. On les évacue ?
 
-**Commandant** (sans se détacher du registre) :
+**Commandant** (sans lever les yeux de son registre) :
 
 — Pourquoi ? Qu’ils soient portés «en réserve». Nous toucherons la solde pour eux. L’essentiel, c’est que l’effectif sur le papier corresponde.
 
@@ -744,11 +744,11 @@ Salle des séances de la Douma russe. Débat budgétaire.
 
 **Deuxième député** :
 
-— Notre objectif est la démilitarisation de l’Ukraine ! Il faut faire des sacrifices !
+— Notre objectif est la démilitarisation de l’Ukraine ! Il faut faire des sacrifices ! Les poudrières, ça se nourrit pas de yaourts, vous savez.
 
 **Premier député** :
 
-— Mais en réalité, c’est la militarisation de la Russie !
+— Mais en réalité, c’est la militarisation de la Russie ! On va tous finir en treillis !
 
 **Viatcheslav Volodine** :
 
@@ -844,15 +844,15 @@ Briefing du ministère russe de la Défense.
 
 **Journaliste** :
 
-— Hier, un missile russe a frappé un immeuble à Dnipro. Une famille ukrainienne a été tuée. Comment commentez-vous cela ?
+— Hier, un missile russe a frappé un immeuble à Dnipro. Une famille ukrainienne a été tuée. Comment commentez-vous cet acte précis ?
 
 **Général Konachenkov** :
 
-— Je le dis clairement, en vrai patriote de la Russie : l’armée russe ne bombarde jamais de cibles civiles. Selon nos renseignements, c’était un atelier clandestin de confection d’uniformes militaires.
+— Je répète, en vrai patriote de la Russie : l’armée russe n’a jamais bombardé et ne bombardera jamais de cibles civiles. Notre enquête a révélé qu'il s'agissait d'un atelier clandestin de confection d'uniformes militaires.
 
 **Journaliste** :
 
-— Des enfants sont morts...
+— Des enfants figurent parmi les victimes…
 
 **Général Konachenkov** :
 
@@ -865,16 +865,15 @@ Briefing du ministère russe de la Défense.
 
 ![](Images/Fr_Album_17.jpg)
 
-Confessionnal dans une église russe. Derrière le paravent — un prêtre. Une jeune fille se confesse en sanglotant.
+Un confessionnal dans une église russe. Derrière le paravent, un prêtre. Une jeune fille se confesse en sanglotant.
 
 **Fille** :
 
-— Mon père, je suis enceinte ! Je ne peux pas ! Que dois-je faire ? Je suis en troisième année d’université… Je dois finir mes études… Qui élèvera l’enfant ?
+— Mon père, j’ai un gros souci, je suis enceinte ! Je ne sais plus quoi faire ! Je suis en troisième année d’université… Je veux finir mes études… Qui élèvera l’enfant ?
 
 **Prêtre** :
 
-— Une femme n’a pas besoin d’éducation. Ainsi enseigne l’Église, ainsi disent les saints Pères. La vocation de la femme : enfanter et se taire. Obéissance et maternité — voilà ta carrière. Et tu recevras ta récompense au Ciel. Notre dernier Concile a décrété :
-« L’éducation féminine vient du malin. »
+— Une femme n’a que faire de l’éducation. Ainsi l’enseigne l’Église, ainsi le disent les saints Pères. La vocation de la femme : enfanter et se taire. Obéissance et maternité — voilà ton avenir. Et tu en auras la récompense au Ciel. Notre dernier Concile a statué : « L’éducation des femmes est une tentation du Malin ».
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1353,11 +1352,11 @@ Front ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser
 
 ![](Images/Fr_Album_39.jpg)
 
-Front ukrainien. Arrière russe. Un prêtre propose aux soldats un talisman en forme de croix « présidentielle »  en pendentif.
+Front ukrainien. Arrière russe. Un prêtre propose aux soldats un crucifix  bénit  "présidentielle".
 
 **Prêtre** :
 
-— Soldats ! Notre Président, protégé par Dieu, a ordonné que vous receviez des croix en pendentif portant ses initiales. C’est la meilleure protection contre les balles ennemies.
+— Soldats ! Notre Président, protégé par Dieu, a ordonné que vous receviez des crucifix bénits portant ses initiales. C’est la meilleure protection contre les balles ennemies.
 
 **Soldat** :
 
@@ -1380,9 +1379,12 @@ Front ukrainien. Arrière russe. Rituel de bénédiction des obus.
 
 — Pour qu’ils touchent la cible, mon fils !
 
-**Deuxième soldat** :
+**Deuxième soldat (sombrement)** :
 
 — Ah… voilà pourquoi on les rate tout le temps.
+
+**Premier soldat (avec enthousiasme) :**
+— Enfin ! Maintenant, nos canons vont tirer comme il faut !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1399,7 +1401,7 @@ Un prêtre prêche devant une église russe.
 
 **Femme dans la foule** :
 
-— T'es en train de rêver ! Vos indemnités funéraires suffisent à peine pour une Lada blanche. Moi, je veux une Volvo rouge ! Avec minibar !
+— Arrête ton délire ! Vos indemnités funéraires suffisent à peine pour une Lada blanche. Moi, je veux une Volvo rouge ! Avec minibar !
 
 #PoutinismeMilitaireOrthodoxe
                                👻
@@ -1915,8 +1917,7 @@ Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — t
 
 **Deuxième Professeur** (solennellement) :
 
-— Le Ministère de la Santé met en garde… Si vous faites les malins, vous prenez trois mille volts dans le cul.
-
+— Le Ministère de la Santé met en garde… Si vous faites le  malin, vous prendrez trois mille volts dans le cul.
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
@@ -2052,7 +2053,7 @@ Le bureau de Poutine au Kremlin. Assis à la table : Poutine et Mikhail Kovalchu
 
 – Pour ça, je ne sais pas. Quel sera le régime politique en Russie à ce moment-là, impossible de le prévoir.
 
-**Poutine** (appuyant) :
+**Poutine** (avec conviction) :
 
 – Voilà tout le problème. Il me faut une autre immortalité. Je veux que ce corps, mon corps actuel, me serve éternellement. Est-ce vraiment si compliqué à faire ?! Le cœur est usé – transplantation. Foie, reins – transplantation...  C'est simple comme bonjour !
 
