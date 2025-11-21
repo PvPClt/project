@@ -401,11 +401,15 @@ L'accusé est acquitté.
 > **Commentaire culturologique**
 La miniature est basée sur le mythe égyptien ancien du Jugement d'Osiris. Selon le « Livre des Morts », l'âme du défunt était amenée dans la Salle des Deux Vérités, où elle devait affronter :
 > 
-—Osiris — dieu des enfers, juge président.
-—Maât — déesse de la vérité et de la justice, étalon de pureté.
-—Anubis — dieu à tête de chacal qui procédait à la pesée du cœur.
-—Thot — dieu de la sagesse, scribe du tribunal.
-—42 dieux-jurés — chacun responsable d'un péché spécifique ; le défunt devait jurer devant chaque dieu qu'il n'avait pas commis ce péché.
+— Osiris — dieu des enfers, juge président.
+
+— Maât — déesse de la vérité et de la justice, étalon de pureté.
+
+— Anubis — dieu à tête de chacal qui procédait à la pesée du cœur.
+
+— Thot — dieu de la sagesse, scribe du tribunal.
+
+— 42 dieux-jurés — chacun responsable d'un péché spécifique ; le défunt devait jurer devant chaque dieu qu'il n'avait pas commis ce péché.
 
 La procédure principale — la pesée du cœur : le cœur du défunt était placé sur un plateau, et la plume de Maât sur l'autre. Si le cœur était « plus léger que la plume », l'âme était jugée pure et recevait la vie éternelle ; s'il était plus lourd, elle était annihilée.
 Ce rituel symbolisait la justice absolue et l'impossibilité de tromperie.
