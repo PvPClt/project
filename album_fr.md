@@ -144,7 +144,8 @@ Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans. Ça, c'éta
 
 **Poutine** (réfléchit à voix haute) :
 
-— Un désir des plus légitimes. Je me disais aussi… pourquoi pas moi ? L’année prochaine, par exemple.
+— Un désir des plus légitimes. Je pense aussi… Pourquoi pas moi ?
+Pourquoi ne prendrais-je pas le Nobel ? L’année prochaine, par exemple.
 
 **Trump** (les yeux exorbités de surprise) :
 
@@ -162,7 +163,7 @@ Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans. Ça, c'éta
 
 **Trump** (prudemment) :
 
-— Vova, et si… je prenais le Nobel d’abord, et après tu fais ce que tu veux de cette Europe lâche. D’accord ?
+— Vova, et si… je prenais le Nobel d’abord... Et après tu peux faire ce que tu veux de cette Europe lâche. D’accord ?
 
 **Poutine** (geste las de la main) :
 
@@ -379,7 +380,7 @@ L'accusé est acquitté.
 
 **Thot** (lisant la tablette d'argile) :
 
-— Approuvé à l'unanimité ! La mort est révoquée, la vie éternelle est accordée ! Le nom de Vladimir Poutine sera inscrit sur la page de titre du Livre des Morts en encre dorée !
+— Approuvé à l'unanimité ! La Mort est révoquée sur-le-champ, la Vie éternelle est accordée à compter de ce jour !  Le nom de Vladimir Poutine sera inscrit sur la page de titre du Livre des Morts en encre dorée !
 
 **Poutine** (acquiesçant) :
 
@@ -389,7 +390,7 @@ L'accusé est acquitté.
 
 **Maât** (au désespoir, laissant tomber ses plumes sur le sol) :
 
-— Impensable ! Incroyable ! Je fais appel devant le Tribunal Intergalactique Martien !
+— Impensable ! Incroyable ! Je vais faire appel devant le Tribunal Intergalactique Martien !
 
 (Elle est entraînée par des serviteurs à tête d'ours. La retransmission s'interrompt. L'écran montre des Cosaques qui dansent.)
 
@@ -422,23 +423,23 @@ Les composants actifs franchissent efficacement la barrière hémato‑encéphal
 
 **Gamme de produits** :
 
-• RT-Fake-Hallucinate, comprimés de 500 mg à libération prolongée. Ne pas mâcher !
+• RT-Fake-Hallucinate, comprimés de 100-500 mg à libération prolongée. Ne pas mâcher !
 
 • Mixture-info-surrogate “Le Kremlin”, formule normalisée.
 
 • Baume “Simulacres du christianisme”, parfum de haine, usage externe. Conditionnellement toxique.
 
-• Sputnik-Data-Moulage, comprimés de 1000 mg
+• Sputnik-Data-Moulage, comprimés de 100-500 mg
 
 • Teinture alcoolique “Valeurs traditionnelles”, multi‑composants. Suspension trouble à l’arôme cadavérique. Teneur : 40 %.
 
 • RuMedia-Fact-Twister, poudre pour suspension. Hallucinogène, goût d’agression.
 
-• Kremlin-Histoires-ersatz, kit d’injections intramusculaires, 2000 mg. Versions 1.0 à 10.0.
+• Kremlin-Histoires-ersatz, kit d’injections intramusculaires, 100-500 mg. Versions 1.0 à 10.0.
 
-• "Télévision-Grande-Illusion", suppositoires ultra-doux avec effet de démangeaison récto‑informationnelle. 200 mg.
+• "Télévision-Grande-Illusion", suppositoires ultra-doux avec effet de démangeaison récto‑informationnelle. 100-500  mg.
 
-• Bifilac-Info, 350 mg. Préparation enzymatique (bifido‑lacto‑info‑bactéries) pour digérer efficacement la désinformation, prévenir les indigestions et la constipation.
+• Bifilac-Info, 100-500  mg. Préparation enzymatique (bifido‑lacto‑info‑bactéries) pour digérer efficacement la désinformation, prévenir les indigestions et la constipation.
 
 **Action pharmacologique** :
 
@@ -474,9 +475,12 @@ Chauvinisme impérial, nationalisme d’extrême droite, patriotisme tapageur, f
 
 "Valeurs traditionnelles" (triées), “liens spirituels” (renforcés), « la vie est devenue meilleure et plus joyeuse », « cendres radioactives », « nous vaincrons ».
 
-**Posologie quotidienne recommandée** :
+**Mode d'emploi et posologie :**
 
-Avant le journal du soir, les émissions de V. Solovyov et M. Simonyan, l’émission finale de D. Kiselyov «Les nouvelles de la semaine », la « ligne directe » de Poutine, les briefings de D. Peskov et du ministère de la Défense.
+La dose quotidienne est calculée selon la formule :
+QI * 10 (mg). La dose quotidienne maximale est de 1300 mg.
+
+À prendre avant le journal du soir, les émissions de V. Solovyov et M. Simonyan, l’émission finale de D. Kiselyov «Les nouvelles de la semaine », la « ligne directe » de Poutine, les briefings de D. Peskov et du ministère de la Défense.
 
  **À utiliser avec précaution** :
  
@@ -499,7 +503,7 @@ Pour éviter les effets secondaires, augmenter la dose progressivement ! Ne pas 
 
 Préparation de la suspension :
 prendre ½ verre d’une source trouble, ajouter 1 cuillère à café de poudre et mélanger.
-Agitation soigneuse nécessaire !
+Agitation soigneuse nécessaire (tant du liquide que de l'esprit) !
 La biodisponibilité maximale est atteinte dans un état de stupeur contrôlée.
 
 Ne sont pas des nootropiques –
