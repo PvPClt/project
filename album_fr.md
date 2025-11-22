@@ -744,7 +744,7 @@ Salle des séances de la Douma russe. Débat budgétaire.
 
 **Deuxième député** :
 
-— Notre objectif est la démilitarisation de l’Ukraine ! Il faut faire des sacrifices ! Les poudrières, ça se nourrit pas de yaourts, vous savez.
+— Notre objectif est la démilitarisation de l’Ukraine ! Il faut faire des sacrifices ! Les canons ne se fabriquent pas avec une imprimante 3D, vous savez.
 
 **Premier député** :
 
