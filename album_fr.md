@@ -1178,6 +1178,7 @@ Et, je l’espère, offrira une solution dans une impasse.
 ![](Images/Fr_Album_32.jpg)
 
 **POUTINACÉE®**
+
 Médicament à large spectre d’action combinée.
 Actif contre tous les micro-organismes de l’opposition...
 
@@ -1222,13 +1223,13 @@ Inhibe toute pensée critique, empathie ou culpabilité.
 
 • Besoin de réponses à des questions rhétoriques
 
-**Effets secondaires** :
+**Effet thérapeutique prouvé** :
 
 • Foi chronique dans la télévision
 
 • Allergie à la vérité
 
-• Crises de patriotisme à la vue du journal télévisé
+• Extase patriotique agressive
 
 **Surdosage** :
 
