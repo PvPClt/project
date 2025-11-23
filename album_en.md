@@ -174,60 +174,105 @@ President Putin and President Trump are sitting at a table, drinking beer...
 ![](Images/En_Album_002.jpg)
 
 Beneath a tree, so firm and fit,
+
 Sits kindly Doctor Aibolit.
+
 To clerk and cadet, he calls, "Come near,
+
 I'll mend your wounds and banish fear,"
+
 Says kindly Doctor Aibolit.
 
+
 Then Musa comes, a limping sight,
+
 "A wasp has stung me in a fight!"
+
 Then Portos groans, "I'll tell you what,
+
 A drone has blown my nose right off!"
 
+
 A girl runs up, her cries are wild,
+
 "My Vasya, oh my precious child!
+
 He trod a path of mine-laid death,
+
 And blew his legs from underneath!
+
 My poor, lame son, in throbbing pain,
+
 He writhes and whimpers once again!"
 
+
 But Aibolit says, "Have no dread,
+
 Just bring your boy up to my bed!
+
 I'll stitch new legs, strong and complete,
+
 For marching down that mined-up street!"
 
+
 So in they carried Vasya, pale,
+
 A broken form, a tragic tale.
+
 The doctor sewed with skill and art,
+
 New limbs to play a deadly part.
+
 His girl now dances, spins with glee,
+
 And shouts, "A miracle to see!
+
 Thank you, good Doctor, for your care!"
 
+
 But hark!—hoofbeats fill the air,
+
 From the east, a rider, Aksakal.
+
 "An urgent note!" he gives the call.
+
 "I cannot stay, I must be quick!"
+
 And then he leaves with cunning trick.
 
+
 "It calls you forth to Zhmerynka, go!
+
 Our brothers die, their time runs low!"
 
 "Are they wounded?" asks the saint.
+
 "Yes, and covered in filth and taint."
 
 "They burn with fever, drown in tears,
+
 Their bowels clogged with hopeless fears.
+
 If you won't come to make them whole,
+
 We'll dump them in a swampy hole!
+
+
 For Putin gave his firm command:
+
 On to the Caucasus, make your stand!"
+
 The sun, the sea, the peaks so grand,
+
 "Russian World" needs a saving hand!
 
+
 That "Russian World", now vast and eternal—
+
 Mud, swamps, and sands in a cycle infernal,
+
 Where the green men's bootprints, deep and profound,
+
 Are stomped into that consecrated ground.
 
 #OrthodoxMilitaryPutinism
@@ -723,7 +768,7 @@ The commander and his sergeant are talking.
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 11. 21ST-CENTURY PRISON HUMANISM IN ACTION
+## 11. PRISON HUMANISM À LA RUSSE 
 
 ![](Images/En_Album_11.jpg)
 
@@ -757,7 +802,7 @@ The hall of the Russian State Duma. A budget discussion is underway.
 
 **Second deputy:**
 
-— Our mission is the demilitarization of Ukraine! Sacrifices are necessary! You can't feed a powder keg with yogurt, you know.
+— Our mission is the demilitarization of Ukraine! Sacrifices are necessary! You can't print guns on a 3D printer, you know.
 
 **First deputy:**
 
@@ -818,7 +863,7 @@ Therefore, we adopt the Law on Preventive Confiscation:
 
 • Bank accounts — for unpatriotic fantasies.
 
-They have the arrogance to desire — we have the power to confiscate!
+**They have the arrogance to desire — we have the power to confiscate!**
 
 #OrthodoxMilitaryPutinism
                                 👻
@@ -1206,13 +1251,13 @@ NATO, combat mosquitoes, biolabs, Zelensky, fascists, foreign agents, LGBT, Chil
 
 • Persistent desire for answers to rhetorical questions
 
-**Side effects:**
+**Proven therapeutic effect:**
 
 • Chronic dependence on television broadcasts
 
 • Allergic reaction to truth
 
-• Acute relapses of patriotism upon exposure to televised news
+• Aggressive patriotic ecstasy
 
 **Overdose**:
 
