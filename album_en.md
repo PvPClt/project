@@ -283,17 +283,17 @@ Are stomped into that consecrated ground.
 ![](Images/En_Album_003.jpg)
 
 > A sacred ancient Egyptian temple. Inside, the well-known procedure of the Judgment of the Egyptian god Osiris, as described in the "Book of the Dead," is taking place. Also participating are:
-
+>
 • God Thoth (court secretary, with a clay tablet in his hands)
-
+>
 • God Anubis (forensic expert)
-
+>
 • Goddess Maat (prosecutor)
-
+>
 • 42 Egyptian God-jurors (wearing masks of Hitler, Mussolini, Lenin, Stalin, Beria, Brezhnev, Zhirinovsky, Dracula, the Devil, and other historical figures)
-
+>
 • Putin (the defendant)
-
+>
 > The hall is illuminated by flickering TV screens broadcasting the court proceedings. Putin stands by gigantic apothecary scales; on one scale pan lies a red paper heart with a gilded engraving: "Putin: 86%". The other pan is empty, yet the scales balance each other.
 
 **Osiris**:
@@ -457,20 +457,20 @@ The defendant is acquitted.
 — Thank you all, you are free to go. The session is closed.
 
 > **Culturological Commentary**
-
-The miniature is based on the ancient Egyptian myth of the Judgment of Osiris. According to the "Book of the Dead," the soul of the deceased was brought into the Hall of Two Truths, where it faced:
-
+>
+> The miniature is based on the ancient Egyptian myth of the Judgment of Osiris. According to the "Book of the Dead," the soul of the deceased was brought into the Hall of Two Truths, where it faced:
+>
 — Osiris — god of the underworld, presiding judge.
-
+>
 — Maat — goddess of truth and justice, the standard of purity.
-
+>
 — Anubis — jackal-headed god who conducted the weighing of the heart.
-
+>
 — Thoth — god of wisdom, court scribe.
-
+>
 — 42 God-jurors — each responsible for one specific sin; the deceased had to swear before each god that he had not committed that sin.
-
-The main procedure — the weighing of the heart: the heart of the deceased was placed on one scale pan, and the feather of Maat on the other. If the heart was "lighter than the feather," the soul was deemed pure and granted eternal life; if heavier, it faced annihilation. This ritual symbolized absolute justice and the impossibility of deception.
+>
+> The main procedure — the weighing of the heart: the heart of the deceased was placed on one scale pan, and the feather of Maat on the other. If the heart was "lighter than the feather," the soul was deemed pure and granted eternal life; if heavier, it faced annihilation. This ritual symbolized absolute justice and the impossibility of deception.
 
 #OrthodoxMilitaryPutinism
                               👻
