@@ -666,7 +666,7 @@ bbidyaga@protonmail.com |
 
 — Holy crap, woman! Me? Never. I've better things to do. And why should I die? I'm young and strong...
 
-**Russia** (slurring, in despare):
+**Russia** (slurring, in despair):
 
 — But didn’t Volodin say: “No Putin — no Russia”?
 
