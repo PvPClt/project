@@ -18,6 +18,7 @@ bbidyaga@protonmail.com |
 
 ### CHARACTERS: 
 > – Russia
+> 
 > – Putin, who calls himself the president of Russia
 >
 > Russia is kneeling, gazing pensively into the void. Enters Putin, dressed in military uniform, boots with spurs clanking. Sees Russia and snaps.
