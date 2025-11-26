@@ -231,11 +231,11 @@ Ont marqué la terre et brisé les clairières.
 
 > Un temple sacré de l'Égypte ancienne. À l'intérieur se déroule la procédure bien connue du Jugement du dieu égyptien Osiris, décrite dans le « Livre des Morts ». Y participent également :
 > - Le dieu Thot (secrétaire du tribunal, avec une tablette d'argile dans les mains)
-- Le dieu Anubis (expert en criminalistique)
-- La déesse Maât (accusateur)
-- 42 dieux-jurés égyptiens (portant des masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable et autres personnages historiques)
-- Poutine (l'accusé) 
-
+> - Le dieu Anubis (expert en criminalistique)
+> - La déesse Maât (accusateur)
+> - 42 dieux-jurés égyptiens (portant des masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable et autres personnages historiques)
+> - Poutine (l'accusé) 
+> 
 > La salle est éclairée par des écrans de télévision scintillants qui diffusent les procédures judiciaires. Poutine se tient près d'immenses balances de pharmacien ; sur un plateau se trouve un cœur rouge en papier avec une gravure dorée : « Poutine : 86 % ». L'autre plateau est vide, pourtant les plateaux s'équilibrent.
 
 **Osiris** :
@@ -399,18 +399,19 @@ L'accusé est acquitté.
 — Merci à tous, vous êtes libres. L'audience est levée.
 
 > **Commentaire culturologique**
-La miniature est basée sur le mythe égyptien ancien du Jugement d'Osiris. Selon le « Livre des Morts », l'âme du défunt était amenée dans la Salle des Deux Vérités, où elle devait affronter :
-
-— Osiris — dieu des enfers, juge président.
-
-— Maât — déesse de la vérité et de la justice, étalon de pureté.
-
-— Anubis — dieu à tête de chacal qui procédait à la pesée du cœur.
-
-— Thot — dieu de la sagesse, scribe du tribunal.
-
-— 42 dieux-jurés — chacun responsable d'un péché spécifique ; le défunt devait jurer devant chaque dieu qu'il n'avait pas commis ce péché.
-
+> 
+> La miniature est basée sur le mythe égyptien ancien du Jugement d'Osiris. Selon le « Livre des Morts », l'âme du défunt était amenée dans la Salle des Deux Vérités, où elle devait affronter :
+> 
+> — Osiris — dieu des enfers, juge président.
+>
+> — Maât — déesse de la vérité et de la justice, étalon de pureté.
+>
+> — Anubis — dieu à tête de chacal qui procédait à la pesée du cœur.
+> 
+> — Thot — dieu de la sagesse, scribe du tribunal.
+>
+> — 42 dieux-jurés — chacun responsable d'un péché spécifique ; le défunt devait jurer devant chaque dieu qu'il n'avait pas commis ce péché.
+>
 > La procédure principale — la pesée du cœur : le cœur du défunt était placé sur un plateau, et la plume de Maât sur l'autre. Si le cœur était « plus léger que la plume », l'âme était jugée pure et recevait la vie éternelle ; s'il était plus lourd, elle était annihilée.
 Ce rituel symbolisait la justice absolue et l'impossibilité de tromperie.
 
