@@ -132,9 +132,9 @@ President Putin and President Trump are sitting at a table, drinking beer...
 
 — Whoa, Vova, that's not my war! That's all on Biden. And you know I'm your friend. You know that.
 
-**Putin** (slow, knowing smile):
+**Putin** (in a mocking tone):
 
-—  Yes, yes. I know. I see you twisting in the wind, playing both sides.
+— I know. I see you twisting in the wind, playing both sides.
 
 **Trump** (defensively):
 
@@ -154,9 +154,9 @@ President Putin and President Trump are sitting at a table, drinking beer...
 
 (A heavy pause hangs in the air)
 
-**Putin** (with a dark, ironic smile):
+**Putin** (with an ironic smile):
 
-— You know, a Nobel would look even better on my chest than on yours. Just think of the headline: "War Criminal Putin, Nobel Laureate." That is the ultimate power move. It's even cooler than my army at the gates of Paris! That's how you bend this cowardly Europe over and fuck it good and proper!
+— You know, a Nobel would look even better on my chest than on yours. Just think of the headline: "War Criminal Putin, Nobel Laureate." That is the ultimate  proof of my power over the world. It's even cooler than my army at the gates of Paris! That's how you bend this cowardly Europe over and fuck it good and proper!
 
 **Trump** (nervously):
 
@@ -329,12 +329,12 @@ Are stomped into that consecrated ground.
 — Gladly, Your Honor.
 I was born an ordinary Petersburg kid — an average C student. And through my own persistent labor, reaping the rewards in the field of state service, I climbed to the pinnacle of power — became president of a great country. I pursued the most humane and just policies. In my decrees, I promised every citizen a separate apartment, free healthcare and education, high wages, and zero inflation. I established lasting peace in the warlike Chechen Republic. I became the world's most generous donor. I built 20 oil and gas pipelines. My gas lights and heats the entire planet. I aid national liberation movements worldwide — supplying them with weapons at discounted prices. I distribute billion-dollar loans to poor countries and annul their debts a couple of years later. I give China my natural resources for a pittance. Thanks to my policies, the NATO bloc has significantly expanded its borders. I liberated the fraternal Ukrainian people from the tyranny of Zelenskyy's fascist regime. I stopped the bloody slaughter in Ukraine.
 
-(An ad pops up on the screen: "Gas for every tomb!")
+(An ad pops up on the screen: "Gas for every tomb! Let life never end!")
 
 **Putin** (looks at the screen for a second, then continues with his statement):
 
 — I launched the first man into space. My court composer wrote the immortal masterpiece "Swan Lake" [performs a few ballet steps to Tchaikovsky's music]. Finally, I rid the world of Hitler and his fascist dictatorship.
-I toiled like a galley slave in the post of President for 50 years! I served a life sentence!
+I toiled like a slave on a galley in the post of President for 50 years! I served a life sentence!
 I lifted my country from its knees. I sold the factories to the workers and the land to the peasants. I created the world's number one army.
 I extended a helping hand and protected Russian-speaking compatriots abroad from arbitrary treatment: in the Baltics, Central Asia, and the Caucasus. We safeguard the rights and freedoms of Russian diasporas across the entire former USSR.
 Life expectancy in the country increased dramatically: I lived to be 98 years old.
@@ -438,7 +438,7 @@ The defendant is acquitted.
 
 **Thoth** (reading from the clay tablet):
 
-— Approved unanimously! Death is revoked, eternal life is granted! The name "Vladimir Putin" shall be inscribed on the title page of the Book of the Dead in golden ink!
+— Approved unanimously! Death is revoked, eternal life is granted! The name "Vladimir Putin" shall be inscribed on the title page of the "Book of the Dead" in golden ink!
 
 **Putin** (nodding):
 
@@ -493,7 +493,7 @@ Active components effectively penetrate the blood–brain barrier (of critical t
 
 • "Traditional Values" Alcohol Tincture, multi-component. Murky suspension with a cadaverous aroma. 40% ABV.
 
-• RuMedia-FacTwister, powder for oral suspension. Hallucinogenic, with a bitter aftertaste of aggression.
+• RuMedia-FacTwister, powder for oral suspension. Hallucinogenic, with a taste of aggression.
 
 • Kremlin-Ersatz-History, intramuscular injection kit, 100-500 mg. Versions 1.0–10.0 available.
 
@@ -504,13 +504,13 @@ to support the digestion of fake news, preventing indigestion and constipation.
 
  **Pharmacological action:**
  
-✓ Loyalty Stimulants – activate centers of submission and herd instinct.
+✓ Loyalty Stimulants: activate centers of submission and herd instinct.
 
-✓ Hatred Agonists – stimulate the amygdala (center of fear and aggression). Boost norepinephrine to redirect anger toward external enemies, constructively relieving internal social tension.
+✓ Hatred Agonists: stimulate the amygdala (center of fear and aggression). Boost norepinephrine to redirect anger toward external enemies, constructively relieving internal social tension.
 
-✓ Analysis Inhibitors – suppress prefrontal cortex activity, responsible for critical thinking and logic.
+✓ Analysis Inhibitors: suppress prefrontal cortex activity, responsible for critical thinking and logic.
 
-✓ Empathy Blockers – suppress the insula and anterior cingulate cortex, associated with compassion and empathy.
+✓ Empathy Blockers: deactivate the insular lobe and anterior cingulate cortex, suppressing all forms of empathy and compassion.
 
 Not classified as medicinal products.
 
@@ -538,7 +538,7 @@ Great-power chauvinism, ultra-right nationalism, flag-waving patriotism, ordinar
 
 **Administration and Dosage:**
 
-The daily dose is calculated using the formula:
+The daily dose is calculated according to the formula:
 IQ * 10 (mg). The maximum daily dose is 1300 mg.
 
 Take before evening news broadcasts, V. Solovyov’s and M. Simonyan’s prime-time shows, D. Kiselyov’s “News of the Week”, Putin’s live Q&As, D. Peskov’s and the Ministry of Defense briefings.
@@ -563,8 +563,7 @@ To minimize side effects, increase dosage gradually. Do not exceed recommended a
 
 **Special instructions:**
 
-Suspension recipe
-Take 1/2 glass from any murky source, add 1 tsp of powder, stir.
+Suspension recipe. Take 1/2 glass from any murky source, add 1 tsp of powder, stir.
 IMPORTANT: Thorough agitation of all kinds — required.
 Maximum bioavailability achieved in a state of controlled stupor.
 
@@ -854,8 +853,7 @@ A session of the Russian State Duma. Speaker Vyacheslav Volodin delivers a fiery
 
 • the Melitopol cherries (our sacred strategic fruit!).
 
-We shall repel the scoundrels!
-Therefore, we adopt the Law on Preventive Confiscation:
+We will fight these scoundrels. We are passing a law on preventive confiscation:
 
 • Apartments — for seditious appeals,
 
@@ -886,7 +884,7 @@ Putin dreams, as though he and Defense Minister Sergei Shoigu were fishing on th
 
 **Putin:**
 
-— Vladimir Rostislavovich? Urgently include the Perch in the new history textbook! Yes, that very one… As a symbol… of Russia's… great-power destiny. And make sure it has an illustration!
+— Vladimir Rostislavovich? Urgently include the Perch in the new history textbook! Yes, that very one… As a symbol… of Russia's greatness. And make sure it has an illustration!
 
 *V.R. Medinsky is a "history maker" on the Kremlin's order, including for school education.*
 
@@ -897,7 +895,7 @@ Putin dreams, as though he and Defense Minister Sergei Shoigu were fishing on th
 
 ![](Images/En_Album_16.jpg)
 
- Russian Ministry of Defense briefing.
+Briefing at the Russian Ministry of Defense. 
 
 **Journalist:**
 
@@ -909,7 +907,7 @@ Putin dreams, as though he and Defense Minister Sergei Shoigu were fishing on th
 
 **Journalist:**
 
-— Children died...
+— Children were among the victims...
 
 **General Konashenkov:**
 
@@ -1092,7 +1090,7 @@ Dialogue in a typical Moscow apartment: landlady, neighbor, policeman.
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 25. C-300 FILLING — MILITARY GRADE
+## 25. S-300 FILLING — INDUSTRIAL STRENGTH 
 
 ![](Images/En_Album_25.jpg)
 
@@ -1101,7 +1099,7 @@ In the hall, a dentist is talking with a patient.
 
 **Dentist:**
 
-— Did you bring the filling material? We don’t have any. It’s run out. Sanctions. You know. Right now we only have C-300 rocket filling. One month guarantee — unless it detonates earlier.
+— Did you bring the filling material? We don’t have any. It’s run out. Sanctions. You know. Right now we only have S-300 construction cement. One month guarantee — unless you die right away. 
 
 **Patient:**
 
@@ -1180,7 +1178,7 @@ A press conference with Vladimir Putin.
 **Putin:**
 
 — Zelensky is illegitimate. If he gets killed, it’s no big loss.
-He’s just chasing cheap popularity.
+Besides, he’s just chasing cheap popularity.
 I don’t need that. My ratings are already high.
 
 #OrthodoxMilitaryPutinism
@@ -1197,7 +1195,9 @@ A conscript must bring:
 
 • military uniform, helmet, boots,
 
-• poncho-tent, sleeping bag, mat, backpack, • night-vision device (“Owl”), binoculars, entrenching shovel,
+• poncho-tent, sleeping bag, mat, backpack, 
+
+• night-vision device (“Owl”), binoculars, entrenching shovel,
 
 • raincoat, warm clothes, first-aid kit, toiletries,
 
@@ -1210,7 +1210,7 @@ A conscript must bring:
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 31. INSURANCE AGAINST DISLOYALTY: CIVIL SERVICE WITH A SELF-DESTRUCT CLAUSE
+## 31. INSURANCE AGAINST DISLOYALTY: CIVIL SERVICE WITH A SELF-DESTRUCTION CLAUSE
 
 ![](Images/En_Album_31.jpg)
 
@@ -1220,7 +1220,8 @@ St. George’s Hall, Grand Kremlin Palace, Moscow. Vladimir Putin presents an aw
 
 — Allow me to present you with this personalized pistol, in recognition of your service to the Motherland.
 It will encourage you in difficult moments. It won’t let you falter.
-And, I trust, it will provide a solution in any hopeless situation.
+And, I am sure, it will be your salvation in any hopeless situation.
+
 
 **Official:**
 
@@ -1229,11 +1230,11 @@ And, I trust, it will provide a solution in any hopeless situation.
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 32. PUTINACEA®: Universal Remedy for All Troubles — FEAR
+## 32. PUTINACEA FOR ALL TROUBLES: FEAR
 
 **PUTINACEA®**
 
-A combined broad-spectrum drug. Active against all opposition microorganisms.
+A combined broad-spectrum drug. Active against all oppositional microorganisms.
 
 **Pharmacological action**:
 
@@ -1241,7 +1242,27 @@ Induces persistent fear, periodic fits of aggression, and bursts of patriotic en
 
 **Active ingredients include**:
 
-NATO, combat mosquitoes, biolabs, Zelensky, fascists, foreign agents, LGBT, Childfree, Yankees, Biden, “Gayrope” (derogatory slang for Europe), Navalny, and mythical “crucified boys in underwear.”
+• NATO
+
+• Combat mosquitoes
+
+• Biolabs
+
+• Zelensky
+
+• Fascists
+
+• Foreign agents
+
+• LGBT
+
+• Childfree
+
+• Yankees
+
+• Biden
+
+•“Gayrope” (derogatory slang for Europe), Navalny, and mythical “crucified boys in underwear.”
 
 **Indications:**
 
@@ -1292,7 +1313,7 @@ Session of the International Commission on the destruction of the Kakhovka Hydro
 ![](Images/En_Album_34.jpg)
 
 Russian military airfield.
-Dialogue between a Russian pilot and a Ukrainian journalist.
+Dialogue between a Russian pilot and an Ukrainian journalist.
 
 **Ukrainian:**
 
@@ -1311,11 +1332,11 @@ Dialogue between a Russian pilot and a Ukrainian journalist.
 
 UN Security Council meeting. Commotion in the chamber.
 
-**Ukrainian delegate** (addressing Russia):
+**Ukrainian representative** (addressing Russia):
 
 — Aggressor!
 
-**Russian delegate**:
+**Russian representative**:
 
 — Lies and slander! Do not insult the Russian Federation! It was NATO’s combat mosquitoes, trained in secret Ukrainian biolabs, that swarmed across our sovereign borders in a treacherous act of aggression! We launched only a righteous, heroic special disinsection operation!
 
@@ -1381,11 +1402,11 @@ Ukrainian front. Russian positions. A priest urges soldiers to baptize themselve
 
 ![](Images/En_Album_39.jpg)
 
-Ukrainian front. Russian rear camp. A priest offers soldiers “presidential” crosses as amulets.
+Ukrainian front. Russian rear camp. A priest offers soldiers “presidential” crosses as talismans.
 
 **Priest:**
 
-— Soldiers! Our God-protected President orders you to wear these crosses with his initials. They’ll shield you from enemy bullets.
+— Soldiers! Our president, protected by God's grace, orders you to wear these crosses bearing his initials. They will protect you from enemy bullets.
 
 **Soldier:**
 
@@ -1398,7 +1419,7 @@ Ukrainian front. Russian rear camp. A priest offers soldiers “presidential” 
 
 ![](Images/En_Album_40.jpg)
 
-Ukrainian front. In the Russian rear, a priest performs a ritual, blessing the ammunition.
+The Ukrainian front. Russian rear positions. A ritual of blessing ammunition.
 
 **First soldier:**
 
@@ -1444,15 +1465,15 @@ At the entrance of a Russian church, a  priest delivers a sermon.
 
 **Woman from the hall** (pointing at an official’s portrait):
 
-— This man killed my husband. Now he teaches children about courage — and he’s the mayor of our city. Why?
+— This man killed my husband. Now he teaches children courage — and he’s the mayor of our city. Why?
 
 **Putin:**
 
-— He redeemed himself at the front. He paid for his past with blood. He is a hero — part of our new elite.
+— He redeemed himself at the front. He paid for his past with blood. He is a hero — our new elite.
 
 **First viewer, hiding his face**:
 
-— Kill a hundred Ukrainians — forgiven...
+— Have killed a hundred Ukrainians — forgiven...
 
 **Second viewer, hiding his face**:
 
@@ -1465,7 +1486,7 @@ At the entrance of a Russian church, a  priest delivers a sermon.
 
 ![](Images/En_Album_43.jpg)
 
-Before the blazing oil depot, two Russian priests speak with the Patriarch.
+Against the backdrop of a burning oil depot, two Russian priests talk to the Patriarch.
 
 **Patriarch:**
 
@@ -1481,7 +1502,7 @@ Before the blazing oil depot, two Russian priests speak with the Patriarch.
 
 **Patriarch:**
 
-— Does it truly work? Hm... Very well. We’ll veil this pagan heresy with a fig leaf: the icon stays — but from now on it’s St. Nicholas the Firefighter.
+— Does it really work? Hmm... Very good. We'll hide this pagan heresy under a fig leaf: the icon will remain, but from now on it will be called Saint Nicholas the Firefighter.
 
 #OrthodoxMilitaryPutinism
                                 👻
@@ -1494,7 +1515,7 @@ Live your life so that you bring no shame to the Motherland:
 
 • Plant a tree
 
-• Kill a “khokhol" (a slur for Ukrainian)
+• Kill a “khokhol" (a slur for an Ukrainian)
 
 • File a denunciation
 
@@ -1510,7 +1531,7 @@ Live your life so that you bring no shame to the Motherland:
 1. Love your Putin with all your heart, with all your mind, with all your soul.
 2. Love your neighbor: your boss, your deputy, your tax inspector.
 3. Thou shalt not kill — a statesman, a law enforcement officer.
-4. Thou shalt not commit adultery with a condom.
+4. Thou shalt not commit adultery in a condom.
 5. Do not bear false witness for personal gain — only for the good of the Motherland.
 6. Do not waste thy seed — make children.
 7. Thou shalt not steal — that is the prerogative of state officials.
@@ -1568,7 +1589,7 @@ In the confessional of a Russian church.
 
 **Priest:**
 
-— Your version is outdated, my son!
+— Outdated version, my son!
 Upgrade to the latest release.
 Run the file "Ukraine_Deleted.exe".
 
@@ -1583,11 +1604,11 @@ The Patriarch of All Russia stands on the bow of his luxurious yacht. Nearby, in
 
 **Fisherman:**
 
-— Father, why don’t you give your yacht to the poor and destitute — just as Jesus commanded?
+— Father, why don’t you give your yacht to the poor and destitute — as Jesus commanded?
 
 **Patriarch:**
 
-— Christ preached only to the poor. He never troubled the rich with his advice.
+— Christ preached exclusively to the poor. He never troubled the rich with his advice.
 
 #OrthodoxMilitaryPutinism
                                 👻
@@ -1596,7 +1617,7 @@ The Patriarch of All Russia stands on the bow of his luxurious yacht. Nearby, in
 
 ![](Images/En_Album_49.jpg)
 
-In a Russian school, during a family studies lesson. On the blackboard — a chart showing Russia’s declining birth rate.
+A Russian school, family studies class. On the board, a diagram illustrating Russia’s birth rate.
 
 **Student:**
 
@@ -1604,8 +1625,7 @@ In a Russian school, during a family studies lesson. On the blackboard — a cha
 
 **Teacher:**
 
-— Didn’t learn your lesson? Don’t worry!
-Go ahead and have a baby, my dear — you’ll get an A! If you have twins, we’ll count it as your anatomy practicum. Triplets — and you graduate on the spot. No more school for you.
+— Didn’t study for the test? Don’t worry! Go have a baby, dear — you’ll get an A! If you have twins, we’ll call it your anatomy practicum. Triplets — and you can graduate on the spot. No more school for you.
 
 #OrthodoxMilitaryPutinism
                                 👻
@@ -1627,7 +1647,7 @@ Exhibit at the Museum of Historical Parallels. On the wall — three official po
 **V. Putin = Putin II  (The Sequel)**
 
 > **Curator's Note**
-
+>
 > History repeats itself, first as tragedy, then as farce. Now it's looping as a psycho-absurdist horror remake. Two different men, one ominous namesake — a recurring curse on the Russian state. The finale, as always, is written in poison, polonium, and palace intrigues.
 
 **Putin I (Version 1.0 — Grigori Rasputin)**
@@ -1648,13 +1668,13 @@ Scheduled Release: 202X
 
 > **Historical Note**
 > 
-**Snuffbox** — Emperor Paul I of Russia was killed in 1801: strangled, but the first blow was delivered with a snuffbox.
-
-**Scarf** — Stalin allegedly used a scarf in the killing of his security chief Nikolai Yezhov; “death by scarf” became a symbol of Kremlin strangulations.
-
-**"Novichok"** — a military-grade nerve agent developed in the USSR, used in notorious poisonings such as those of Sergei Skripal and Alexei Navalny.
-
-**Heart attack** — “sudden cardiac arrest” is the most common euphemism in Russian official reports on suspicious political deaths.
+> **Snuffbox** — Emperor Paul I of Russia was killed in 1801: strangled, but the first blow was delivered with a snuffbox.
+>
+> **Scarf** — Stalin allegedly used a scarf in the killing of his security chief Nikolai Yezhov; “death by scarf” became a symbol of Kremlin strangulations.
+>
+> **"Novichok"** — a military-grade nerve agent developed in the USSR, used in notorious poisonings such as those of Sergei Skripal and Alexei Navalny.
+>
+> **Heart attack** — “sudden cardiac arrest” is the most common euphemism in Russian official reports on suspicious political deaths.
 
 #OrthodoxMilitaryPutinism
                                 👻
@@ -1676,7 +1696,7 @@ President Putin and President Trump, beers in hand, leaning across the table.
 
 **Trump**:
 
-— And nobody booted you out?
+— And nobody kicked you out?
 
 **Putin**:
 
@@ -1807,7 +1827,7 @@ Twenty conditions. Including prostatitis. Same people who worked the Magnitsky c
 
 **Trump**:
 
-— First I’m hearing about this, Vova. Not even Fox told me!
+— Never heard of it. Not even Fox told me! Unbelievable!
 
 **Putin**:
 
@@ -1823,7 +1843,7 @@ Twenty conditions. Including prostatitis. Same people who worked the Magnitsky c
 
 **Trump**:
 
-— Then how the hell did he survive three years in prison?
+— Then how the hell did he even last three years in prison?
 
 **Putin**:
 
@@ -1833,15 +1853,15 @@ That wasn’t a man, that was a walking corpse!
 
 **Trump**:
 
-— Then why won’t you give back his stuff — documents, tapes — to the widow? If it’s all so clean?
+— Then why won’t you give the widow his stuff — documents, tapes ? If everything’s so clean?
 
 **Putin**:
 
-— Donnie, my guys are worried it’ll land in German hands again. And you know the Germans — they can pull “evidence” out of thin air. We don’t need another "Novichok" fiasco.
+— Donnie, my guys are worried it’ll end up in German hands again. And you know how the Germans are — they can pull "evidence" out of thin air. We don’t need another "Novichok" fiasco.
 
 **Trump**:
 
-— And why do you keep switching the story? First it was arrhythmia, now poisoning?
+— And why do you keep changing the story? The cause of death? First it was arrhythmia, now it's poisoning?
 
 **Putin**:
 
@@ -1851,7 +1871,7 @@ That wasn’t a man, that was a walking corpse!
 
 **Putin**:
 
-— It was clearly a tragic death caused by a rare frost-related allergy. Entirely natural, nothing suspicious at all.
+— It was clearly a tragic death caused by a rare cold-related allergy. Entirely natural, nothing suspicious at all.
 
 **Trump** (aside, smirking):
 
@@ -1890,7 +1910,7 @@ A consultation in a psychiatric hospital. In the office at the table — three v
 
 **First Professor**:
 
-— And how does he plan to do that?
+— And how does he plan to pull that off?
 
 **Second Professor**:
 
@@ -1958,7 +1978,7 @@ A consultation in a psychiatric hospital. In the office at the table — three v
 
 **Third Professor**:
 
-— It would also be advisable to prescribe calming baths of Ukrainian mud, accompanied by recordings of the "Crimea is ours!" chorus.
+— It would also be advisable to prescribe calming baths of Ukrainian mud, accompanied by recordings of the "Crimea is ours!" shouts.
 
 **First Professor**:
 
@@ -1966,7 +1986,7 @@ A consultation in a psychiatric hospital. In the office at the table — three v
 
 **Second Professor** (solemnly):
 
-— The Health Ministry  warns… Misbehave, and you’ll get three thousand volts in the ass.
+— The Health Ministry  warns… Start acting like a brain-dead idiot, and you’ll get three thousand volts in the ass.
 
 #OrthodoxMilitaryPutinism
                               👻
@@ -1983,7 +2003,7 @@ Sermon in front of a Russian church.
 
 **Man from the crowd:**
 
-— The womb? It's permanently closed. For inventory. VIP members only.
+— The womb? It's closed all the time. For inventory. VIP members only.
 
 **Priest:**
 
@@ -1996,7 +2016,7 @@ Sermon in front of a Russian church.
 #OrthodoxMilitaryPutinism  
                                 👻
 
-## 55. DISCREDITING STATE ORGANS
+## 55. DISCREDITING... ORGANS
 
 ![](Images/En_Album_55_1.jpg)
 ![](Images/En_Album_55_2.jpg)
@@ -2019,7 +2039,7 @@ On a street in a Russian town.
 
 **Police Officer:**
 
-— Aha! A Ukrainian flag on the ass? Discreditation if... organs!
+— Aha! A Ukrainian flag on the ass? Discreditation of... organs!
 
 #OrthodoxMilitaryPutinism  
                                 👻
@@ -2032,7 +2052,7 @@ In the confessional of a Russian church.
 
 **Penitent:**
 
-— Forgive me, Father, for I have sinned... I am... a paganist.
+— Forgive me, Father, for I have sinned... I am... a bit of a paeanist.
 
 **Priest (alarmed):**
 
@@ -2042,17 +2062,17 @@ In the confessional of a Russian church.
 
 — No, no! I mean... I am an exhibitionist.
 
-**Priest (squinting):**
+**Priest:**
 
-— A former KGB agent? A spy seeking redemption? The Church welcomes repentant souls.
+— So you love being the center of attention? That's admirable.
 
 **Penitent (whispering):**
 
-— I am sinful, Father! I... flashed my privates at a garden party...
+— I am sinful, Father! I walked in the park, showing my rising cock at a garden party...
 
 **Priest (beaming):**
 
-— You are the Party's rising star?! May your career be long and blessed, my child!
+— You are the cock of the walk, a party rising star? May your career be long and blessed, my child!
 
 **Penitent:**
 
@@ -2097,7 +2117,7 @@ Putin's office in the Kremlin. Seated at the table are: Putin and Mikhail Kovalc
 
 **Putin** (pensively):
 
-— Shitty immortality. A shitty idea. Say you print me out. But who am I? Nobody. Someone else will be sitting on the throne. They’ll immediately remember the war, the arsons, the bombings, the cables, everything.
+— Shitty immortality. A shitty idea. Say you print me out. But who am I? Nobody. Someone else will be sitting on the throne. They will immediately bring charges against me: the war, the arsons, the bombings, the cables, everything.
 
 **Kovalchuk**:
 
@@ -2113,7 +2133,7 @@ Putin's office in the Kremlin. Seated at the table are: Putin and Mikhail Kovalc
 
 **Putin**:
 
-– Then take a heart from a schoolkid – a recent graduate. What, do you feel sorry for some kid for my sake?
+– Then take a heart from a schoolkid – a recent graduate. What, you feel sorry for some kid for my sake?
 
 **Kovalchuk** (fervently):
 
@@ -2129,7 +2149,7 @@ Putin's office in the Kremlin. Seated at the table are: Putin and Mikhail Kovalc
 
 **Putin** (grumpily):
 
-– Fine, have it your way. Go on with your shit. But only as a backup. In the worst case, after my… death [grimaces as if in pain] it’ll go under the hammer for a million.
+– Fine, have it your way. Go on with your shit. But only as a backup. In the worst case, after my… death [his face distorted, as if in severe pain] it’ll go under the hammer for a million.
 
 **Kovalchuk** (smiling):
 
@@ -2145,7 +2165,7 @@ Putin's office in the Kremlin. Seated at the table are: Putin and Mikhail Kovalc
 
 **Putin**:
 
-– Only one thing! No greed! 30 grams?! That’s a laughingstock! What am I, a pigeon?
+– Only one condition: no greed! 30 grams?! That’s a laughingstock! What am I, a pigeon?
 
 **Kovalchuk** (convincingly):
 
@@ -2172,11 +2192,11 @@ Putin's office in the Kremlin. Seated at the table are: Putin and Mikhail Kovalc
 
 The hall of the Russian State Duma. Deputy Valentina Bebienko speaks from the podium:
 
-– Dear deputies! The President has set us the task of reviving great Russia – to triple the birth rate. I won't hide it – the task is not easy. It's a difficult task. A super difficult one. But we are obliged to fulfill it. Because our president wants us to. I propose we approach the problem creatively. Of course, our target audience is young people. Under 30. After 30, influencing their consciousness is not so easy. Mental patterns are already formed, and resistance to the state narrative is observed.
+– Dear deputies! The President has set us the task of reviving great Russia tripling the birth rate. I won’t deny  it – the task is not easy. It's a difficult task. A super difficult one. But we are obliged to fulfill it. Because our president wants us to. I propose we approach the problem creatively. Of course, our target audience is young people. Under 30. After 30, influencing one's consciousness is not so easy. Mental patterns are already formed, and resistance to the state narrative is observed.
 
 Now let's remember our own sad childhood. How did we satisfy our... needs – the perfectly legitimate urges of puberty? Secretly, stealthily, in dark stairwells on dirty windowsills, in damp basements, on dusty attics, or simply, God forgive me, in the park behind a bush. And always in tension: what if someone sees? What if the neighbors report us? And if, God forbid, you got caught – they drag you to the police, write a report, call your parents. In a word, shame for the rest of your life. This is wrong, comrades. This doesn't agree with the state demographic policy. Let's correct this imbalance. Let's give our children and grandchildren a happy childhood. Just as there used to be a phone booth on every corner – now in its place there will be a beautiful and tidy "reproduction pavilion". With surveillance cameras for facial recognition – we will award participants social bonuses on the "State Services" internet-portal. 
 Inside – a spacious room with 4 double beds, a large TV on the wall. A film library with inspiring videotapes and soap operas. A cupboard with Viagra and accessories. Everything is high-style, clean, and attractive – from the cheerful wallpaper  to the playful patterns on the bed linen. And on the steps, instead of a doorman – a priest, sprinkling holy water on those entering, and with a blessing:
-"Blessed are the copulators... in the name of the Father, and of the Son, and of the Holy Spirit... in accordance with Presidential Decree No. 666..."
+"Blessed are the copulators... in the name of the Father and of the Son, and of the Holy Spirit... in accordance with Presidential Decree No. 666..."
 
 And after nine months, the system will automatically assess performance. If the birth of a child is confirmed, the parents will receive a one-time payment. In case of a male child, the amount will be doubled — in accordance with the state program for the militarization of demographic policy.
 
@@ -2189,17 +2209,17 @@ And after nine months, the system will automatically assess performance. If the 
 
 *Note: Illustration blocked by censorship.*
 
-A spacious conference hall. Officials are seated in there. A large, illuminated stage, in the center of which lies on his back a well-known political leader. His genitals are fully exposed; his erect penis is crowned with a miniature, yet precise, copy of his head (the one on his shoulders). The small head of the politician lying on the stage addresses the audience in the hall with a loud, pompous speech:
+A spacious conference hall. Officials are seated in there. A large, illuminated stage, in the center of which lies on his back a well-known political leader. His genitals are fully exposed; his erect penis is crowned with a miniature, yet precise, copy of his head (the one on his shoulders). The small head of the politician lying on the stage addresses the audience with a loud, pompous speech:
 
-— The birth rate in the country is falling catastrophically. Like a stone dropped into an abyss. I've been long saying and I repeat: condoms and abortions are to blame for everything! And LGBT. And Childfree. We must fight, fight, and fight again against all this heresy. So far, we are doing poorly.
+— The birth rate in the country is falling catastrophically. Like a stone dropped into an abyss. I've been long saying it and I repeat: condoms and abortions are to blame for everything! And LGBT. And Childfree. We must fight, fight, and fight against all this heresy. So far, we are doing poorly.
 
 We banned abortions. So what? Now they go to China to have abortions. Or they give birth in Argentina and stay there for ever. Condoms are the utmost evil. Condoms are a personal insult to me. They violate the basic right of the individual — the right to procreate and multiply. Enshrined in the Constitution, by the way.
 
-We banned condoms having named them  symbols of  extremism. So what? The black market for condoms is thriving. Underground manufactories of rubber technical goods are springing up like mushrooms after rain. All over the country. LGBT propaganda is oozing out of every crack. What is happening? This is a complete failure of my decrees implementation. I will not put up with this attitude.
+We banned condoms having named them  symbols of  extremism. So what? The black market for condoms is thriving. Underground manufactories of rubber goods are springing up like mushrooms after rain. All over the country. LGBT propaganda is oozing out of every crack. What is happening? This is a complete failure of my decrees implementation. I will not put up with this attitude.
 
 If the state apparatus cannot force the population to give birth — I will force the state apparatus to give birth.
 
-Switch on your brains, if any.
+Turn on your brains, if any.
 And start working.
 
 Do we not have a sperm bank? Do we not have an egg bank?
@@ -2209,8 +2229,7 @@ Engage the Academy of Sciences — let them create a state military Incubator. W
 Second. Engage the geneticists. The country does not need idle housewives and thinkers of any kind. The genes of future generations must be the right ones: patriotic, male, warlike.
 Is it really so difficult? Get to work.
 
-We will revive our great country and our great "second army of the world." Moreover — we will make it the first!
-Whatever the price. Over the corpses of  enemies, through the tears of mothers, across the ravaged land — we will advance without fear and without mercy. We will crush any resistance and utterly destroy all who dare rise against us. Even if it requires bringing the entire country to its knees, we will do it. Make no mistake: the will of the state is iron, and nothing and no one will stop it.
+We will revive our great country and our great "second army of the world." Moreover, we will make it the first! Whatever the price.  Over the corpses of our enemies, through the tears of mothers, across the ravaged land — we will advance without fear and without mercy. We will crush any resistance and completely destroy anyone who dares to rise up against us. Even if it means bringing the entire country to its knees, we will do it. Make no mistake: the will of the state is iron, and nothing and no one can stop it.
 
 (Stormy, prolonged applause.)
 
