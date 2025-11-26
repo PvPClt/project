@@ -600,7 +600,7 @@ bbidyaga@protonmail.com |
 
 — But… why?
 
-**Putin** (in a pompous manne):
+**Putin** (in a pompous manner):
 
 — Better to die on your feet than live on your knees!
 
