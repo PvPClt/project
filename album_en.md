@@ -1094,16 +1094,15 @@ Dialogue in a typical Moscow apartment: landlady, neighbor, policeman.
 
 ![](Images/En_Album_25.jpg)
 
-Russian dental clinic. On the office door, a notice: “No filling material available!"
-In the hall, a dentist is talking with a patient.
+Russian dental clinic. On the office door, a sign reads: “No filling material available!” In the hall, a dentist talks to a patient.
 
 **Dentist:**
 
-— Did you bring the filling material? We don’t have any. It’s run out. Sanctions. You know. Right now we only have S-300 construction cement. One month guarantee — unless you die right away. 
+— Did you bring the filling material? We’re out of stock. Sanctions, you know. Right now, all we’ve got is S-300 construction cement. One-month guarantee — unless you die sooner.
 
 **Patient:**
 
-— You know what, I’ll just leave. The tooth doesn’t hurt anymore. Somehow it just… disappeared.
+— You know what? I think I’ll just leave. The tooth doesn’t hurt anymore. Somehow, it just… disappeared.
 
 #OrthodoxMilitaryPutinism
                                 👻
