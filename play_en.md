@@ -17,9 +17,9 @@ bbidyaga@protonmail.com |
 ![](Images/Cover_Play.jpg)
 
 ### CHARACTERS: 
-          – Russia
-          – Putin, who calls himself the president of Russia
-
+> – Russia
+> – Putin, who calls himself the president of Russia
+>
 > Russia is kneeling, gazing pensively into the void. Enters Putin, dressed in military uniform, boots with spurs clanking. Sees Russia and snaps.
 
 **Putin** (angry): 
@@ -31,7 +31,7 @@ bbidyaga@protonmail.com |
 **Putin** (gloomy): 
  — Been to war.
 
-![](Images/Ru_Play_01.jpg)
+![](Images/En_Play_01.jpg)
 
 **Russia** (curious): 
 — War? Why start a war? Did someone offend you? Pick a fight? Hurt your feelings?  
@@ -57,7 +57,7 @@ bbidyaga@protonmail.com |
 **Putin** (spiteful): 
 — A clown, for Christ’s sake. A Jew, too. Belongs on a stage, not prancing around at podiums! Squirming his way into NATO like a worm...  
 
-![](Images/Ru_Play_02.jpg)
+![](Images/En_Play_02.jpg)
 
 **Russia** (indifferent): 
 — NATO? Him? Ridiculous! Like a pig at a banquet…
@@ -65,12 +65,12 @@ bbidyaga@protonmail.com |
 **Putin** (fervent): 
 — Exactly, damn it! A pig’s place is in a pigsty! Sit home, slurp your beet soup, grunting in peace. But nooo — she grunts at every damn summit, squealing for her rights. And nobody gives a damn about mine! 
 
-![](Images/Ru_Play_03.jpg)
+![](Images/En_Play_03.jpg)
 
 **Putin** (continues):
 — Holy crap! She’s squatting on my ancestral land, sucking it dry like a tick. Land that’s rightfully Russian soil... Holy Rus’ stood there! Prince Vladimir the Fair Sun sat on his throne! Fought the Pechenegs and the Polovtsy!
 
-![](Images/Ru_Play_04.jpg)
+![](Images/En_Play_04.jpg)
 
 **Russia** (insinuating): 
 — Don’t you have enough land already?
@@ -78,7 +78,7 @@ bbidyaga@protonmail.com |
 **Putin** (anguished): 
 — Holy crap, woman! What land? Swamps? Tundra? Frozen wastelands? You can’t grow shit there. But her? Black soil. Breadbasket of the world…
 
-![](Images/Ru_Play_05.jpg)
+![](Images/En_Play_05.jpg)
 
 **Russia** (reproachful): 
 — Disgraceful!
@@ -89,7 +89,7 @@ bbidyaga@protonmail.com |
 **Russia**:
 — Hey, why are your hands kinda… red?
 
-![](Images/Ru_Play_06.jpg)
+![](Images/En_Play_06.jpg)
 
 **Putin** (annoyed): 
 — Holy crap, woman! You’re seeing things. My hands are fine. Go see a doctor — get your eyes checked. For God's sake!
@@ -102,7 +102,7 @@ bbidyaga@protonmail.com |
 **Russia** (angrily): 
 — I swear on my shoes — I'll pluck every last hair off her head, the insolent little tramp! Did you put her in her place?
 
-![](Images/Ru_Play_07.jpg)
+![](Images/En_Play_07.jpg)
 
 **Putin** (heated): 
 — That was my plan exactly...
@@ -119,7 +119,7 @@ bbidyaga@protonmail.com |
 **Putin** (disapproving): 
 — The damn slut holed up with the Yankees...
 
-![](Images/Ru_Play_08.jpg)
+![](Images/En_Play_08.jpg)
 
 **Russia** (exalted): 
 — Oh my! Loose woman!
@@ -133,12 +133,12 @@ bbidyaga@protonmail.com |
 **Putin** (furious): 
 — Damn right they do! Tanks, shells, missiles — morden, top-tier. Better than mine! Damn it! 
 
-![](Images/Ru_Play_09.jpg)
+![](Images/En_Play_09.jpg)
 
 **Putin** (continues):
 — Holy crap! They torched my oil depots. I'm out of fuel for the trucks, damn it! My boys are dragging artillery by horse now. 
 
-![](Images/Ru_Play_10.jpg)
+![](Images/En_Play_10.jpg)
 
 **Russia** (throwing up hands): 
 — Oh dear! 
@@ -152,7 +152,7 @@ bbidyaga@protonmail.com |
 **Putin** (sighing): 
 — Tried every damn thing! Prayers, relics, priests in a conga line… 
 
-![](Images/Ru_Play_11.jpg)
+![](Images/En_Play_11.jpg)
 
 **Russia** (worried): 
 — Still nothing? Did you walk with the censer?
@@ -181,7 +181,7 @@ bbidyaga@protonmail.com |
 **Russia** (wailing):
 –Gotta mutter the spell on water… Guard the servant of God Volodymer from the flying serpent, from the creeping serpent, from wicked fate… Enemy, Satan, ill-wisher, get away from him — like beast from beast, snake from snake, heretic from heretic, warlock from witch… Ptui, ptui, ptui! [Spits thrice over her left shoulder, then thrice crosses herself.]
 
-![](Images/Ru_Play_12.jpg)
+![](Images/En_Play_12.jpg)
 
 **Putin** (angry): 
 — Holy crap, woman! Are you out of your freaking mind? Flying serpent?!
@@ -201,7 +201,7 @@ bbidyaga@protonmail.com |
 **Russia** (eager): 
 — Every church has one. Ask around. 
 
-![](Images/Ru_Play_13.jpg)
+![](Images/En_Play_13.jpg)
 
 (Pause)
 
@@ -211,7 +211,7 @@ bbidyaga@protonmail.com |
 **Putin** (boastful): 
 — Holy crap, woman! I scare those bastards with a mere look. One bolted just yesterday! 
 
-![](Images/Ru_Play_14.jpg)
+![](Images/En_Play_14.jpg)
 
 **Russia** (approving): 
 — That's my boy!
@@ -224,7 +224,7 @@ bbidyaga@protonmail.com |
 **Putin** (devilish smirk): 
  — We've already treated him to a "love potion"... From our secret laboratory. Didn't work.
 
-![](Images/Ru_Play_15.jpg)
+![](Images/En_Play_15.jpg)
 
 **Russia** (thoughtful): 
 — Here's a hint for you. Bury a frog in an anthill. At night. In two weeks, you'll find a magic hook there. Attach it to his coat — he’ll wither! As sure as sunrise.
@@ -232,7 +232,7 @@ bbidyaga@protonmail.com |
 **Putin** (arrogant): 
 — Holy crap, forget frogs! I could kill him without fairy tales. It’s the 21st century, damn it! 
 
-![](Images/Ru_Play_16.jpg)
+![](Images/En_Play_16.jpg)
 
 **Russia** (wide-eyed): 
 — Really?
@@ -245,7 +245,7 @@ bbidyaga@protonmail.com |
 **Putin** (bitter): 
 — After all, now they’ve got  airplanes. American ones. F-16s. Damn it! You think it’s just a plane? Damn, no! It's a fiery bloody  dragon! Fighter, bomber, interceptor — three in one, damn it! 
 
-![](Images/Ru_Play_17.jpg)
+![](Images/En_Play_17.jpg)
 
 **Russia** (hostile): 
 — Hell-spawned devils!
@@ -259,7 +259,7 @@ bbidyaga@protonmail.com |
 **Putin** (frenzied):
 — The pilot, damn it! In the cockpit! He sees everything — even me in the Kremlin! 
 
-![](Images/Ru_Play_18.jpg)
+![](Images/En_Play_18.jpg)
 
 **Russia** (doubtful): 
 — I guess the Kremlin’s a bit farther than 350 km…
@@ -267,7 +267,7 @@ bbidyaga@protonmail.com |
 **Putin** (indignant): 
 — Damn right, it is! So what? They violate borders! Spit on international law! Cross my red lines! Nazis with jammers! 
 
-![](Images/Ru_Play_19.jpg)
+![](Images/En_Play_19.jpg)
 
 **Russia** (flashing eyes): 
 — Dear me!  But where’s this... what do you call it... the UN?!
@@ -275,7 +275,7 @@ bbidyaga@protonmail.com |
 **Putin** (with utmost contempt, looking at the illustration):
 – The UN... [pause, contemptuous smirk] A wind chime. Damn it!
 
-![](Images/Ru_Play_20.jpg)
+![](Images/En_Play_20.jpg)
 
 (Pause.)
 
@@ -293,7 +293,7 @@ bbidyaga@protonmail.com |
 **Russia** (furious): 
 — They stole our turnip! Our traditional value! Hands off our turnip, heathens! Choke on your corn tortillas!
 
-![](Images/Ru_Play_21.jpg)
+![](Images/En_Play_21.jpg)
 
 **Putin** (bitter laugh): 
 — Calm down. Not that turnip!
@@ -310,7 +310,7 @@ bbidyaga@protonmail.com |
 **Putin** (with a bitter smirk):
 – Exactly! A goddamn war of blind man’s buff!
 
-![](Images/Ru_Play_22.jpg)
+![](Images/En_Play_22.jpg)
 
 (For a moment, silence. Putin broods, his face black as thunder. Russia, disapprovingly, noiselessly moves her lips.)
 
@@ -320,7 +320,7 @@ bbidyaga@protonmail.com |
 **Russia** (sympathetic): 
 — Sure. Vile people. No peace for the Russian soul. Obama, that bastard, pissed in **all** our elevators. Raised gas prices too… Some president he is!
 
-![](Images/Ru_Play_23.jpg)
+![](Images/En_Play_23.jpg)
 
 **Putin** (furious):
 — Holy crap, woman! Wake up! Obama’s been gone for ages! It’s Biden now!
@@ -328,7 +328,7 @@ bbidyaga@protonmail.com |
 **Russia** (nodding eagerly):
 — That’s what I’m sayin’. Biden. We oughta go and piss in all his elevators too… Over there in that place… what’s it called again… the White House. Too damn white. Hurts the eyes. Maybe if it got a bit yellow, it’d look more like a normal house. Who does he think he is, struttin’ around like he’s better than us?
 
-![](Images/Ru_Play_24.jpg)
+![](Images/En_Play_24.jpg)
 
 **Putin** (exasperated): 
 — Holy crap, woman! What's with you and elevators?
@@ -351,19 +351,19 @@ bbidyaga@protonmail.com |
 — Damn right! Aliens!  From another Galaxy. A cosmic Nazi conspiracy. With NATO standing behind it. Gender-neutral bastards! Parent One, Parent Two! 
 **XenoGalAgents!** 
 
-![](Images/Ru_Play_25.jpg)
+![](Images/En_Play_25.jpg)
 
 **Putin** (screaming):
 — If that’s the way you treat me, I’ll blow the whole damn Universe to hell!
 
-![](Images/Ru_Play_26.jpg)
+![](Images/En_Play_26.jpg)
 
 (Russia shrieks, praying and banging her head on the floor.) 
 
 **Putin** (calm, mumbling): 
 — Gender-neutral intergalactic scum, damn it!  Thank god, we are not like them. At least our genitals are real… (Touches himself. Nods approvingly.)
 
-![](Images/Ru_Play_27.jpg)
+![](Images/En_Play_27.jpg)
 
 **Russia** (nervous): 
 — You OK?
@@ -371,7 +371,7 @@ bbidyaga@protonmail.com |
 **Putin** (grim): 
 — Holy crap, woman! Do I look okay? Damn it! Betrayal everywhere. High command selling the Motherland wholesale and retail! Generals gift-wrap my tanks and sell to the enemy — right across the front line! Ribbons on the gun! 
 
-![](Images/Ru_Play_28.jpg)
+![](Images/En_Play_28.jpg)
 
 **Putin** (continues):
 — Holy crap, steal at peace time: knock yourself out! Be my guest! But during the war?! Bastards! Show some respect, for god's sake!
@@ -398,7 +398,7 @@ bbidyaga@protonmail.com |
 **Russia** (dull): 
 — I have not the slightest idea. I eat like always… but I’m wasting away. 
 
-![](Images/Ru_Play_29.jpg)
+![](Images/En_Play_29.jpg)
 
 **Putin** (anxious): 
 — Since when this is happening?
@@ -450,7 +450,7 @@ was rich…
 **Russia** (offended):
 — Well, when a whole co-op rapes you day and night… what else do you expect? No rest, no peace with those parasites.
 
-![](Images/Ru_Play_30.jpg)
+![](Images/En_Play_30.jpg)
 
 **Putin** (arrogant):
 — Holy crap, woman! Easy now, watch your mouth! They’re my friends, for God’s sake! And you — you ought to be proud, damn it! No shame in giving yourself to a decent guy, right? And they’re all fine men — I swear on my mama's grave!
@@ -504,7 +504,7 @@ was rich…
 **Russia** (rapturous, clinging to him):
 — I love you, oh, how I love you! Seventy-eight point nine percent! Ask Gallup — they’ve got numbers for everything! They won’t lie!
 
-![](Images/Ru_Play_31.jpg)
+![](Images/En_Play_31.jpg)
 
 **Putin** (digging a spur lightly into her flabby flesh, mockingly):
 — And what’s the percentage now?
@@ -534,7 +534,7 @@ was rich…
 **Putin** (icily):
 — Fortunately, the reverse isn’t true. Russia may vanish — but I remain.
 
-![](Images/Ru_Play_32.jpg)
+![](Images/En_Play_32.jpg)
 
 (He watches with disdain as Russia convulses, dying at his feet. Then, without a glance back, he turns and walks away.)
 
