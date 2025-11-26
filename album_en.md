@@ -1262,7 +1262,11 @@ Induces persistent fear, periodic fits of aggression, and bursts of patriotic en
 
 • Biden
 
-•“Gayrope” (derogatory slang for Europe), Navalny, and mythical “crucified boys in underwear.”
+•“Gayrope” (derogatory slang for Europe)
+
+• Navalny
+
+• Mythical “crucified boys in underwear”
 
 **Indications:**
 
