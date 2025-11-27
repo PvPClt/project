@@ -23,15 +23,17 @@ bbidyaga@protonmail.com |
 
 – Putin, who calls himself the president of Russia
 
+**[Scene opens]**
+
 > Russia is kneeling, gazing pensively into the void. Enters Putin, dressed in military uniform, boots with spurs clanking. Sees Russia and snaps.
 
-**Putin** (angry): 
+**Putin** (irritated): 
 
-— Holy crap! On your knees again? What did I tell you? I lifted you up! For god's sake!
+— Holy crap! Back on your knees again? What did I tell you? I lifted you up! For god's sake!
 
-**Russia** (perking up):
+**Russia** (hopeful):
 
-— Oh my darling, is it really you? I’d almost given up hope... Where’ve you been, what’ve you done? Do tell!
+— Oh my darling, is it really you? I’d almost lost hope... Where’ve you been, what’ve you done? Tell me!
 
 **Putin** (gloomy): 
 
@@ -53,7 +55,7 @@ bbidyaga@protonmail.com |
 
 **Putin** (sullen): 
 
-— Left. Got it into her head that she’s a sovereign nation… Sovereign, my ass. Yellow-blue whore... a bastard child of our history. That’s all you are!  
+— Left. Got it into her head she’s a sovereign nation… Sovereign, my ass. Yellow-blue whore… bastard child of our history. That’s all she is!
 
 **Russia** (nodding): 
 
@@ -73,13 +75,13 @@ bbidyaga@protonmail.com |
 
 ![](Images/En_Play_02.jpg)
 
-**Russia** (contemptuously): 
+**Russia** (contemptuous): 
 
 — NATO? Him? Ridiculous! Like a pig at a banquet…
 
 **Putin** (fervent): 
 
-— Exactly, damn it! A pig’s place is in a pigsty! Sit home, slurp your beet soup, grunting in peace. But nooo — she grunts at every damn summit, squealing for her rights. And nobody gives a damn about mine! 
+— Exactly, damn it! A pig’s place is in a pigsty! Stay home, slurp your beet soup, grunt in peace. But nooo — she grunts at every damn summit, squealing for her rights. And nobody gives a damn about mine! 
 
 ![](Images/En_Play_03.jpg)
 
@@ -113,9 +115,9 @@ bbidyaga@protonmail.com |
 
 ![](Images/En_Play_06.jpg)
 
-**Putin** (annoyed): 
+**Putin** (dismissive): 
 
-— Holy crap, woman! You’re seeing things. My hands are fine. Go see a doctor — get your eyes checked. For God's sake!
+— Holy crap, woman! You’re seeing things. My hands are fine. Go get your eyes checked. For God’s sake!
 
 (Pause)
 
@@ -363,7 +365,7 @@ bbidyaga@protonmail.com |
 
 — The damn pilot! With his turnip system! 
 
-> Turnip system (pronounced "repa") is the Russian slang name for REB = Radio-Electronic Warfare.
+> **[Note: “Turnip system” (pronounced “repa”) is Russian slang for REB = Radio-Electronic Warfare.]**
 
 **Russia** (furious): 
 
@@ -472,7 +474,7 @@ bbidyaga@protonmail.com |
 
 **Putin** (continues):
 
-— Holy crap, steal at peace time: knock yourself out! Be my guest! But during the war?! Bastards! Show some respect, for god's sake!
+— Holy crap, steal at peace time: knock yourself out! Be my guest! But during war?! Bastards! Show some respect, for God’s sake!
 
 **Russia** (sympathetic): 
 
@@ -500,13 +502,13 @@ bbidyaga@protonmail.com |
 
 **Russia** (dull): 
 
-— I have not the slightest idea. I eat like always… but I’m wasting away. 
+— I have no idea. I eat like always… but I’m wasting away. 
 
 ![](Images/En_Play_29.jpg)
 
 **Putin** (anxious): 
 
-— Since when this is happening?
+— Since when this has been happening?
 
 **Russia** (straining): 
 
@@ -592,15 +594,15 @@ bbidyaga@protonmail.com |
 
 — I’m too damn tired. Can’t even stand. To hell with your tricks! Let’s stick to the old stuff.
 
-**Putin** (sharp, commanding):
+**Putin** (snapping):
 
-— Rise!
+— Enough of your whimpering! Stand up! Now!
 
 **Russia** (whimpering, confused):
 
 — But… why?
 
-**Putin** (in a pompous manner):
+**Putin** (pompously):
 
 — Better to die on your feet than live on your knees!
 
@@ -608,7 +610,7 @@ bbidyaga@protonmail.com |
 
 — Don’t say “die,” my darling! Why should we die at all?
 
-**Putin** (aside, with a smirk):
+**Putin** (aside, smirking):
 
 — From orgasm, sweetheart. From orgasm.
 
@@ -628,7 +630,7 @@ bbidyaga@protonmail.com |
 
 — Mmm. If you say so.
 
-(Pause. He strokes her absently.)
+(Pause. He strokes her absent-mindedly.)
 
 **Putin** (voice thick with desire):
 
@@ -640,11 +642,11 @@ bbidyaga@protonmail.com |
 
 ![](Images/En_Play_31.jpg)
 
-**Putin** (digging a spur lightly into her flabby flesh, mockingly):
+**Putin** (lightly digging a spur into her flabby flesh, mocking):
 
 — And what’s the percentage now?
 
-**Russia** (moaning with pain and bliss):
+**Russia** (moaning — pain mixed with bliss):
 
 — So good! More, my love — more!
 
@@ -656,7 +658,7 @@ bbidyaga@protonmail.com |
 
 — I’m coming! Oh Lord — I’m coming! Holy Mother of God!
 
-(A short pause. Russia is slowly sinking to the floor.)
+(Short pause. Russia slowly sinks to the floor.)
 
 **Russia** (weak, meditative):
 
@@ -664,13 +666,13 @@ bbidyaga@protonmail.com |
 
 **Putin** (cold smile):
 
-— Holy crap, woman! Me? Never. I've better things to do. And why should I die? I'm young and strong...
+— Holy crap, woman! Me? Never. I’ve got better things to do. And why should I die? I'm young and strong...
 
 **Russia** (slurring, in despair):
 
 — But didn’t Volodin say: “No Putin — no Russia”?
 
-> Vyacheslav Volodin – Speaker of the Russian State Duma.
+> **[Note: Vyacheslav Volodin — Speaker of the Russian State Duma.]**
 
 **Putin** (icily):
 
