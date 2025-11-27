@@ -683,9 +683,11 @@ bbidyaga@protonmail.com |
 (He watches with disdain as Russia convulses, dying at his feet. Then, without a glance back, he turns and walks away.)
 
 *September 24th 2024*
+
 *Turkey — Georgia* 
 
 **ISBN:  978-5-9903439-2-4**
+
 **© Shcheglova O.V., 2024**  
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
