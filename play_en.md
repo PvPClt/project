@@ -508,7 +508,7 @@ bbidyaga@protonmail.com |
 
 **Putin** (anxious): 
 
-— Since when this has been happening?
+— Since when did this start?
 
 **Russia** (straining): 
 
