@@ -13,7 +13,7 @@
 Якщо ви є носієм мови та помітили в текстах абсурдні, нелогічні, безглузді, «коряві», граматично неправильні слова та вирази, будь ласка, повідомте про конкретну помилку за наведеними нижче контактами (запропонуйте ваш варіант і поясніть, чому він кращий). Ваша допомога у забезпеченні мовної аутентичності та адекватності перекладів є безцінною у цій боротьбі за правду.
 Контакти:
 bbidyaga@protonmail.com 
-[Написать в Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
+[Написати через Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
 
 ![](Images/Cover_Play.jpg)
 
