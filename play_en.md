@@ -13,7 +13,7 @@ This project was created under conditions of digital persecution. Russian specia
 If you are a native speaker and notice absurd, illogical, nonsensical, "clumsy," or grammatically incorrect words and expressions in the texts, please report the specific error using the contacts below (suggest your version and explain why it is better). Your assistance in ensuring linguistic integrity and the adequacy of translations is invaluable in this struggle for truth.
 Contacts:
 bbidyaga@protonmail.com | 
-[Write in Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
+[Write via Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
 
 ![](Images/Cover_Play.jpg)
 
