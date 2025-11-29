@@ -42,7 +42,7 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 [read on the website](play_en.md) | [download PDF]
 
-### Anatomy of Putin's "Traditional Values", article
+### The Anatomy of Putin's "Traditional Values", article
 
 [read on the website](values_en.md) | [download PDF]
 
