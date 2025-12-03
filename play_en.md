@@ -512,7 +512,7 @@ bbidyaga@protonmail.com |
 
 **Russia** (straining): 
 
-— Today’s August 24th? Let me see... It looks like two and a half years now. 
+— Today’s August 24th 2024? Let me see... It looks like two and a half years now. 
 
 **Putin** (confused): 
 
