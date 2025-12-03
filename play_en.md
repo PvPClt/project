@@ -512,7 +512,7 @@ bbidyaga@protonmail.com |
 
 **Russia** (straining): 
 
-— Today’s August 2024?
+— Today’s August two thousand twenty-four?
 
 **Putin**: 
 
