@@ -481,7 +481,7 @@ The defendant is acquitted.
 
 Biologically active informational additives.
 Increase the bioavailability of state propaganda up to 100%.
-Active components effectively penetrate the blood–brain barrier (of critical thinking).
+Active components effectively penetrate the blood-brain barrier (of critical thinking).
 
 **Product line:**
 
