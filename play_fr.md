@@ -519,7 +519,7 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 **La Russie** (s’efforce de se souvenir) :
 
-– On est en quel mois ? Août vingt-quatre 2024?
+– On est dans quel mois ? Août 2024?
 
 **Poutine** :
 
