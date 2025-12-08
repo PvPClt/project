@@ -87,7 +87,7 @@ N'oubliez pas de liker, de reposter et de partager le lien avec vos amis. Votre 
 ![](Images/Fr_Album_001.jpg)
 
 Un bar américain.
-Les présidents Poutine et Trump sont attablés, en train de boire une bière...
+Le président russe, Vladimir Poutine, et le président américain, Donald Trump, sont assis à une table, une bière à la main.
 
 **Trump** :
 
@@ -234,7 +234,7 @@ Ont marqué la terre et brisé les clairières.
 > - Le dieu Anubis (expert en criminalistique)
 > - La déesse Maât (accusateur)
 > - 42 dieux-jurés égyptiens (portant des masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable et autres personnages historiques)
-> - Poutine (l'accusé) 
+> - Le président russe, Vladimir Poutine (l'accusé)  
 > 
 > La salle est éclairée par des écrans de télévision scintillants qui diffusent les procédures judiciaires. Poutine se tient près d'immenses balances de pharmacien ; sur un plateau se trouve un cœur rouge en papier avec une gravure dorée : « Poutine : 86 % ». L'autre plateau est vide, pourtant les plateaux s'équilibrent.
 
@@ -524,7 +524,7 @@ Si accidentellement ingérés par un journaliste indépendant ou un défenseur d
 
 ![](Images/Fr_Album_01.jpg)
 
-Bureau du commissariat militaire russe. Deux officiers sont assis à une table, face à un chanteur de variétés.
+Bureau du commissariat militaire dans une ville russe. Deux officiers sont assis à une table, face à un chanteur de variétés.
 
 **Premier officier** :
 
@@ -546,7 +546,8 @@ Et toi ? Tu fais la fête à poil avec une chaussette sur la bite ?!
 
 ![](Images/Fr_Album_02.jpg)
 
-Hall d’ascenseur d’un immeuble moscovite standard. Affiche sur le vide-ordures :
+Moscou, Russie. 
+Hall d’ascenseur d’un immeuble standard. Affiche sur le vide-ordures :
 *« Ne jette pas ta boîte de conserve ! Fais-en une bougie de tranchée ! »*
 
 #PoutinismeMilitaireOrthodoxe
@@ -602,6 +603,7 @@ Marioupol, ville ukrainienne détruite. Devant un immeuble tout juste reconstrui
 
 ![](Images/Fr_Album_05.jpg)
 
+Moscou, Russie.
 Dans le studio du célèbre propagandiste russe Vladimir Solovyov. Il discute avec une autre propagandiste encore plus célèbre : Margarita Simonyan.
 
 **Solovyov** :
@@ -619,7 +621,8 @@ Dans le studio du célèbre propagandiste russe Vladimir Solovyov. Il discute av
 
 ![](Images/Fr_Album_06.jpg)
 
-Lors d’une conférence de presse de Vladimir Poutine.
+Lors d’une conférence de presse du président russe, Vladimir Poutine.
+Un journaliste étranger pose une question.
 
 **Journaliste étranger** :
 
@@ -637,7 +640,9 @@ Retenez cela une fois pour toutes. Là où la botte d’un soldat russe a foulé
 
 ![](Images/Fr_Album_07.jpg)
 
-Bureau de Vladimir Poutine. Un immense écran plasma accroché au mur. À la table : Poutine et le ministre de la Santé, Mikhaïl Mourachko. À la télévision : une nouvelle — dans le nouveau budget russe, les dépenses de santé augmentent de 30 %.
+Russie, Moscou, Kremlin. 
+Dans le bureau, assis à la table : le président russe, Vladimir Poutine, et le ministre de la Santé, Mikhaïl Mourachko.
+À la télévision : une nouvelle — dans le nouveau budget russe, les dépenses de santé augmentent de 30 %.
 
 **Poutine** :
 
@@ -654,7 +659,8 @@ Bureau de Vladimir Poutine. Un immense écran plasma accroché au mur. À la tab
 
 ![](Images/Fr_Album_08.jpg)
 
-Centre de loisirs pour retraités à Moscou. Deux vieilles dames et un vieil homme tressent un filet de camouflage pour le front.
+Moscou, Russie. 
+Centre de loisirs pour retraités. Deux vieilles dames et un vieil homme tressent un filet de camouflage pour le front.
 
 **Le vieil homme** :
 
@@ -679,9 +685,9 @@ Centre de loisirs pour retraités à Moscou. Deux vieilles dames et un vieil hom
 
 ![](Images/Fr_Album_09.jpg)
 
-Le bureau de  Vladimir Poutine. Un immense écran plasma au mur.
-À la table : Poutine et le secrétaire du Conseil de sécurité Nikolaï Patrouchev.
-À l’écran : le président américain Joe Biden serre la main du président ukrainien Volodymyr Zelensky.
+Russie, Moscou, Kremlin. 
+Dans le bureau, assis à la table : le président russe, Vladimir Poutine, et le secrétaire du Conseil de sécurité Nikolaï Patrouchev.
+À la télévision : le président américain Joe Biden serre la main du président ukrainien Volodymyr Zelensky.
 
 **Poutine** (avec une froide fureur) :
 
@@ -737,7 +743,8 @@ La justice russe est la plus humaine du monde !
 
 ![](Images/Fr_Album_12.jpg)
 
-Salle des séances de la Douma russe. Débat budgétaire.
+Russie. Moscou. Salle des séances de la Douma d'État russe. 
+Débat budgétaire.
 
 **Premier député** :
 
@@ -751,7 +758,7 @@ Salle des séances de la Douma russe. Débat budgétaire.
 
 — Mais en réalité, c’est la militarisation de la Russie ! On va tous finir en treillis !
 
-**Viatcheslav Volodine** :
+**Viatcheslav Volodine, president de la Douma :**
 
 — Débats clos ! Le budget est adopté à l’unanimité !
 
@@ -783,7 +790,7 @@ Salle d’audience d’un tribunal russe : prévenu, avocat de la défense, juge
 
 ![](Images/Fr_Album_14.jpg)
 
-Séance de la Douma russe. Le président Viatcheslav Volodine prononce un discours enflammé.
+Russie. Moscou. Salle des séances de la Douma d'État russe. Son président Viatcheslav Volodine prononce un discours enflammé.
 
 **Volodine** (avec emphase) :
 
@@ -816,7 +823,7 @@ Vous avez l’audace de vouloir — nous avons le pouvoir de confisquer !
 
 ![](Images/Fr_Album_15.jpg)
 
-Poutine fait un rêve. Comme s’il pêchait sur le Dniepr avec le ministre de la Défense Sergueï Choïgou.
+Le président russe Vladimir Poutine fait un rêve, comme s’il pêchait sur le Dniepr, en Ukraine, avec le ministre russe de la Défense, S. Choïgou.
 
 **Choïgou** :
 
@@ -841,7 +848,7 @@ Poutine fait un rêve. Comme s’il pêchait sur le Dniepr avec le ministre de l
 
 ![](Images/Fr_Album_16.jpg)
 
-Briefing du ministère russe de la Défense.
+Briefing du ministère russe de la Défense. Aux questions répond le général Konachenkov, chef du département de l’information.
 
 **Journaliste** :
 
@@ -866,7 +873,7 @@ Briefing du ministère russe de la Défense.
 
 ![](Images/Fr_Album_17.jpg)
 
-Un confessionnal dans une église russe. Derrière le paravent, un prêtre. Une jeune fille se confesse en sanglotant.
+Une ville russe. Confessionnal dans une église russe orthodoxe. Derrière le paravent — un prêtre. Une jeune fille se confesse en sanglotant. 
 
 **Fille** :
 
@@ -883,7 +890,7 @@ Un confessionnal dans une église russe. Derrière le paravent, un prêtre. Une 
 
 ![](Images/Fr_Album_18.jpg)
 
-Zone proche du front (Ukraine).
+Zone proche du front russo-ukrainien.
 Des soldats russes marchandent avec une prostituée. Non loin de là, un prêtre prêche.
 
 **Prêtre** :
@@ -901,7 +908,8 @@ Des soldats russes marchandent avec une prostituée. Non loin de là, un prêtre
 
 ![](Images/Fr_Album_19.jpg)
 
-Jardin d’enfants russe. Alerte aérienne. Les enfants sont obligés de rester allongés face contre terre.
+Jardin d’enfants dans une ville russe. 
+Alerte aérienne. Les enfants sont obligés de rester allongés face contre terre.
 
 **Premier enfant** :
 
@@ -926,8 +934,7 @@ Jardin d’enfants russe. Alerte aérienne. Les enfants sont obligés de rester 
 
 ![](Images/Fr_Album_20.jpg)
 
-Cours "Conversations sur L’essentiel"
-dans une école russe.
+École dans une ville russe. Cours « Conversations sur l’essentiel ».
 
 **L’institutrice** :
 
@@ -977,7 +984,7 @@ Séance du Conseil de sécurité de l’ONU.
 
 ![](Images/Fr_Album_22.jpg)
 
-Front ukrainien. Arrière. Les soldats sont rassemblés. Le ministre russe de la Défense, Sergueï Choïgou, s’adresse à eux.
+Front russo-ukrainien. Arrière. Les soldats sont rassemblés. Le ministre russe de la Défense, Sergueï Choïgou, s’adresse à eux.
 
 **Soldat** :
 
@@ -1020,7 +1027,7 @@ Réunion du Conseil de sécurité de l'ONU.
 
 ![](Images/Fr_Album_24.jpg)
 
-Scène dans un appartement d’un immeuble moscovite : la maîtresse de maison, une voisine et un policier.
+Russie, Moscou. Scène dans un appartement d’un immeuble typique : la maîtresse de maison, une voisine et un policier.
 
 **Voisine** :
 
@@ -1042,7 +1049,7 @@ vous écoutez de la musique ! C’est de la discréditation !
 
 ![](Images/Fr_Album_25.jpg)
 
-Clinique dentaire russe. Sur la porte du cabinet, un avis : « Pas de matériau pour les plombages. » Dans le hall, le dentiste parle avec un patient.
+Clinique dentaire dans une ville russe. Sur la porte du cabinet, un avis : « Pas de matériau pour les plombages. » Dans le hall, le dentiste parle avec un patient.
 
 **Dentiste** :
 
@@ -1059,7 +1066,7 @@ Clinique dentaire russe. Sur la porte du cabinet, un avis : « Pas de matériau 
 
 ![](Images/Fr_Album_26.jpg)
 
-Un jeune homme dans le cabinet d’une voyante russe.
+Jeune homme dans le cabinet d'une voyante, en Russie.
 
 **Homme** :
 
@@ -1077,7 +1084,8 @@ Dans 3125 jours.
 
 ![](Images/Fr_Album_27.jpg)
 
-Clinique d’oncologie en Russie. Cabinet médical. Le patient est assis sur la table d’examen. Le médecin lui bande la poitrine.
+Clinique d’oncologie dans une ville russe. Cabinet médical.
+Le patient est assis sur la table d’examen. Le médecin lui bande la poitrine.
 
 **Patient** :
 
@@ -1096,7 +1104,7 @@ Allez, tenez bon, on prie pour vous.
 
 ![](Images/Fr_Album_28.jpg)
 
-Front ukrainien. Positions russes. Une cuisine de campagne. Dialogue entre le commandant et le cuisinier.
+Front russo-ukrainien. Positions russes. Une cuisine de campagne. Dialogue entre le commandant et le cuisinier.
 
 **Cuisinier** :
 
@@ -1114,7 +1122,7 @@ Quant aux calomniateurs : on marine la viande dans le vinaigre, on met plus de p
 
 ![](Images/Fr_Album_29.jpg)
 
-Conférence de presse de Vladimir Poutine.
+Conférence de presse du président russe, Vladimir Poutine.
 
 **Journaliste** :
 
@@ -1134,7 +1142,7 @@ Moi, je n’en ai pas besoin : ma cote est déjà au plus haut.
 
 ![](Images/Fr_Album_30.jpg)
 
-Commissariat militaire russe.
+Commissariat militaire dans une ville russe.
 Un grand panneau au mur proclame :
 
 Le conscrit doit apporter : 
@@ -1160,7 +1168,8 @@ Le conscrit doit apporter :
 
 ![](Images/Fr_Album_31.jpg)
 
-Salle Saint-Georges, Grand Palais du Kremlin, Moscou. Poutine remet une récompense à un fonctionnaire.
+Salle Saint-Georges, Grand Palais du Kremlin, Moscou, Russie.
+Le président russe, Vladimir Poutine, remet une récompense à un fonctionnaire.
 
 **Poutine** :
 
@@ -1247,7 +1256,7 @@ Inhibe toute pensée critique, empathie ou culpabilité.
 
 ![](Images/Fr_Album_33.jpg)
 
-Réunion d’une commission internationale sur le sabotage du barrage de Kakhovka.
+Réunion d’une commission internationale sur le sabotage du barrage de Kakhovka, en Ukraine.
 
 **Représentant occidental** :
 
@@ -1333,7 +1342,7 @@ Veille de Noël. Des soldats russes en position de combat. Le Père Noël vole d
 
 ![](Images/Fr_Album_38.jpg)
 
-Front ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser dans une piscine de campagne.
+Front russo-ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser dans une piscine de campagne.
 
 **Prêtre** :
 
@@ -1354,7 +1363,7 @@ Front ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser
 
 ![](Images/Fr_Album_39.jpg)
 
-Front ukrainien. Arrière russe. Un prêtre propose aux soldats un crucifix  bénit  "présidentielle".
+Front russo-ukrainien. Arrière russe. Un prêtre propose aux soldats un crucifix  bénit  "présidentielle".
 
 **Prêtre** :
 
@@ -1371,7 +1380,7 @@ Front ukrainien. Arrière russe. Un prêtre propose aux soldats un crucifix  bé
 
 ![](Images/Fr_Album_40.jpg)
 
-Front ukrainien. Arrière russe. Rituel de bénédiction des obus.
+Front russo-ukrainien. Arrière russe. Rituel de bénédiction des obus.
 
 **Premier soldat** :
 
@@ -1395,7 +1404,7 @@ Front ukrainien. Arrière russe. Rituel de bénédiction des obus.
 
 ![](Images/Fr_Album_41.jpg)
 
-Un prêtre prêche devant une église russe.
+Une ville russe. Un prêtre prêche devant une église orthodoxe russe.
 
 **Prêtre** :
 
@@ -1412,7 +1421,7 @@ Un prêtre prêche devant une église russe.
 
 ![](Images/Fr_Album_42.jpg)
 
-« Ligne directe » avec Vladimir Poutine. Le président russe répond aux questions des citoyens en visioconférence, tandis qu’un public est réuni dans la salle.
+« Ligne directe » avec le président russe, Vladimir Poutine. Le président répond aux questions des citoyens en visioconférence, tandis qu’un public est réuni dans la salle.
 
 **Femme dans la salle** (montrant le portrait d’un fonctionnaire) :
 
@@ -1437,7 +1446,7 @@ Un prêtre prêche devant une église russe.
 
 ![](Images/Fr_Album_43.jpg)
 
-Devant un dépôt de pétrole en flammes, deux prêtres russes s’entretiennent avec le Patriarche.
+Une ville russe. Devant un dépôt de pétrole en flammes, deux prêtres  orthodox s’entretiennent avec le patriarche.
 
 **Patriarche** :
 
@@ -1494,6 +1503,7 @@ Vis sans honte pour la Patrie :
 13. Ne doute point : la foi en la télévision te sauvera.
 14. Évite les mots « liberté » et « paix », car ils sont hérétiques.
 15. Tu ne te feras point d’idole hors de la verticale du pouvoir.
+
 Que la loyauté soit avec toi — et tu n’expieras point en prison.
 
 *Extrait de « L’Apocalypse de l'agence russe de contrôle des communications », chap. 666.*
@@ -1510,15 +1520,17 @@ Que la loyauté soit avec toi — et tu n’expieras point en prison.
 **Un triptyque** :
 
 *Panneau 1* :
-Au bureau de recrutement militaire
-Diagnostic : schizophrénie
+Au bureau de recrutement militaire russe.
+
+Diagnostic : schizophrénie.
 
 *Panneau 2* :
-Tribunal russe
-Verdict : Haute trahison
+Tribunal russe.
+
+Verdict : Haute trahison.
 
 *Panneau 3*:
-Colonie pénitentiaire pour pacifistes
+Colonie pénitentiaire pour pacifistes, en Russie.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1527,7 +1539,7 @@ Colonie pénitentiaire pour pacifistes
 
 ![](Images/Fr_Album_47.jpg)
 
-Dans le confessionnal d'une église russe.
+Une ville russe. Confessionnal dans une église russe orthodoxe.
 
 **Le pécheur repentant** :
 
@@ -1561,7 +1573,8 @@ Le Patriarche de toute la Russie se tient à la proue de son yacht luxueux. Tout
 
 ![](Images/Fr_Album_49.jpg)
 
-Dans une école russe, pendant un cours d’éducation familiale. Au tableau — un graphique représentant la natalité en Russie.
+École  dans une ville russe. Cours d’éducation familiale. 
+Au tableau, un graphique représentant la natalité en Russie.
 
 **Élève** :
 
@@ -1631,7 +1644,7 @@ Sortie prévue : 202X
 ![](Images/Fr_Album_51.jpg)
 
 Un bar américain.
-Les présidents Poutine et Trump, une bière à la main, penchés l'un vers l'autre au-dessus de la table.
+Le président russe, Vladimir Poutine, et le président américain, Donald Trump, une bière à la main, penchés l'un vers l'autre au-dessus de la table.
 
 **Trump** :
 
@@ -1716,7 +1729,7 @@ Deux rois, une planète. Santé, Donnie.
 ![](Images/Fr_Album_52.jpg)
 
 Un bar américain.
-Les présidents Poutine et Trump sont assis à une table, une bière à la main.
+Le président russe, Vladimir Poutine, et le président américain, Donald Trump, sont assis à une table, une bière à la main.
 
 **Trump** :
 
@@ -1927,7 +1940,7 @@ Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — t
 
 ![](Images/Fr_Album_54.jpg)
 
-Sermon devant une église russe.
+Une ville russe. Sermon devant une église orthodoxe russe.
 
 **Le prêtre** :
 
@@ -1980,7 +1993,7 @@ Dans une rue d’une ville russe.
 
 ![](Images/Fr_Album_56.jpg)
 
-Au confessionnal d’une église russe.
+Une ville russe. Confessionnal dans une église russe orthodoxe.
 
 **Le pénitent** :
 
@@ -2021,7 +2034,8 @@ Au confessionnal d’une église russe.
 
 ![](Images/Fr_Album_57.jpg)
 
-Le bureau de Poutine au Kremlin. Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui supervise désormais les recherches sur le prolongement de la vie et le ralentissement du vieillissement.
+Russie, Moscou, Kremlin. Bureau du président russe, Vladimir Poutine. 
+Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui supervise désormais les recherches sur le prolongement de la vie et le ralentissement du vieillissement.
 
 **Poutine** (presque affectueusement) :
 
@@ -2122,7 +2136,7 @@ Le bureau de Poutine au Kremlin. Assis à la table : Poutine et Mikhail Kovalchu
 
 ![](Images/Fr_Album_58.jpg)
 
-Salle des séances de la Douma d'État russe. La députée Valentina Bebienko prend la parole à la tribune :
+Russie. Moscou. Salle des séances de la Douma d'État russe. La députée Valentina Bebienko prend la parole à la tribune :
 
 – Chers collègues députés ! Le Président nous a fixé pour tâche de ressusciter la grande Russie – en triplant le taux de natalité. Je ne le cache pas – la tâche n'est pas aisée. C'est une tâche difficile. Super difficile. Mais nous devons la remplir. Parce que notre président le veut. Je propose d'aborder le problème de manière créative. Bien entendu, notre public cible est la jeunesse. Les moins de 30 ans. Après 30 ans, influencer les consciences devient moins facile. Les schémas mentaux sont déjà formés, et une résistance au narratif d'État est observée.
 
