@@ -86,7 +86,7 @@ Don't forget to like, repost, and share the link with your friends. Your engagem
 ![](Images/En_Album_001.jpg)
 
 An American bar.
-President Putin and President Trump are sitting at a table, drinking beer...
+The Russian President, Vladimir Putin, and the US President, Donald Trump, are sitting at a table, drinking beer...
 
 **Trump**:
 
@@ -292,7 +292,7 @@ Are stomped into that consecrated ground.
 >
 • 42 Egyptian God-jurors (wearing masks of Hitler, Mussolini, Lenin, Stalin, Beria, Brezhnev, Zhirinovsky, Dracula, the Devil, and other historical figures)
 >
-• Putin (the defendant)
+• Russian president, Vladimir Putin (the defendant)
 >
 > The hall is illuminated by flickering TV screens broadcasting the court proceedings. Putin stands by gigantic apothecary scales; on one scale pan lies a red paper heart with a gilded engraving: "Putin: 86%". The other pan is empty, yet the scales balance each other.
 
@@ -579,7 +579,7 @@ If accidentally ingested by an independent journalist or human rights activist, 
 
 ![](Images/En_Album_01.jpg)
 
-Russian military enlistment office. Two officers sit at a desk, facing a pop singer.
+A military enlistment office in a Russian town. Two officers sit at a desk, facing a pop singer.
 
 **First officer:**
 
@@ -600,7 +600,7 @@ Russian military enlistment office. Two officers sit at a desk, facing a pop sin
 
 ![](Images/En_Album_02.jpg)
 
-Typical Moscow apartment block, elevator hall. A sign on the garbage chute:
+Russia. Typical Moscow apartment block, elevator hall. A sign on the garbage chute:
 *“Don’t throw away tin cans! Make a trench candle for front!”*
 
 #OrthodoxMilitaryPutinism
@@ -658,7 +658,7 @@ Three women pray to a portrait of Putin before a new apartment block.
 
 ![](Images/En_Album_05.jpg)
 
-Studio of famous Russian propagandist Vladimir Solovyov, on air. He talks with an even more famous propagandist — Margarita Simonyan.
+Russia. Moscow. Studio of famous Russian propagandist Vladimir Solovyov, on air. He talks with an even more famous propagandist — Margarita Simonyan.
 
 **Solovyov:**
 
@@ -675,8 +675,8 @@ Studio of famous Russian propagandist Vladimir Solovyov, on air. He talks with a
 
  ![](Images/En_Album_06.jpg)
 
-Press conference of the Russian president.
-A foreign journalist addresses Vladimir Putin.
+Press conference with the Russian president, Vladimir Putin.
+A foreign journalist asks questions.
 
 **Journalist:**
 
@@ -693,7 +693,8 @@ A foreign journalist addresses Vladimir Putin.
 
 ![](Images/En_Album_07.jpg)
 
-The Russian president’s office. A giant plasma screen on the wall shows the news. Vladimir Putin and Health Minister Michael Murashko sit at the table. 
+Russia, Moscow, the Kremlin.
+The Russian president, Vladimir Putin, and the Health Minister, Michael Murashko, are seated at the table.
 News report on TV:  the new Russian budget increases healthcare spending by 30%.
 
 **Putin:**
@@ -711,7 +712,7 @@ News report on TV:  the new Russian budget increases healthcare spending by 30%.
 
 ![](Images/En_Album_08.jpg)
 
-Leisure center for pensioners in Moscow. Two old ladies and an old man are weaving a camouflage net for the front.
+Leisure center for pensioners in Moscow, Russia. Two old ladies and an old man are weaving a camouflage net for the front.
 
 **Old man:**
 
@@ -736,7 +737,8 @@ Leisure center for pensioners in Moscow. Two old ladies and an old man are weavi
 
 ![](Images/En_Album_09.jpg)
 
-The Russian president’s office. A giant plasma screen on the wall shows U.S. president Joe Biden shaking hands with Ukrainian president Vladimir Zelensky. Vladimir Putin is seated at the table with Security Council Secretary Nikolai Patrushev.
+Russia, Moscow, the Kremlin.
+The Russian president, Vladimir Putin, is seated at the table with the Security Council Secretary, Nikolai Patrushev. TV shows the U.S. president, Joe Biden, shaking hands with the Ukrainian president, Vladimir Zelensky. 
 
 **Putin (with cold fury)**:
 
@@ -753,7 +755,7 @@ The Russian president’s office. A giant plasma screen on the wall shows U.S. p
 
 ![](Images/En_Album_10.jpg)
 
-The Russian-Ukrainian front, a dugout HQ.
+Russian-Ukrainian front, a dugout HQ.
 The commander and his sergeant are talking.
 
 **Sergeant:**
@@ -793,7 +795,7 @@ Russian justice is the most humane in the world!
 
 ![](Images/En_Album_12.jpg)
 
-The hall of the Russian State Duma. A budget discussion is underway.
+Russia. Moscow. The State Duma chamber. A budget discussion is underway.
 
 **First deputy:**
 
@@ -839,7 +841,7 @@ A Russian courtroom: the defendant, his lawyer, and the judge.
 
 ![](Images/En_Album_14.jpg)
 
-A session of the Russian State Duma. Speaker Vyacheslav Volodin delivers a fiery speech.
+Russia. Moscow. The State Duma chamber. Its speaker, Vyacheslav Volodin delivers a fiery speech.
 
 **Volodin (in solemn tones)**:
 
@@ -870,7 +872,7 @@ We will fight these scoundrels. We are passing a law on preventive confiscation:
 
 ![](Images/En_Album_15.jpg)
 
-Putin dreams, as though he and Defense Minister Sergei Shoigu were fishing on the Dnieper River.
+The Russian president, Vladimir Putin, dreams, as though he and the Russian defense minister, Sergei Shoigu, were fishing on the Dnieper River in Ukraine.
 
 **Shoigu:**
 
@@ -895,7 +897,7 @@ Putin dreams, as though he and Defense Minister Sergei Shoigu were fishing on th
 
 ![](Images/En_Album_16.jpg)
 
-Briefing at the Russian Ministry of Defense. 
+Russian Ministry of Defense briefing led by General Konashenkov, chief of the Department of Information.
 
 **Journalist:**
 
@@ -920,7 +922,7 @@ Briefing at the Russian Ministry of Defense.
 
 ![](Images/En_Album_17.jpg)
 
-A confessional in a Russian church. Behind the screen, a priest. A young girl is confessing, sobbing.
+Russia. A confessional in a Russian Orthodox church. Behind the screen, a priest. A young girl is confessing, sobbing.
 
 **The Girl:**
 
@@ -938,7 +940,7 @@ A confessional in a Russian church. Behind the screen, a priest. A young girl is
 
 ![](Images/En_Album_18.jpg)
 
-At the frontline in Ukraine. Russian soldiers haggle with a prostitute. Nearby, a priest is preaching.
+At the Russian-Ukrainian frontline. Russian soldiers haggle with a prostitute. Nearby, a priest is preaching.
 
 **Priest:**
 
@@ -956,7 +958,7 @@ Repent, warriors! Cease your filthy sin! A real warrior holds a weapon, not his 
 
 ![](Images/En_Album_19.jpg)
 
-A Russian kindergarten. The air raid siren wails. Children lie face down on the floor.
+Kindergarten in a Russian town. The air raid siren wails. Children lie face down on the floor.
 
 **First child:**
 
@@ -981,7 +983,8 @@ A Russian kindergarten. The air raid siren wails. Children lie face down on the 
 
 ![](Images/En_Album_20.jpg)
 
-A lesson called “Conversations About the Important” in a Russian school.
+School in  a Russian town.
+Lesson called “Conversations About the Important” 
 
 **Teacher:**
 
@@ -1014,7 +1017,7 @@ A lesson called “Conversations About the Important” in a Russian school.
 
 ![](Images/En_Album_21.jpg)
 
-A meeting of the UN Security Council.
+UN Security Council meeting.
 
 **Representative of Ukraine:**
 
@@ -1031,7 +1034,7 @@ A meeting of the UN Security Council.
 
 ![](Images/En_Album_22.jpg)
 
-Ukrainian front. Far in the rear. Soldiers lined up. Russian Defense Minister Sergey Shoigu addresses them.
+Russian-Ukrainian front. Far in the rear. Soldiers lined up. Russian Defense Minister Sergey Shoigu addresses them.
 
 **Soldier:**
 
@@ -1073,7 +1076,8 @@ UN Security Council meeting.
 
 ![](Images/En_Album_24.jpg)
 
-Dialogue in a typical Moscow apartment: landlady, neighbor, policeman.
+Russia. Moscow.
+Dialogue in a typical city apartment: landlady, neighbor, policeman.
 
 **Neighbor:**
 
@@ -1094,7 +1098,7 @@ Dialogue in a typical Moscow apartment: landlady, neighbor, policeman.
 
 ![](Images/En_Album_25.jpg)
 
-Russian dental clinic. On the office door, a sign reads: “No filling material available!” In the hall, a dentist talks to a patient.
+Dental clinic in a Russian town. On the office door, a sign reads: “No filling material available!” In the hall, a dentist talks to a patient.
 
 **Dentist:**
 
@@ -1111,7 +1115,7 @@ Russian dental clinic. On the office door, a sign reads: “No filling material 
 
 ![](Images/En_Album_26.jpg)
 
-A young man in a Russian fortune teller’s parlor. 
+A young man in a fortune teller’s parlor in a Russian town.
 
 **Man:**
 
@@ -1129,8 +1133,8 @@ In 3125 days.
 
 ![](Images/En_Album_27.jpg)
 
-A Russian oncology clinic.
-In the doctor’s office: the patient sits on the examination table. The doctor, in a white coat, is bandaging his chest.
+Oncology clinic in a Russian town.
+In the doctor’s office: the patient sits on the examination table. The doctor is bandaging his chest.
 
 **Patient:**
 
@@ -1149,7 +1153,7 @@ Nurse! Holy water injection! Hold on — we’re praying for you.
 
 ![](Images/En_Album_28.jpg)
 
-Ukrainian front. Russian positions.
+Russian-Ukrainian front. Russian positions.
 A field kitchen. The cook speaks with the captain.
 
 **Cook:**
@@ -1168,7 +1172,7 @@ And to silence the slanderers: we soak the meat in vinegar, add extra pepper to 
 
 ![](Images/En_Album_29.jpg)
 
-A press conference with Vladimir Putin.
+Press conference with the Russian president, Vladimir Putin.
 
 **Correspondent:**
 
@@ -1187,7 +1191,7 @@ I don’t need that. My ratings are already high.
 
 ![](Images/En_Album_30.jpg)
 
-Inside a Russian military commissariat.
+Inside a military commissariat in a  Russian town.
 A large poster on the wall reads:
 
 A conscript must bring: 
@@ -1213,7 +1217,7 @@ A conscript must bring:
 
 ![](Images/En_Album_31.jpg)
 
-St. George’s Hall, Grand Kremlin Palace, Moscow. Vladimir Putin presents an award to an official.
+St. George’s Hall, Grand Kremlin Palace, Moscow, Russia. The Russian president, Vladimir Putin, presents an award to an official.
 
 **Putin:**
 
@@ -1298,7 +1302,7 @@ Induces persistent fear, periodic fits of aggression, and bursts of patriotic en
 
 ![](Images/En_Album_33.jpg)
 
-Session of the International Commission on the destruction of the Kakhovka Hydroelectric Dam.
+Session of the International Commission on the destruction of the Kakhovka Hydroelectric Dam in Ukraine.
 
 **Western representative:**
 
@@ -1384,7 +1388,7 @@ Christmas Eve. Russian soldiers at a combat position. High above Santa Claus is 
 
 ![](Images/En_Album_38.jpg)
 
-Ukrainian front. Russian positions. A priest urges soldiers to baptize themselves in a field “font.”
+Russian-Ukrainian front. Russian positions. A priest urges soldiers to baptize themselves in a field “font.”
 
 **Priest:**
 
@@ -1405,7 +1409,7 @@ Ukrainian front. Russian positions. A priest urges soldiers to baptize themselve
 
 ![](Images/En_Album_39.jpg)
 
-Ukrainian front. Russian rear camp. A priest offers soldiers “presidential” crosses as talismans.
+Russian-Ukrainian front. Russian rear camp. A priest offers soldiers “presidential” crosses as talismans.
 
 **Priest:**
 
@@ -1422,7 +1426,7 @@ Ukrainian front. Russian rear camp. A priest offers soldiers “presidential” 
 
 ![](Images/En_Album_40.jpg)
 
-The Ukrainian front. Russian rear positions. A ritual of blessing ammunition.
+Russian-Ukrainian front. Russian rear positions. A ritual of blessing ammunition.
 
 **First soldier:**
 
@@ -1447,7 +1451,8 @@ The Ukrainian front. Russian rear positions. A ritual of blessing ammunition.
 
 ![](Images/En_Album_41.jpg)
 
-At the entrance of a Russian church, a  priest delivers a sermon.
+Russia.
+At the entrance of a Russian Orthodox church, a  priest delivers a sermon.
 
 **Priest:**
 
@@ -1464,7 +1469,7 @@ At the entrance of a Russian church, a  priest delivers a sermon.
 
 ![](Images/En_Album_42.jpg)
 
-“Direct Line” with Vladimir Putin. The president takes questions from citizens via video link, with guests seated in the hall.
+“Direct Line” with The Russian president, Vladimir Putin. The president takes questions from citizens via video link, with guests seated in the hall.
 
 **Woman from the hall** (pointing at an official’s portrait):
 
@@ -1489,7 +1494,8 @@ At the entrance of a Russian church, a  priest delivers a sermon.
 
 ![](Images/En_Album_43.jpg)
 
-Against the backdrop of a burning oil depot, two Russian priests talk to the Patriarch.
+Russia.
+Against the backdrop of a burning oil depot, two Russian Orthodox priests talk to the patriarch.
 
 **Patriarch:**
 
@@ -1563,19 +1569,19 @@ May loyalty be with you — and ye shall not perish in prison.
 
 *Panel 1:*
 
-At the draft office
+At the draft office, Russia.
 
-Diagnosis: schizophrenia
+Diagnosis: schizophrenia.
 
 *Panel 2:*
 
-Russian court
+Russian court.
 
-Verdict: treason 
+Verdict: treason. 
 
 *Panel 3:*
 
-Correctional colony for pacifists
+Correctional colony for pacifists, Russia.
 
 #OrthodoxMilitaryPutinism
                                 👻
@@ -1584,7 +1590,7 @@ Correctional colony for pacifists
 
 ![](Images/En_Album_47.jpg)
 
-In the confessional of a Russian church.
+Russia. In the confessional of a Russian Orthodox church.
 
 **Repentant sinner:**
 
@@ -1620,7 +1626,7 @@ The Patriarch of All Russia stands on the bow of his luxurious yacht. Nearby, in
 
 ![](Images/En_Album_49.jpg)
 
-A Russian school, family studies class. On the board, a diagram illustrating Russia’s birth rate.
+Family studies class at a school in Russia. On the board, a diagram illustrating Russia’s birth rate.
 
 **Student:**
 
@@ -1687,7 +1693,7 @@ Scheduled Release: 202X
 ![](Images/En_Album_51.jpg)
 
 American bar.
-President Putin and President Trump, beers in hand, leaning across the table.
+The Russian President, Vladimir Putin, and the US President, Donald Trump, beers in hand, leaning across the table.
 
 **Trump**:
 
@@ -1778,7 +1784,7 @@ Two kings, one planet. Cheers, Donnie.
 ![](Images/En_Album_52.jpg)
 
 An American bar.
-President Putin and President Trump are sitting at a table, drinking beer.
+The Russian President, Vladimir Putin, and the US President, Donald Trump, are sitting at a table, drinking beer.
 
 **Trump**:
 
@@ -1998,7 +2004,8 @@ A consultation in a psychiatric hospital. In the office at the table — three v
 
 ![](Images/En_Album_54.jpg)
 
-Sermon in front of a Russian church.
+Russia.
+Sermon in front of a Russian Orthodox church.
 
 **Priest:**
 
@@ -2051,7 +2058,7 @@ On a street in a Russian town.
 
 ![](Images/En_Album_56.jpg)
 
-In the confessional of a Russian church.
+Russia. In the confessional of a Russian Orthodox church.
 
 **Penitent:**
 
@@ -2092,7 +2099,8 @@ In the confessional of a Russian church.
 
 ![](Images/En_Album_57.jpg)
 
-Putin's office in the Kremlin. Seated at the table are: Putin and Mikhail Kovalchuk, an old friend of his, now overseeing research in life extension and slowing aging.
+Russia, Moscow, the Kremlin, the President’s office. 
+Seated at the table are: the Russian president, Vladimir Putin, and Mikhail Kovalchuk, an old friend of his, now overseeing research in life extension and slowing aging.
 
 **Putin** (almost affectionately):
 
@@ -2193,7 +2201,7 @@ Putin's office in the Kremlin. Seated at the table are: Putin and Mikhail Kovalc
 
 ![](Images/En_Album_58.jpg)
 
-The hall of the Russian State Duma. Deputy Valentina Bebienko speaks from the podium:
+Russia. Moscow. The hall of the State Duma. Deputy Valentina Bebienko speaks from the podium:
 
 – Dear deputies! The President has set us the task of reviving great Russia tripling the birth rate. I won’t deny  it – the task is not easy. It's a difficult task. A super difficult one. But we are obliged to fulfill it. Because our president wants us to. I propose we approach the problem creatively. Of course, our target audience is young people. Under 30. After 30, influencing one's consciousness is not so easy. Mental patterns are already formed, and resistance to the state narrative is observed.
 
