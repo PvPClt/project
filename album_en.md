@@ -1,4 +1,4 @@
-**Shcheglova Olga (Boris Bidyaga)**
+,**Shcheglova Olga (Boris Bidyaga)**
 
 # 🇬🇧 ALBUM OF SATIRICAL MINIATURES "WARD №666"
 
@@ -465,15 +465,15 @@ The defendant is acquitted.
 >
 > The miniature is based on the ancient Egyptian myth of the Judgment of Osiris. According to the "Book of the Dead," the soul of the deceased was brought into the Hall of Two Truths, where it faced:
 >
-— Osiris — god of the underworld, presiding judge.
+> — Osiris — god of the underworld, presiding judge.
 >
-— Maat — goddess of truth and justice, the standard of purity.
+> — Maat — goddess of truth and justice, the standard of purity.
 >
-— Anubis — jackal-headed god who conducted the weighing of the heart.
+> — Anubis — jackal-headed god who conducted the weighing of the heart.
 >
-— Thoth — god of wisdom, court scribe.
+> — Thoth — god of wisdom, court scribe.
 >
-— 42 God-jurors — each responsible for one specific sin; the deceased had to swear before each god that he had not committed that sin.
+> — 42 God-jurors — each responsible for one specific sin; the deceased had to swear before each god that he had not committed that sin.
 >
 > The main procedure — the weighing of the heart: the heart of the deceased was placed on one scale pan, and the feather of Maat on the other. If the heart was "lighter than the feather," the soul was deemed pure and granted eternal life; if heavier, it faced annihilation. This ritual symbolized absolute justice and the impossibility of deception.
 
