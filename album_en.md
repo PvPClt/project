@@ -580,7 +580,7 @@ If accidentally ingested by an independent journalist or human rights activist, 
 #OrthodoxMilitaryPutinism
                             👻
 
-## 1. PATRIOTISM WITH A SOCK ON THE DICK
+## 1. PATRIOTISM WITH SOCK ON DICK
 
 ![](Images/En_Album_01.jpg)
 
@@ -678,7 +678,7 @@ Russia. Moscow. Studio of famous Russian propagandist Vladimir Solovyov, on air.
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 6. THE BOOT AS A DEMARCATION TOOL
+## 6. BOOT AS DEMARCATION TOOL
 
  ![](Images/En_Album_06.jpg)
 
@@ -822,11 +822,11 @@ Russia, Moscow, State Duma chamber. Budget discussion.
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 13. DEADLY WEAPON: A PLASTIC CUP
+## 13. DEADLY WEAPON: PLASTIC CUP
 
 ![](Images/En_Album_13.jpg)
 
-A Russian courtroom: the defendant, his lawyer, and the judge.
+Russian town, Courtroom: defendant, lawyer, and judge.
 
 **Defendant:**
 
@@ -847,7 +847,8 @@ A Russian courtroom: the defendant, his lawyer, and the judge.
 
 ![](Images/En_Album_14.jpg)
 
-Russia. Moscow. The State Duma chamber. Its speaker, Vyacheslav Volodin delivers a fiery speech.
+Russia, Moscow, State Duma chamber. 
+Its Speaker, Vyacheslav Volodin, at podium.
 
 **Volodin (in solemn tones)**:
 
@@ -878,7 +879,7 @@ We will fight these scoundrels. We are passing a law on preventive confiscation:
 
 ![](Images/En_Album_15.jpg)
 
-The Russian president, Vladimir Putin, dreams, as though he and the Russian defense minister, Sergei Shoigu, were fishing on the Dnieper River in Ukraine.
+Dream of Russian President Vladimir Putin: he himself and Defense Minister Sergei Shoigu fishing on Dnieper River, Ukraine.
 
 **Shoigu:**
 
@@ -928,7 +929,7 @@ Russian Ministry of Defense briefing led by General Konashenkov, chief of the De
 
 ![](Images/En_Album_17.jpg)
 
-Russia. A confessional in a Russian Orthodox church. Behind the screen, a priest. A young girl is confessing, sobbing.
+Russia. Confessional in Russian Orthodox church. Behind screen, priest. Young girl confessing, sobbing.
 
 **The Girl:**
 
@@ -942,11 +943,11 @@ Russia. A confessional in a Russian Orthodox church. Behind the screen, a priest
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 18. NO VICTORY WITH YOUR DICK IN YOUR HAND!
+## 18. NO VICTORY WITH DICK IN HAND!
 
 ![](Images/En_Album_18.jpg)
 
-At the Russian-Ukrainian frontline. Russian soldiers haggle with a prostitute. Nearby, a priest is preaching.
+Russian-Ukrainian frontline. Russian soldiers haggle with prostitute. Nearby, priest preaches.
 
 **Priest:**
 
@@ -964,7 +965,7 @@ Repent, warriors! Cease your filthy sin! A real warrior holds a weapon, not his 
 
 ![](Images/En_Album_19.jpg)
 
-Kindergarten in a Russian town. The air raid siren wails. Children lie face down on the floor.
+Kindergarten, Russian town. Air raid siren wails. Children lie face down on floor.
 
 **First child:**
 
@@ -989,8 +990,7 @@ Kindergarten in a Russian town. The air raid siren wails. Children lie face down
 
 ![](Images/En_Album_20.jpg)
 
-School in  a Russian town.
-Lesson called “Conversations About the Important” 
+School, Russian town. Lesson: "Conversations About the Important".
 
 **Teacher:**
 
@@ -1040,7 +1040,7 @@ UN Security Council meeting.
 
 ![](Images/En_Album_22.jpg)
 
-Russian-Ukrainian front. Far in the rear. Soldiers lined up. Russian Defense Minister Sergey Shoigu addresses them.
+Russian-Ukrainian front, Russian rear positions. Soldiers lined up. Russian Defense Minister Sergei Shoigu addresses them.
 
 **Soldier:**
 
@@ -1082,8 +1082,7 @@ UN Security Council meeting.
 
 ![](Images/En_Album_24.jpg)
 
-Russia. Moscow.
-Dialogue in a typical city apartment: landlady, neighbor, policeman.
+Russia, Moscow. Dialogue inside apartment: landlady, neighbor, policeman.
 
 **Neighbor:**
 
@@ -1104,7 +1103,8 @@ Dialogue in a typical city apartment: landlady, neighbor, policeman.
 
 ![](Images/En_Album_25.jpg)
 
-Dental clinic in a Russian town. On the office door, a sign reads: “No filling material available!” In the hall, a dentist talks to a patient.
+Dental clinic, Russian town.
+Sign on office door: “No filling material available!” In hall, dentist talks to patient.
 
 **Dentist:**
 
@@ -1117,11 +1117,12 @@ Dental clinic in a Russian town. On the office door, a sign reads: “No filling
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 26. AT THE FORTUNE-TELLER'S: NUMBERS NEVER LIE
+## 26. AT FORTUNE-TELLER'S: NUMBERS NEVER LIE
 
 ![](Images/En_Album_26.jpg)
 
-A young man in a fortune teller’s parlor in a Russian town.
+Russian town, fortune teller’s parlor.
+Young man inside.
 
 **Man:**
 
@@ -1139,8 +1140,8 @@ In 3125 days.
 
 ![](Images/En_Album_27.jpg)
 
-Oncology clinic in a Russian town.
-In the doctor’s office: the patient sits on the examination table. The doctor is bandaging his chest.
+Russian town, oncology clinic. 
+Doctor’s office. Patient on examination table, doctor bandaging his chest.
 
 **Patient:**
 
@@ -1159,8 +1160,7 @@ Nurse! Holy water injection! Hold on — we’re praying for you.
 
 ![](Images/En_Album_28.jpg)
 
-Russian-Ukrainian front. Russian positions.
-A field kitchen. The cook speaks with the captain.
+Russian-Ukrainian front, Russian positions. Field kitchen. Cook and captain in conversation.
 
 **Cook:**
 
@@ -1174,11 +1174,11 @@ And to silence the slanderers: we soak the meat in vinegar, add extra pepper to 
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 29. NOT THE TSAR’S BUSINESS...
+## 29. NOT TSAR’S BUSINESS...
 
 ![](Images/En_Album_29.jpg)
 
-Press conference with the Russian president, Vladimir Putin.
+Press conference with Russian president Vladimir Putin.
 
 **Correspondent:**
 
@@ -1193,12 +1193,11 @@ I don’t need that. My ratings are already high.
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 30. THE MOTHERLAND OWES THE SOLDIER NOTHING — EXCEPT FUNERAL HONORS
+## 30. MOTHERLAND OWES SOLDIER NOTHING — EXCEPT FUNERAL HONORS
 
 ![](Images/En_Album_30.jpg)
 
-Inside a military commissariat in a  Russian town.
-A large poster on the wall reads:
+Russian town, military enlistment office. Large poster on wall lists required supplies for conscripts.
 
 A conscript must bring: 
 
@@ -1219,11 +1218,12 @@ A conscript must bring:
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 31. INSURANCE AGAINST DISLOYALTY: CIVIL SERVICE WITH A SELF-DESTRUCTION CLAUSE
+## 31. INSURANCE AGAINST DISLOYALTY: CIVIL SERVICE WITH SELF-DESTRUCTION CLAUSE
 
 ![](Images/En_Album_31.jpg)
 
-St. George’s Hall, Grand Kremlin Palace, Moscow, Russia. The Russian president, Vladimir Putin, presents an award to an official.
+St. George’s Hall, Grand Kremlin Palace, Moscow, Russia. 
+Russian President Vladimir Putin presents award to official.
 
 **Putin:**
 
@@ -1304,11 +1304,11 @@ Induces persistent fear, periodic fits of aggression, and bursts of patriotic en
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 33. A NET SACK OF TNT: NATO’S KILLER DOLPHINS STRIKE!
+## 33. NET SACK OF TNT: NATO’S KILLER DOLPHINS STRIKE!
 
 ![](Images/En_Album_33.jpg)
 
-Session of the International Commission on the destruction of the Kakhovka Hydroelectric Dam in Ukraine.
+Session of International Commission on destruction of Kakhovka Hydroelectric Dam in Ukraine.
 
 **Western representative:**
 
@@ -1321,12 +1321,12 @@ Session of the International Commission on the destruction of the Kakhovka Hydro
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 34. THE BARN HAS WRITINGS TOO...
+## 34. BARN HAS WRITINGS TOO...
 
 ![](Images/En_Album_34.jpg)
 
 Russian military airfield.
-Dialogue between a Russian pilot and an Ukrainian journalist.
+Dialogue between Russian pilot and Ukrainian journalist.
 
 **Ukrainian:**
 
@@ -1343,7 +1343,7 @@ Dialogue between a Russian pilot and an Ukrainian journalist.
 
 ![](Images/En_Album_35.jpg)
 
-UN Security Council meeting. Commotion in the chamber.
+UN Security Council meeting. Commotion in chamber.
 
 **Ukrainian representative** (addressing Russia):
 
@@ -1360,7 +1360,7 @@ UN Security Council meeting. Commotion in the chamber.
 
 ![](Images/En_Album_36.jpg)
 
-Parade ground. A Russian unit stands in formation. The General paces before them.
+Parade ground, Russian military unit. General paces before formation.
 
 **Soldier:**
 
@@ -1377,7 +1377,7 @@ Parade ground. A Russian unit stands in formation. The General paces before them
 
 ![](Images/En_Album_37.jpg)
 
-Christmas Eve. Russian soldiers at a combat position. High above Santa Claus is flying across the sky with a sack of gifts.
+Christmas Eve. Russian soldiers at combat position. Santa Claus with sack of gifts flies across sky above them.
 
 **First soldier:**
 
@@ -1394,7 +1394,7 @@ Christmas Eve. Russian soldiers at a combat position. High above Santa Claus is 
 
 ![](Images/En_Album_38.jpg)
 
-Russian-Ukrainian front. Russian positions. A priest urges soldiers to baptize themselves in a field “font.”
+Russian-Ukrainian front, Russian positions. Priest urges soldiers to baptize themselves in field “font.”
 
 **Priest:**
 
@@ -1411,11 +1411,11 @@ Russian-Ukrainian front. Russian positions. A priest urges soldiers to baptize t
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 39. WANT TO BE A SAINT? HANG ON A CROSS
+## 39. WANT TO BE SAINT? HANG ON CROSS
 
 ![](Images/En_Album_39.jpg)
 
-Russian-Ukrainian front. Russian rear camp. A priest offers soldiers “presidential” crosses as talismans.
+Russian-Ukrainian front, Russian rear camp. Priest offers soldiers “presidential” crosses as talismans.
 
 **Priest:**
 
@@ -1432,7 +1432,7 @@ Russian-Ukrainian front. Russian rear camp. A priest offers soldiers “presiden
 
 ![](Images/En_Album_40.jpg)
 
-Russian-Ukrainian front. Russian rear positions. A ritual of blessing ammunition.
+Russian-Ukrainian front, Russian positions. Ritual of blessing ammunition.
 
 **First soldier:**
 
@@ -1457,8 +1457,7 @@ Russian-Ukrainian front. Russian rear positions. A ritual of blessing ammunition
 
 ![](Images/En_Album_41.jpg)
 
-Russia.
-At the entrance of a Russian Orthodox church, a  priest delivers a sermon.
+Russia. Entrance of Russian Orthodox church. Priest delivers sermon.
 
 **Priest:**
 
@@ -1475,9 +1474,9 @@ At the entrance of a Russian Orthodox church, a  priest delivers a sermon.
 
 ![](Images/En_Album_42.jpg)
 
-“Direct Line” with The Russian president, Vladimir Putin. The president takes questions from citizens via video link, with guests seated in the hall.
+“Direct Line” with Russian President Vladimir Putin. President takes questions via video link, invited audience in hall.
 
-**Woman from the hall** (pointing at an official’s portrait):
+**Woman from hall** (pointing at official’s portrait):
 
 — This man killed my husband. Now he teaches children courage — and he’s the mayor of our city. Why?
 
@@ -1485,11 +1484,11 @@ At the entrance of a Russian Orthodox church, a  priest delivers a sermon.
 
 — He redeemed himself at the front. He paid for his past with blood. He is a hero — our new elite.
 
-**First viewer, hiding his face**:
+**First viewer, hiding face**:
 
 — Have killed a hundred Ukrainians — forgiven...
 
-**Second viewer, hiding his face**:
+**Second viewer, hiding face**:
 
 — Kill, rob, rape! Half a year at the front wipes everything clean...
 
@@ -1500,8 +1499,7 @@ At the entrance of a Russian Orthodox church, a  priest delivers a sermon.
 
 ![](Images/En_Album_43.jpg)
 
-Russia.
-Against the backdrop of a burning oil depot, two Russian Orthodox priests talk to the patriarch.
+Russia. Burning oil depot. Two Russian Orthodox priests talk to Patriarch.
 
 **Patriarch:**
 
@@ -1573,17 +1571,17 @@ May loyalty be with you — and ye shall not perish in prison.
 
 **A triptych:**
 
-*Panel 1:*
+*Panel 1*
 
-At the draft office, Russia.
+Draft office, Russia. 
 
-Diagnosis: schizophrenia.
+Diagnosis: schizophrenia.  
 
 *Panel 2:*
 
-Russian court.
+Courtroom, Russia.
 
-Verdict: treason. 
+Verdict: treason.
 
 *Panel 3:*
 
@@ -1596,7 +1594,7 @@ Correctional colony for pacifists, Russia.
 
 ![](Images/En_Album_47.jpg)
 
-Russia. In the confessional of a Russian Orthodox church.
+Russia. Confessional in Russian Orthodox church.
 
 **Repentant sinner:**
 
@@ -1611,11 +1609,11 @@ Run the file "Ukraine_Deleted.exe".
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 48. PARABLE OF THE FISHERMAN AND THE PATRIARCH: FAITH FOR THE POOR, YACHTS FOR THE RICH
+## 48. PARABLE OF FISHERMAN AND PATRIARCH: FAITH FOR POOR, YACHTS FOR RICH
 
 ![](Images/En_Album_48.jpg)
 
-The Patriarch of All Russia stands on the bow of his luxurious yacht. Nearby, in a shabby boat, sit two fishermen.
+Patriarch of All Russia on bow of his luxury yacht. Nearby, two fishermen in shabby boat.
 
 **Fisherman:**
 
@@ -1632,7 +1630,7 @@ The Patriarch of All Russia stands on the bow of his luxurious yacht. Nearby, in
 
 ![](Images/En_Album_49.jpg)
 
-Family studies class at a school in Russia. On the board, a diagram illustrating Russia’s birth rate.
+Family studies class, school in Russia. Diagram of Russia’s birth rate on blackboard.
 
 **Student:**
 
@@ -1645,11 +1643,11 @@ Family studies class at a school in Russia. On the board, a diagram illustrating
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 50. PUTIN 2.0: THE SPIRAL OF HISTORY
+## 50. PUTIN 2.0: SPIRAL OF HISTORY
 
 ![](Images/En_Album_50.jpg)
 
-Exhibit at the Museum of Historical Parallels. On the wall — three official portraits:
+Exhibit at Museum of Historical Parallels. On wall — three official portraits:
 
 ✓ Tsar Nicholas II — “Nicholas II”
 
@@ -1698,8 +1696,7 @@ Scheduled Release: 202X
 
 ![](Images/En_Album_51.jpg)
 
-American bar.
-The Russian President, Vladimir Putin, and the US President, Donald Trump, beers in hand, leaning across the table.
+American bar. Russian President Vladimir Putin and US President Donald Trump, beer in hand, leaning across table.
 
 **Trump**:
 
@@ -1785,12 +1782,11 @@ Two kings, one planet. Cheers, Donnie.
 #OrthodoxMilitaryPutinism
                               👻
 
-## 52. PUTIN'S SNOW JOB: A BLOW-BY-BLOW GUIDE-LIE TO DIE FOR
+## 52. PUTIN'S SNOW JOB: BLOW-BY-BLOW GUIDE-LIE TO DIE FOR
 
 ![](Images/En_Album_52.jpg)
 
-An American bar.
-The Russian President, Vladimir Putin, and the US President, Donald Trump, are sitting at a table, drinking beer.
+American bar. Russian President Vladimir Putin and US President Donald Trump at table, drinking beer.
 
 **Trump**:
 
@@ -1909,7 +1905,7 @@ That wasn’t a man, that was a walking corpse!
 
 ![](Images/En_Album_53.jpg)
 
-A consultation in a psychiatric hospital. In the office at the table — three venerable professors.
+Consultation in psychiatric hospital. Three professors at table.
 
 **First Professor**:
 
@@ -2011,13 +2007,13 @@ A consultation in a psychiatric hospital. In the office at the table — three v
 ![](Images/En_Album_54.jpg)
 
 Russia.
-Sermon in front of a Russian Orthodox church.
+Sermon in front of Russian Orthodox church.
 
 **Priest:**
 
 — Why do you spill your seed into the toilet? That is a grave sin! The woman's womb is the only vessel blessed by God for your seed!
 
-**Man from the crowd:**
+**Man from crowd:**
 
 — The womb? It's closed all the time. For inventory. VIP members only.
 
@@ -2025,7 +2021,7 @@ Sermon in front of a Russian Orthodox church.
 
 — Do not blaspheme, my son! The womb is not a canned goods warehouse!
 
-**Woman from the crowd:**
+**Woman from crowd:**
 
 — "VIP members"? You mean the FSB, don't you?
 
@@ -2037,7 +2033,7 @@ Sermon in front of a Russian Orthodox church.
 ![](Images/En_Album_55_1.jpg)
 ![](Images/En_Album_55_2.jpg)
 
-On a street in a Russian town.
+Street in Russian town.
 
 **Police Officer:**
 
@@ -2060,11 +2056,11 @@ On a street in a Russian town.
 #OrthodoxMilitaryPutinism  
                                 👻
 
-## 56. THE CONFESSIONAL OF DISTORTED MIRRORS
+## 56. CONFESSIONAL OF DISTORTED MIRRORS
 
 ![](Images/En_Album_56.jpg)
 
-Russia. In the confessional of a Russian Orthodox church.
+Russia. Confessional of Russian Orthodox church.
 
 **Penitent:**
 
@@ -2105,8 +2101,7 @@ Russia. In the confessional of a Russian Orthodox church.
 
 ![](Images/En_Album_57.jpg)
 
-Russia, Moscow, the Kremlin, the President’s office. 
-Seated at the table are: the Russian president, Vladimir Putin, and Mikhail Kovalchuk, an old friend of his, now overseeing research in life extension and slowing aging.
+Russia, Kremlin, President’s office. Russian President Vladimir Putin and Mikhail Kovalchuk, his old friend, now overseeing life-extension research, at table.
 
 **Putin** (almost affectionately):
 
@@ -2203,11 +2198,12 @@ Seated at the table are: the Russian president, Vladimir Putin, and Mikhail Kova
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 58. BLESSED ARE THE COPULATORS...
+## 58. BLESSED ARE COPULATORS...
 
 ![](Images/En_Album_58.jpg)
 
-Russia. Moscow. The hall of the State Duma. Deputy Valentina Bebienko speaks from the podium:
+Russia, Moscow, State Duma hall. 
+Deputy Valentina Bebienko speaks from podium:
 
 – Dear deputies! The President has set us the task of reviving great Russia tripling the birth rate. I won’t deny  it – the task is not easy. It's a difficult task. A super difficult one. But we are obliged to fulfill it. Because our president wants us to. I propose we approach the problem creatively. Of course, our target audience is young people. Under 30. After 30, influencing one's consciousness is not so easy. Mental patterns are already formed, and resistance to the state narrative is observed.
 
@@ -2220,13 +2216,13 @@ And after nine months, the system will automatically assess performance. If the 
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 59. ONE HEAD FOR THE CROWN,  THE OTHER  RULES THE COUNTRY
+## 59. ONE HEAD FOR CROWN,  THE OTHER  RULES THE COUNTRY
 
 ![](Images/En_Album_59.jpg)
 
 *Note: Illustration blocked by censorship.*
 
-A spacious conference hall. Officials are seated in there. A large, illuminated stage, in the center of which lies on his back a well-known political leader. His genitals are fully exposed; his erect penis is crowned with a miniature, yet precise, copy of his head (the one on his shoulders). The small head of the politician lying on the stage addresses the audience with a loud, pompous speech:
+Spacious conference hall. Officials  seated inside. On illuminated stage well-known political leader lies on his back. His genitals fully exposed; his erect penis crowned with miniature, yet precise, copy of his own head. Small head of lying politician addresses audience with loud, pompous speech:
 
 — The birth rate in the country is falling catastrophically. Like a stone dropped into an abyss. I've been long saying it and I repeat: condoms and abortions are to blame for everything! And LGBT. And Childfree. We must fight, fight, and fight against all this heresy. So far, we are doing poorly.
 
