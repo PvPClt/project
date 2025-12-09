@@ -85,8 +85,8 @@ Don't forget to like, repost, and share the link with your friends. Your engagem
 
 ![](Images/En_Album_001.jpg)
 
-An American bar.
-The Russian President, Vladimir Putin, and the US President, Donald Trump, are sitting at a table, drinking beer...
+American bar.
+Russian President Vladimir Putin and US President Donald Trump at table, drinking beer.
 
 **Trump**:
 
@@ -278,21 +278,26 @@ Are stomped into that consecrated ground.
 #OrthodoxMilitaryPutinism
                               👻
 
-## ZERO-3. PUTIN IN THE HALL OF TWO TRUTHS: THE JUDGMENT OF OSIRIS
+## ZERO-3. PUTIN IN THE HALL OF TWO TRUTHS: JUDGMENT OF OSIRIS
 
 ![](Images/En_Album_003.jpg)
 
-> A sacred ancient Egyptian temple. Inside, the well-known procedure of the Judgment of the Egyptian god Osiris, as described in the "Book of the Dead," is taking place. Also participating are:
+> Sacred ancient Egyptian temple. Inside, well-known procedure of Judgment of the Egyptian god Osiris, as described in the "Book of the Dead," is taking place. Also participate:
+> 
+> • God Thoth (court secretary, clay tablet in hands)
+> • God Anubis (forensic expert)
+> • Goddess Maat (prosecutor)
+> • 42 Egyptian God-jurors (wearing masks of Hitler, Mussolini, Lenin, Stalin, Beria, Brezhnev, Zhirinovsky, Dracula, the Devil, and other historical figures)
+> • Russian president, Vladimir Putin (defendant)
+> • God Thoth (court secretary, with a clay tablet in his hands)
 >
-• God Thoth (court secretary, with a clay tablet in his hands)
+> • God Anubis (forensic expert)
 >
-• God Anubis (forensic expert)
+> • Goddess Maat (prosecutor)
 >
-• Goddess Maat (prosecutor)
+> • 42 Egyptian God-jurors (wearing masks of Hitler, Mussolini, Lenin, Stalin, Beria, Brezhnev, Zhirinovsky, Dracula, the Devil, and other historical figures)
 >
-• 42 Egyptian God-jurors (wearing masks of Hitler, Mussolini, Lenin, Stalin, Beria, Brezhnev, Zhirinovsky, Dracula, the Devil, and other historical figures)
->
-• Russian president, Vladimir Putin (the defendant)
+> • Russian president, Vladimir Putin (the defendant)
 >
 > The hall is illuminated by flickering TV screens broadcasting the court proceedings. Putin stands by gigantic apothecary scales; on one scale pan lies a red paper heart with a gilded engraving: "Putin: 86%". The other pan is empty, yet the scales balance each other.
 
@@ -579,7 +584,8 @@ If accidentally ingested by an independent journalist or human rights activist, 
 
 ![](Images/En_Album_01.jpg)
 
-A military enlistment office in a Russian town. Two officers sit at a desk, facing a pop singer.
+Military enlistment office, Russian town.
+Two officers at desk, facing pop singer.
 
 **First officer:**
 
@@ -600,7 +606,8 @@ A military enlistment office in a Russian town. Two officers sit at a desk, faci
 
 ![](Images/En_Album_02.jpg)
 
-Russia. Typical Moscow apartment block, elevator hall. A sign on the garbage chute:
+Russia.Typical Moscow apartment block, elevator hall.
+Sign on garbage chute:
 *“Don’t throw away tin cans! Make a trench candle for front!”*
 
 #OrthodoxMilitaryPutinism
@@ -611,7 +618,7 @@ Russia. Typical Moscow apartment block, elevator hall. A sign on the garbage chu
 ![](Images/En_Album_03.jpg)
 
 Provincial Russian city, police station.
-An officer interrogates a woman.
+Officer interrogates woman.
 
 **Officer:**
 
@@ -632,8 +639,8 @@ An officer interrogates a woman.
 
 ![](Images/En_Album_04.jpg)
 
-Ukrainian city of Mariupol, destroyed.
-Three women pray to a portrait of Putin before a new apartment block.
+Destroyed Ukrainian city of Mariupol.
+Three women pray to portrait of Russian president Vladimir Putin before new apartment block.
 
 **First woman:**
 
@@ -658,7 +665,7 @@ Three women pray to a portrait of Putin before a new apartment block.
 
 ![](Images/En_Album_05.jpg)
 
-Russia. Moscow. Studio of famous Russian propagandist Vladimir Solovyov, on air. He talks with an even more famous propagandist — Margarita Simonyan.
+Russia. Moscow. Studio of famous Russian propagandist Vladimir Solovyov, on air. He talks with even more famous propagandist — Margarita Simonyan.
 
 **Solovyov:**
 
@@ -675,8 +682,8 @@ Russia. Moscow. Studio of famous Russian propagandist Vladimir Solovyov, on air.
 
  ![](Images/En_Album_06.jpg)
 
-Press conference with the Russian president, Vladimir Putin.
-A foreign journalist asks questions.
+Press conference with Russian president Vladimir Putin.
+Foreign journalist asks question.
 
 **Journalist:**
 
@@ -694,8 +701,8 @@ A foreign journalist asks questions.
 ![](Images/En_Album_07.jpg)
 
 Russia, Moscow, the Kremlin.
-The Russian president, Vladimir Putin, and the Health Minister, Michael Murashko, are seated at the table.
-News report on TV:  the new Russian budget increases healthcare spending by 30%.
+Russian president Vladimir Putin and Health Minister Michael Murashko at table.
+TV news report: new budget increases healthcare spending 30%.
 
 **Putin:**
 
@@ -712,7 +719,7 @@ News report on TV:  the new Russian budget increases healthcare spending by 30%.
 
 ![](Images/En_Album_08.jpg)
 
-Leisure center for pensioners in Moscow, Russia. Two old ladies and an old man are weaving a camouflage net for the front.
+Russia, Moscow leisure center for pensioners. Two old ladies and man weave camouflage net for front.
 
 **Old man:**
 
@@ -737,8 +744,8 @@ Leisure center for pensioners in Moscow, Russia. Two old ladies and an old man a
 
 ![](Images/En_Album_09.jpg)
 
-Russia, Moscow, the Kremlin.
-The Russian president, Vladimir Putin, is seated at the table with the Security Council Secretary, Nikolai Patrushev. TV shows the U.S. president, Joe Biden, shaking hands with the Ukrainian president, Vladimir Zelensky. 
+Russia, Moscow, the Kremlin. Russian president Vladimir Putin and Security Council Secretary Nikolai Patrushev at table.
+TV shows U.S. president Joe Biden shaking hands with Ukrainian president Vladimir Zelensky. 
 
 **Putin (with cold fury)**:
 
@@ -755,8 +762,7 @@ The Russian president, Vladimir Putin, is seated at the table with the Security 
 
 ![](Images/En_Album_10.jpg)
 
-Russian-Ukrainian front, a dugout HQ.
-The commander and his sergeant are talking.
+Russian-Ukrainian front, dugout HQ. Commander and sergeant in discussion.
 
 **Sergeant:**
 
@@ -773,7 +779,7 @@ The commander and his sergeant are talking.
 
 ![](Images/En_Album_11.jpg)
 
-A typical Russian prison cell. A severely emaciated, sickly prisoner sits inside. Behind him stands Russia’s Justice Minister Konstantin Chuychenko, holding the scales of Themis.
+Typical Russian prison cell. Severely emaciated, sickly prisoner. Behind him, Justice Minister Konstantin Chuychenko with scales of Themis.
 
 **Chuychenko:**
 
@@ -795,7 +801,7 @@ Russian justice is the most humane in the world!
 
 ![](Images/En_Album_12.jpg)
 
-Russia. Moscow. The State Duma chamber. A budget discussion is underway.
+Russia, Moscow, State Duma chamber. Budget discussion.
 
 **First deputy:**
 
@@ -809,7 +815,7 @@ Russia. Moscow. The State Duma chamber. A budget discussion is underway.
 
 — But in reality, it’s Russia that’s being militarized — not Ukraine! We'll all end up in military fatigues!
 
-**Vyacheslav Volodin:**
+**Vyacheslav Volodin, president of State Duma:**
 
 — Debate closed! The budget is approved — unanimously!
 
