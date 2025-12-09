@@ -1463,7 +1463,7 @@ Russia. Entrance of Russian Orthodox church. Priest delivers sermon.
 
 — A soldier’s widow must never remarry! Got the death notice? Mourn and pray!
 
-**Woman from the crowd:**
+**Woman from crowd:**
 
 — Dream on! Your coffin payout barely buys a white Lada. And I want a red Volvo! With a minibar!
 
@@ -1569,7 +1569,7 @@ May loyalty be with you — and ye shall not perish in prison.
 ![](Images/En_Album_46_2.jpg)
 ![](Images/En_Album_46_3.jpg)
 
-**A triptych:**
+**Triptych:**
 
 *Panel 1*
 
@@ -1630,7 +1630,7 @@ Patriarch of All Russia on bow of his luxury yacht. Nearby, two fishermen in sha
 
 ![](Images/En_Album_49.jpg)
 
-Family studies class, school in Russia. Diagram of Russia’s birth rate on blackboard.
+School in Russia, Family studies class. Diagram of Russia’s birth rate on blackboard.
 
 **Student:**
 
