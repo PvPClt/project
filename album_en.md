@@ -931,11 +931,11 @@ Russian Ministry of Defense briefing led by General Konashenkov, chief of the De
 
 Russia. Confessional in Russian Orthodox church. Behind screen, priest. Young girl confessing, sobbing.
 
-**The Girl:**
+**Girl:**
 
 — Father, I'm in terrible trouble, I'm pregnant! I don't know what to do! I'm in my third year of university... I want to finish my studies... Who will raise the child?
 
-**The Priest (in a cutting voice):**
+**Priest:**
 
 — A woman has no need for education. So the Church teaches, so say the Holy Fathers. A woman's vocation is to give birth and be silent. Obedience and motherhood — that is your future. And you will receive your reward in Heaven. Our latest Council has ruled: "Women’s education is a temptation from the Evil One."
 
