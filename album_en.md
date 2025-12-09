@@ -895,7 +895,7 @@ Dream of Russian President Vladimir Putin: he himself and Defense Minister Serge
 
 — Vladimir Rostislavovich? Urgently include the Perch in the new history textbook! Yes, that very one… As a symbol… of Russia's greatness. And make sure it has an illustration!
 
-*V.R. Medinsky is a "history maker" on the Kremlin's order, including for school education.*
+*V.R. Medinsky, "history maker" on the Kremlin's order, including for school education.*
 
 #OrthodoxMilitaryPutinism
                                 👻
