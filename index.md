@@ -25,6 +25,7 @@ Des exemples de satire politique brillante et de révélation du régime poutini
 
 [lire sur le site](values_fr.md) I [télécharger le PDF]
 
+[À PROPOS DE L’AUTEURE](fr_author)
 
 # 🇬🇧 ENGLISH 
 
@@ -45,6 +46,8 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 ### The Anatomy of Putin's "Traditional Values", article
 
 [read on the website](values_en.md) | [download PDF]
+
+[ABOUT THE AUTHOR](en_author)
 
 # 🇺🇦 УКРАЇНСЬКА
 
@@ -67,6 +70,7 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 [читати на сайті](values_ua.md) | [завантажити PDF]
 
+[ПРО АВТОРА](ua_author)
 
 # 🇷🇺 РУССКИЙ 
  
@@ -88,3 +92,5 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 ### Анатомия путинских „традиционных ценностей“, статья
 
 [читать на сайте](values_ru.md) I [скачать PDF](https://github.com/pvpclt/project/releases/tag/Values_Ru-v1.0.0)
+
+[ОБ АВТОРЕ](ru_author)
