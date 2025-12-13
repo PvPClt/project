@@ -1653,13 +1653,13 @@ Finale (en cours de développement — Version Bêta) :
 Sortie prévue : 202X
 
 > **Note Historique**
-
+>
 > • La tabatière : L'empereur Paul Ier de Russie fut assassiné en 1801. Il fut étranglé, mais le premier coup lui fut asséné avec une tabatière en or.
-
+>
 > • L'écharpe : Staline aurait utilisé une écharpe pour mettre fin aux jours de son chef de la sécurité Nikolai Iejov. « La mort par l'écharpe » est devenu un symbole des strangulations au Kremlin.
-
+>
 > • Le « Novitchok » : Agent neurotoxique développé en URSS, utilisé dans des empoisonnements notoires (Sergeï Skripal, Alexeï Navalny).
-
+>
 > • L'infarctus : « L'arrêt cardiaque soudain » est l'euphémisme le plus courant dans les rapports officiels russes concernant les morts politiques suspectes.
 
 #PoutinismeMilitaireOrthodoxe
@@ -2060,7 +2060,9 @@ Le confessionnal.
 
 ![](Images/Fr_Album_57.jpg)
 
-Russie, Moscou, Kremlin – bureau présidentiel. Le president russe, Vladimir Poutine avec son ami et conseiller scientifique, Mikhaïl Kovaltchouk. Sujet : les recherches sur l'immortalité.**Poutine** (presque affectueusement) :
+Russie, Moscou, Kremlin – bureau présidentiel. Le president russe, Vladimir Poutine avec son ami et conseiller scientifique, Mikhaïl Kovaltchouk. Sujet : les recherches sur l'immortalité.
+
+**Poutine** (presque affectueusement) :
 
 – Alors, professeur, raconte : où en est-on avec mon immortalité ?
 
