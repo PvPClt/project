@@ -1599,7 +1599,7 @@ Tout près, dans une barque fragile, deux pêcheurs.
 ![](Images/Fr_Album_49.jpg)
 
 École, ville russe.
-Cours « d’éducation familiale ».
+Cours : « Éducation familiale ».
 Au tableau : la courbe de natalité en Russie.
 
 **Élève** :
