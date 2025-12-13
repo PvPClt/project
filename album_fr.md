@@ -86,8 +86,7 @@ N'oubliez pas de liker, de reposter et de partager le lien avec vos amis. Votre 
 
 ![](Images/Fr_Album_001.jpg)
 
-Un bar américain.
-Le président russe, Vladimir Poutine, et le président américain, Donald Trump, sont assis à une table, une bière à la main.
+Bar américain. Le président russe Vladimir Poutine et le président américain Donald Trump, attablés, bière à la main.
 
 **Trump** :
 
@@ -229,14 +228,20 @@ Ont marqué la terre et brisé les clairières.
 
 ![](Images/Fr_Album_003.jpg)
 
-> Un temple sacré de l'Égypte ancienne. À l'intérieur se déroule la procédure bien connue du Jugement du dieu égyptien Osiris, décrite dans le « Livre des Morts ». Y participent également :
-> - Le dieu Thot (secrétaire du tribunal, avec une tablette d'argile dans les mains)
-> - Le dieu Anubis (expert en criminalistique)
-> - La déesse Maât (accusateur)
-> - 42 dieux-jurés égyptiens (portant des masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable et autres personnages historiques)
-> - Le président russe, Vladimir Poutine (l'accusé)  
+> Temple sacré de l’Égypte ancienne. À l’intérieur – procédure bien connue du Jugement du dieu Osiris, décrite dans le « Livre des Morts ». Y participent :
 > 
-> La salle est éclairée par des écrans de télévision scintillants qui diffusent les procédures judiciaires. Poutine se tient près d'immenses balances de pharmacien ; sur un plateau se trouve un cœur rouge en papier avec une gravure dorée : « Poutine : 86 % ». L'autre plateau est vide, pourtant les plateaux s'équilibrent.
+>  • Dieu Thot (secrétaire du tribunal, tablette d’argile en  mains)
+>
+>  • Dieu Anubis (expert criminalistique)
+>
+>  • Déesse Maât (accusateur)
+>
+>  • 42 dieux-jurés égyptiens (en masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable, autres figures historiques)
+>
+>  • Le président russe, Vladimir Poutine (l’accusé)
+>
+> Scène éclairée par les écrans de télévision diffusant les procédures judiciaires.
+Poutine se tient près d’immenses balances de pharmacien. Sur un plateau : un cœur rouge en papier, gravure dorée « Poutine : 86 % ». L’autre plateau est vide, mais l’équilibre est parfait.
 
 **Osiris** :
 
@@ -517,14 +522,14 @@ Si accidentellement ingérés par un journaliste indépendant ou un défenseur d
 
 **Durée de conservation** : illimitée.
 
-#OrthodoxeMilitairePoutinisme
-                              👻
+#PoutinismeMilitaireOrthodoxe
+                             👻   
 
 ## 1. PATRIOTISME AVEC UNE CHAUSSETTE SUR LA BITE
 
 ![](Images/Fr_Album_01.jpg)
 
-Bureau du commissariat militaire dans une ville russe. Deux officiers sont assis à une table, face à un chanteur de variétés.
+Bureau du commissariat militaire, ville russe. Deux officiers assis à une table face à un chanteur de variétés.
 
 **Premier officier** :
 
@@ -546,8 +551,7 @@ Et toi ? Tu fais la fête à poil avec une chaussette sur la bite ?!
 
 ![](Images/Fr_Album_02.jpg)
 
-Moscou, Russie. 
-Hall d’ascenseur d’un immeuble standard. Affiche sur le vide-ordures :
+Moscou, Russie. Hall d’ascenseur d’un immeuble standard. Affiche sur le vide-ordures :
 *« Ne jette pas ta boîte de conserve ! Fais-en une bougie de tranchée ! »*
 
 #PoutinismeMilitaireOrthodoxe
@@ -557,7 +561,7 @@ Hall d’ascenseur d’un immeuble standard. Affiche sur le vide-ordures :
 
 ![](Images/Fr_Album_03.jpg)
 
-Commissariat de police dans une ville russe. Un officier interroge une femme.
+Commissariat de police, ville russe. Un officier interroge une femme.
 
 **Officier** :
 
@@ -578,7 +582,7 @@ Commissariat de police dans une ville russe. Un officier interroge une femme.
 
 ![](Images/Fr_Album_04.jpg)
 
-Marioupol, ville ukrainienne détruite. Devant un immeuble tout juste reconstruit, trois femmes prient devant un portrait de Poutine.
+Marioupol, ville ukrainienne détruite. Devant un immeuble tout juste reconstruit, trois femmes prient devant le portrait du président russe Vladimir Poutine.
 
 **Première femme** :
 
@@ -603,8 +607,7 @@ Marioupol, ville ukrainienne détruite. Devant un immeuble tout juste reconstrui
 
 ![](Images/Fr_Album_05.jpg)
 
-Moscou, Russie.
-Dans le studio du célèbre propagandiste russe Vladimir Solovyov. Il discute avec une autre propagandiste encore plus célèbre : Margarita Simonyan.
+Moscou, Russie. Studio du propagandiste Vladimir Solovyov. Il discute avec une autre célébrité du genre, Margarita Simonyan.
 
 **Solovyov** :
 
@@ -621,8 +624,7 @@ Dans le studio du célèbre propagandiste russe Vladimir Solovyov. Il discute av
 
 ![](Images/Fr_Album_06.jpg)
 
-Lors d’une conférence de presse du président russe, Vladimir Poutine.
-Un journaliste étranger pose une question.
+Conférence de presse du président russe Vladimir Poutine. Un journaliste étranger pose une question.
 
 **Journaliste étranger** :
 
@@ -641,8 +643,8 @@ Retenez cela une fois pour toutes. Là où la botte d’un soldat russe a foulé
 ![](Images/Fr_Album_07.jpg)
 
 Russie, Moscou, Kremlin. 
-Dans le bureau, assis à la table : le président russe, Vladimir Poutine, et le ministre de la Santé, Mikhaïl Mourachko.
-À la télévision : une nouvelle — dans le nouveau budget russe, les dépenses de santé augmentent de 30 %.
+Le président russe Vladimir Poutine et le ministre de la Santé Mikhaïl Mourachko sont à table.
+À la télévision : une nouvelle — dans le budget russe, les dépenses de santé augmentent de 30 %.
 
 **Poutine** :
 
@@ -659,8 +661,8 @@ Dans le bureau, assis à la table : le président russe, Vladimir Poutine, et le
 
 ![](Images/Fr_Album_08.jpg)
 
-Moscou, Russie. 
-Centre de loisirs pour retraités. Deux vieilles dames et un vieil homme tressent un filet de camouflage pour le front.
+Moscou, Russie. Centre de loisirs pour retraités.
+Deux vieilles femmes et un vieil homme tissent un filet de camouflage pour le front.
 
 **Le vieil homme** :
 
@@ -685,9 +687,8 @@ Centre de loisirs pour retraités. Deux vieilles dames et un vieil homme tressen
 
 ![](Images/Fr_Album_09.jpg)
 
-Russie, Moscou, Kremlin. 
-Dans le bureau, assis à la table : le président russe, Vladimir Poutine, et le secrétaire du Conseil de sécurité Nikolaï Patrouchev.
-À la télévision : le président américain Joe Biden serre la main du président ukrainien Volodymyr Zelensky.
+Russie, Moscou, Kremlin. Bureau présidentiel. Le président russe, Vladimir Poutine, et le secrétaire du Conseil de sécurité, Nikolaï Patrouchev,  sont à table.
+Sur l'écran :  le président américain Joe Biden serre la main du président ukrainien Volodymyr Zelensky.
 
 **Poutine** (avec une froide fureur) :
 
@@ -704,7 +705,8 @@ Dans le bureau, assis à la table : le président russe, Vladimir Poutine, et le
 
 ![](Images/Fr_Album_10.jpg)
 
-Front russo-ukrainien. Une tranchée QG. Dialogue entre un commandant et un sergent.
+Front russo-ukrainien. Une tranchée aménagée en poste de commandement.
+Un commandant et un sergent en dialogue.
 
 **Sergent** :
 
@@ -721,7 +723,9 @@ Front russo-ukrainien. Une tranchée QG. Dialogue entre un commandant et un serg
 
 ![](Images/Fr_Album_11.jpg)
 
-Cellule de prison russe typique. Un détenu extrêmement amaigri, maladif. Derrière lui, le ministre de la Justice Konstantin Tchouïtchenko, tenant le symbole de la déesse Thémis.
+Cellule de prison russe.
+Un détenu squelettique et maladif.
+Derrière lui, le ministre de la Justice Konstantin Tchouïtchenko, les plateaux de la balance de Thémis en mains.
 
 **Tchouïtchenko** :
 
@@ -743,8 +747,7 @@ La justice russe est la plus humaine du monde !
 
 ![](Images/Fr_Album_12.jpg)
 
-Russie. Moscou. Salle des séances de la Douma d'État russe. 
-Débat budgétaire.
+Russie, Moscou. Salle des séances de la Douma d’État. Débat budgétaire en cours.
 
 **Premier député** :
 
@@ -769,7 +772,9 @@ Débat budgétaire.
 
 ![](Images/Fr_Album_13.jpg)
 
-Salle d’audience d’un tribunal russe : prévenu, avocat de la défense, juge. Dialogue.
+Salle d’audience d’un tribunal russe.
+En présence du juge, un prévenu et son avocat.
+Dialogue.
 
 **Prévenu** :
 
@@ -790,7 +795,7 @@ Salle d’audience d’un tribunal russe : prévenu, avocat de la défense, juge
 
 ![](Images/Fr_Album_14.jpg)
 
-Russie. Moscou. Salle des séances de la Douma d'État russe. Son président Viatcheslav Volodine prononce un discours enflammé.
+Russie, Moscou. Salle des séances de la Douma d’État. Son président Viatcheslav Volodine prononce un discours enflammé.
 
 **Volodine** (avec emphase) :
 
@@ -823,7 +828,8 @@ Vous avez l’audace de vouloir — nous avons le pouvoir de confisquer !
 
 ![](Images/Fr_Album_15.jpg)
 
-Le président russe Vladimir Poutine fait un rêve, comme s’il pêchait sur le Dniepr, en Ukraine, avec le ministre russe de la Défense, S. Choïgou.
+Rêve du président russe Vladimir Poutine.
+Il pêche sur le Dniepr, en Ukraine, en compagnie de son ministre de la Défense, Sergueï Choïgou.
 
 **Choïgou** :
 
@@ -848,7 +854,8 @@ Le président russe Vladimir Poutine fait un rêve, comme s’il pêchait sur le
 
 ![](Images/Fr_Album_16.jpg)
 
-Briefing du ministère russe de la Défense. Aux questions répond le général Konachenkov, chef du département de l’information.
+Briefing du ministère russe de la Défense.
+Le général Igor Konachenkov, chef du service d’information, répond aux questions.
 
 **Journaliste** :
 
@@ -873,7 +880,9 @@ Briefing du ministère russe de la Défense. Aux questions répond le général 
 
 ![](Images/Fr_Album_17.jpg)
 
-Une ville russe. Confessionnal dans une église russe orthodoxe. Derrière le paravent — un prêtre. Une jeune fille se confesse en sanglotant. 
+Église orthodoxe, ville russe.
+Au confessionnal. Derrière le paravent, un prêtre.
+Une jeune fille se confesse, en sanglots.
 
 **Fille** :
 
@@ -890,8 +899,8 @@ Une ville russe. Confessionnal dans une église russe orthodoxe. Derrière le pa
 
 ![](Images/Fr_Album_18.jpg)
 
-Zone proche du front russo-ukrainien.
-Des soldats russes marchandent avec une prostituée. Non loin de là, un prêtre prêche.
+Zone frontalière russo-ukrainienne.
+Des soldats russes marchandent avec une prostituée. Non loin de là, un prêtre orthodoxe prêche.
 
 **Prêtre** :
 
@@ -908,8 +917,8 @@ Des soldats russes marchandent avec une prostituée. Non loin de là, un prêtre
 
 ![](Images/Fr_Album_19.jpg)
 
-Jardin d’enfants dans une ville russe. 
-Alerte aérienne. Les enfants sont obligés de rester allongés face contre terre.
+Jardin d’enfants, ville russe.
+Alerte aérienne. Les enfants, couchés face contre terre.
 
 **Premier enfant** :
 
@@ -934,7 +943,8 @@ Alerte aérienne. Les enfants sont obligés de rester allongés face contre terr
 
 ![](Images/Fr_Album_20.jpg)
 
-École dans une ville russe. Cours « Conversations sur l’essentiel ».
+École, ville russe.
+Cours spécial : « Conversations sur l’essentiel »
 
 **L’institutrice** :
 
@@ -984,7 +994,7 @@ Séance du Conseil de sécurité de l’ONU.
 
 ![](Images/Fr_Album_22.jpg)
 
-Front russo-ukrainien. Arrière. Les soldats sont rassemblés. Le ministre russe de la Défense, Sergueï Choïgou, s’adresse à eux.
+Front russo-ukrainien. Arrière. Les soldats rassemblés. Le ministre russe de la Défense, Sergueï Choïgou, leur adresse la parole.
 
 **Soldat** :
 
@@ -1027,7 +1037,8 @@ Réunion du Conseil de sécurité de l'ONU.
 
 ![](Images/Fr_Album_24.jpg)
 
-Russie, Moscou. Scène dans un appartement d’un immeuble typique : la maîtresse de maison, une voisine et un policier.
+Russie, Moscou. Appartement typique d’immeuble.
+La maîtresse de maison, une voisine, un policier.
 
 **Voisine** :
 
@@ -1049,7 +1060,9 @@ vous écoutez de la musique ! C’est de la discréditation !
 
 ![](Images/Fr_Album_25.jpg)
 
-Clinique dentaire dans une ville russe. Sur la porte du cabinet, un avis : « Pas de matériau pour les plombages. » Dans le hall, le dentiste parle avec un patient.
+Clinique dentaire, ville russe.
+Sur la porte du cabinet, un écriteau : « Plus de matériel pour les plombages. »
+Dans le hall, le dentiste en discussion avec un patient
 
 **Dentiste** :
 
@@ -1066,7 +1079,8 @@ Clinique dentaire dans une ville russe. Sur la porte du cabinet, un avis : « Pa
 
 ![](Images/Fr_Album_26.jpg)
 
-Jeune homme dans le cabinet d'une voyante, en Russie.
+Cabinet d’une voyante, ville russe.
+Un jeune homme à l’intérieur.
 
 **Homme** :
 
@@ -1084,8 +1098,9 @@ Dans 3125 jours.
 
 ![](Images/Fr_Album_27.jpg)
 
-Clinique d’oncologie dans une ville russe. Cabinet médical.
-Le patient est assis sur la table d’examen. Le médecin lui bande la poitrine.
+Clinique d’oncologie, ville russe.
+Cabinet médical. Un patient assis sur la table d’examen.
+Le médecin lui bande la poitrine.
 
 **Patient** :
 
@@ -1104,7 +1119,7 @@ Allez, tenez bon, on prie pour vous.
 
 ![](Images/Fr_Album_28.jpg)
 
-Front russo-ukrainien. Positions russes. Une cuisine de campagne. Dialogue entre le commandant et le cuisinier.
+Front russo-ukrainien. Positions russes. Une cuisine de campagne. Dialogue entre le commandant et son cuisinier.
 
 **Cuisinier** :
 
@@ -1142,8 +1157,8 @@ Moi, je n’en ai pas besoin : ma cote est déjà au plus haut.
 
 ![](Images/Fr_Album_30.jpg)
 
-Commissariat militaire dans une ville russe.
-Un grand panneau au mur proclame :
+Commissariat militaire, ville russe.
+Au mur, un grand panneau proclame :
 
 Le conscrit doit apporter : 
 
@@ -1168,8 +1183,8 @@ Le conscrit doit apporter :
 
 ![](Images/Fr_Album_31.jpg)
 
-Salle Saint-Georges, Grand Palais du Kremlin, Moscou, Russie.
-Le président russe, Vladimir Poutine, remet une récompense à un fonctionnaire.
+Moscou, Russie, Grand Palais du Kremlin, Salle Saint-Georges.
+Le président russe, Vladimir Poutine, remet une décoration à un fonctionnaire.
 
 **Poutine** :
 
@@ -1256,7 +1271,8 @@ Inhibe toute pensée critique, empathie ou culpabilité.
 
 ![](Images/Fr_Album_33.jpg)
 
-Réunion d’une commission internationale sur le sabotage du barrage de Kakhovka, en Ukraine.
+Réunion d’une commission internationale d’enquête.
+Objet : le sabotage du barrage de Kakhovka, en Ukraine.
 
 **Représentant occidental** :
 
@@ -1308,7 +1324,8 @@ Réunion du Conseil de sécurité de l’ONU.
 
 ![](Images/Fr_Album_36.jpg)
 
-Unité militaire russe. Rassemblement sur la place d’armes. Le général se tient devant les soldats.
+Unité militaire russe – place d’armes.
+Rassemblement. Le général fait face aux soldats.
 
 **Soldat** :
 
@@ -1325,7 +1342,9 @@ Unité militaire russe. Rassemblement sur la place d’armes. Le général se ti
 
 ![](Images/Fr_Album_37.jpg)
 
-Veille de Noël. Des soldats russes en position de combat. Le Père Noël vole dans le ciel avec un sac de cadeaux.
+Veille de Noël.
+Soldats russes en position de combat.
+Au-dessus d’eux, le Père Noël vole, un sac de cadeaux à la main.
 
 **Premier soldat** :
 
@@ -1342,7 +1361,8 @@ Veille de Noël. Des soldats russes en position de combat. Le Père Noël vole d
 
 ![](Images/Fr_Album_38.jpg)
 
-Front russo-ukrainien. Positions russes. Un prêtre exhorte les soldats à se baptiser dans une piscine de campagne.
+Front russo-ukrainien – côté russe.
+Un prêtre orthodoxe exhorte des soldats à se faire baptiser Dan's une piscine gonflable.
 
 **Prêtre** :
 
@@ -1363,7 +1383,8 @@ Front russo-ukrainien. Positions russes. Un prêtre exhorte les soldats à se ba
 
 ![](Images/Fr_Album_39.jpg)
 
-Front russo-ukrainien. Arrière russe. Un prêtre propose aux soldats un crucifix  bénit  "présidentielle".
+Front russo-ukrainien – arrière russe.
+Un prêtre propose aux soldats un crucifix « présidentiel ».
 
 **Prêtre** :
 
@@ -1404,7 +1425,8 @@ Front russo-ukrainien. Arrière russe. Rituel de bénédiction des obus.
 
 ![](Images/Fr_Album_41.jpg)
 
-Une ville russe. Un prêtre prêche devant une église orthodoxe russe.
+Église orthodoxe, ville russe.
+Prédication sur le parvis.
 
 **Prêtre** :
 
@@ -1421,7 +1443,7 @@ Une ville russe. Un prêtre prêche devant une église orthodoxe russe.
 
 ![](Images/Fr_Album_42.jpg)
 
-« Ligne directe » avec le président russe, Vladimir Poutine. Le président répond aux questions des citoyens en visioconférence, tandis qu’un public est réuni dans la salle.
+« Ligne directe » avec le président russe, Vladimir Poutine. Le président répond aux questions en visioconférence. Dans la salle, un public est assemblé.
 
 **Femme dans la salle** (montrant le portrait d’un fonctionnaire) :
 
@@ -1446,7 +1468,8 @@ Une ville russe. Un prêtre prêche devant une église orthodoxe russe.
 
 ![](Images/Fr_Album_43.jpg)
 
-Une ville russe. Devant un dépôt de pétrole en flammes, deux prêtres  orthodox s’entretiennent avec le patriarche.
+Dépôt de pétrole en flammes, ville russe.
+Deux prêtres orthodoxes s’entretiennent avec le patriarche.
 
 **Patriarche** :
 
@@ -1530,7 +1553,7 @@ Tribunal russe.
 Verdict : Haute trahison.
 
 *Panneau 3*:
-Colonie pénitentiaire pour pacifistes, en Russie.
+Russie. Colonie pénitentiaire pour pacifistes.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
@@ -1539,7 +1562,8 @@ Colonie pénitentiaire pour pacifistes, en Russie.
 
 ![](Images/Fr_Album_47.jpg)
 
-Une ville russe. Confessionnal dans une église russe orthodoxe.
+Église orthodoxe, ville russe.
+Le confessionnal.
 
 **Le pécheur repentant** :
 
@@ -1556,7 +1580,8 @@ Une ville russe. Confessionnal dans une église russe orthodoxe.
 
 ![](Images/Fr_Album_48.jpg)
 
-Le Patriarche de toute la Russie se tient à la proue de son yacht luxueux. Tout près, dans une barque fragile, deux pêcheurs.
+Le patriarche de toute la Russie, à la proue de son yacht luxueux.
+Tout près, dans une barque fragile, deux pêcheurs.
 
 **Pêcheur** :
 
@@ -1573,8 +1598,9 @@ Le Patriarche de toute la Russie se tient à la proue de son yacht luxueux. Tout
 
 ![](Images/Fr_Album_49.jpg)
 
-École  dans une ville russe. Cours d’éducation familiale. 
-Au tableau, un graphique représentant la natalité en Russie.
+École, ville russe.
+Cours « d’éducation familiale ».
+Au tableau : la courbe de natalité en Russie.
 
 **Élève** :
 
@@ -1643,8 +1669,7 @@ Sortie prévue : 202X
 
 ![](Images/Fr_Album_51.jpg)
 
-Un bar américain.
-Le président russe, Vladimir Poutine, et le président américain, Donald Trump, une bière à la main, penchés l'un vers l'autre au-dessus de la table.
+Bar américain. Le président russe Vladimir Poutine et le président américain Donald Trump, attablés, bière à la main.
 
 **Trump** :
 
@@ -1728,8 +1753,7 @@ Deux rois, une planète. Santé, Donnie.
 
 ![](Images/Fr_Album_52.jpg)
 
-Un bar américain.
-Le président russe, Vladimir Poutine, et le président américain, Donald Trump, sont assis à une table, une bière à la main.
+Bar américain. Le président russe Vladimir Poutine et le président américain Donald Trump, attablés, bière à la main.
 
 **Trump** :
 
@@ -1840,7 +1864,7 @@ Vingt trucs. Dont la prostatite. Les mêmes qui ont traité le dossier Magnitsky
 
 ![](Images/Fr_Album_53.jpg)
 
-Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — trois éminents professeurs.
+Hôpital psychiatrique. Bureau de consultation. Conseil médical : trois éminents professeurs sont attablés.
 
 **Premier Professeur** :
 
@@ -1940,7 +1964,8 @@ Une consultation dans un hôpital psychiatrique. Dans le bureau, attablés — t
 
 ![](Images/Fr_Album_54.jpg)
 
-Une ville russe. Sermon devant une église orthodoxe russe.
+Église orthodoxe, ville russe.
+Prédication sur le parvis.
 
 **Le prêtre** :
 
@@ -1966,7 +1991,7 @@ Une ville russe. Sermon devant une église orthodoxe russe.
 ![](Images/Fr_Album_55_1.jpg)
 ![](Images/Fr_Album_55_2.jpg)
 
-Dans une rue d’une ville russe.
+Une rue, ville russe.
 
 **L’agent de police** :
 
@@ -1993,7 +2018,8 @@ Dans une rue d’une ville russe.
 
 ![](Images/Fr_Album_56.jpg)
 
-Une ville russe. Confessionnal dans une église russe orthodoxe.
+Église orthodoxe, ville russe.
+Le confessionnal.
 
 **Le pénitent** :
 
@@ -2034,14 +2060,11 @@ Une ville russe. Confessionnal dans une église russe orthodoxe.
 
 ![](Images/Fr_Album_57.jpg)
 
-Russie, Moscou, Kremlin. Bureau du président russe, Vladimir Poutine. 
-Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui supervise désormais les recherches sur le prolongement de la vie et le ralentissement du vieillissement.
-
-**Poutine** (presque affectueusement) :
+Russie, Moscou, Kremlin – bureau présidentiel. Le president russe, Vladimir Poutine avec son ami et conseiller scientifique, Mikhaïl Kovaltchouk. Sujet : les recherches sur l'immortalité.**Poutine** (presque affectueusement) :
 
 – Alors, professeur, raconte : où en est-on avec mon immortalité ?
 
-**Kovalchuk** (avec enthousiasme) :
+**Kovaltchouk** (avec enthousiasme) :
 
 – Il y a du progrès. Significatif. Nous travaillons actuellement sur un projet de conservation de tes... substrats bio-organiques.
 
@@ -2049,7 +2072,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Quoi ? Mes crottes viennent faire quoi dans cette histoire ?
 
-**Kovalchuk** (précipitamment) :
+**Kovaltchouk** (précipitamment) :
 
 – Attends. Ne t'emballe pas. Écoute d'abord.
 
@@ -2057,7 +2080,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Parle.
 
-**Kovalchuk** :
+**Kovaltchouk** :
 
 – La science a prouvé que la sublimation préserve l'ADN intact dans les excréments. Nous allons sublimer et conserver tes excréments et les compléter avec une pile de photos et un recueil de tes discours. Dans un futur lointain, une copie exacte de Vladimir Poutine sera recréée à partir de ton ADN en s'appuyant sur tes photos et tes prises de parole. Probablement imprimée en 3D. Hein ? Qu'est-ce que tu en dis ?
 
@@ -2065,7 +2088,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Une immortalité merdique. Une idée merdique. Bon, admettons, tu m'imprimes. Mais qui suis-je ? Personne. C'est un autre qui sera sur le trône. On me reprochera la guerre, les incendies, les explosions, les câbles, et tout le reste.
 
-**Kovalchuk** :
+**Kovaltchouk** :
 
 – Pour ça, je ne sais pas. Quel sera le régime politique en Russie à ce moment-là, impossible de le prévoir.
 
@@ -2073,7 +2096,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Voilà tout le problème. Il me faut une autre immortalité. Je veux que ce corps, mon corps actuel, me serve éternellement. Est-ce vraiment si compliqué à faire ?! Le cœur est usé – transplantation. Foie, reins – transplantation...  C'est simple comme bonjour !
 
-**Kovalchuk** (prudemment) :
+**Kovaltchouk** (prudemment) :
 
 – Mais chaque organe a une durée de vie – quatre-vingts ans maximum...
 
@@ -2081,7 +2104,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Et bien prends le cœur d'un lycéen – frais émoulu. Quoi ? Un gamin, c'est trop précieux pour moi ?
 
-**Kovalchuk** (avec fougue) :
+**Kovaltchouk** (avec fougue) :
 
 – Mais non ! Je suis prêt à te donner le mien...
 
@@ -2089,7 +2112,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Le tien, non. J'ai que faire de ta ferraille rouillée ? Donne-moi un cœur jeune, avec tout son potentiel. Et dans 60 ans, tu m'en mettras un nouveau. Où est la difficulté ?
 
-**Kovalchuk** :
+**Kovaltchouk** :
 
 – À l'heure actuelle, la médecine ne garantit pas qu'un organe prenne. Les risques de complications sont élevés. Donc soit tu attends encore 20 ans, soit on conserve les excréments.
 
@@ -2097,7 +2120,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – D'accord, soit, va pour la merde. Mais uniquement en solution de secours. Au pire, après ma... mort [il fait une grimace, comme s'il avait mal] ils se vendront aux enchères pour des millions. 
 
-**Kovalchuk** (souriant) :
+**Kovaltchouk** (souriant) :
 
 – Oui. En Occident, la merde des puissants est très prisée. Un artiste italien, je crois qu'il s'appelait Mandzoni, vendait sa merde au prix de l'or. Et aujourd'hui, un petit pot de 30 grammes vaut des centaines de milliers d'euros.
 
@@ -2105,7 +2128,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Bah, si un misérable Italien chiait des lingots d'or – ma merde partira pour dix millions !
 
-**Kovalchuk** (flatteur) :
+**Kovaltchouk** (flatteur) :
 
 – Peut-être même plus !
 
@@ -2113,7 +2136,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Mais attention ! Pas d’avarice ! 30 grammes ?! Mais c’est risible ! Je suis un pigeon, peut-être ?
 
-**Kovalchuk** (avec conviction) :
+**Kovaltchouk** (avec conviction) :
 
 – Toi ? Non. T’es un faucon. Un aigle. Un milan. Un ptérodactyle.
 
@@ -2121,7 +2144,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 – Exactement. Et ma merde doit être de la plus haute qualité. Raffinée. Désodorisée. Et qu'elle soit de couleur bleue. Sang bleu – merde bleue.
 
-**Kovalchuk** :
+**Kovaltchouk** :
 
 – Bien sûr, bien sûr. Première pression. Virgin Putin shit. Ou Putin virgin shit ? C'est lequel, le correct ?
 
@@ -2136,7 +2159,7 @@ Assis à la table : Poutine et Mikhail Kovalchuk, un vieil ami de Poutine, qui s
 
 ![](Images/Fr_Album_58.jpg)
 
-Russie. Moscou. Salle des séances de la Douma d'État russe. La députée Valentina Bebienko prend la parole à la tribune :
+Russie, Moscou. Salle des séances de la Douma d'État. La députée Valentina Bebienko prend la parole à la tribune :
 
 – Chers collègues députés ! Le Président nous a fixé pour tâche de ressusciter la grande Russie – en triplant le taux de natalité. Je ne le cache pas – la tâche n'est pas aisée. C'est une tâche difficile. Super difficile. Mais nous devons la remplir. Parce que notre président le veut. Je propose d'aborder le problème de manière créative. Bien entendu, notre public cible est la jeunesse. Les moins de 30 ans. Après 30 ans, influencer les consciences devient moins facile. Les schémas mentaux sont déjà formés, et une résistance au narratif d'État est observée.
 
@@ -2154,7 +2177,10 @@ Et après neuf mois, le système procédera automatiquement à une évaluation d
 
 **Note : Illustration bloquée par la censure*.
 
-Un spacieux hall de conférence. Des officiels sont assis dans la salle. Une grande scène illuminée, au centre de laquelle est allongé sur le dos un homme politique de renommée mondiale. Ses parties génitales sont entièrement exposées, et son pénis en érection est surmonté d'une copie miniature mais précise de sa tête (celle qui se trouve sur ses épaules). La petite tête de l'homme politique s'adresse à l'assistance dans un discours fort et pompeux :
+Grand hall de conférence. Officiels en rangées.
+Sur la scène, allongé, un homme politique mondialement connu. Nu.
+Son pénis en érection est surmonté d’une réplique miniature de sa propre tête.
+La petite tête prend la parole, d’une voix forte et pompeuse :
 
 — Le taux de natalité dans le pays chute de manière catastrophique. Comme une pierre qui tombe dans un abîme. Je l'ai toujours dit et je le répète : les préservatifs et les avortements sont responsables de tout ! Et les LGBT. Et les Childfree. Nous devons combattre, combattre et encore combattre toute cette hérésie. Jusqu'à présent, les résultats sont médiocres.
 
@@ -2175,6 +2201,47 @@ Nous allons ressusciter notre grande puissance et notre grande « deuxième arm�
 À n’importe quel prix. Sur les cadavres des ennemis, à travers les larmes des mères, sur des terres réduites en cendres — nous avancerons sans faiblesse ni pitié. Nous écraserons toute résistance, nous broierons sous nos pas ceux qui oseront se dresser contre nous. Même s’il faut pour cela mettre le pays tout entier à genoux, nous le ferons. Que chacun sache : la volonté de l’État est de fer, et rien ni personne ne saura l’arrêter.
 
 (Vifs et longs applaudissements.)
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
+ ## 60.OPÉRATION D'INFILTRATION CULTURELLE
+
+![](Images/Fr_Album_59.jpg)
+
+Russie. Moscou. Salle des séances de la Douma d’État.
+Le président de la Russie, Vladimir Poutine, s’adresse aux députés.
+
+— Chers députés ! Amis ! Camarades !
+La situation géopolitique est montée à son paroxysme. Les ennemis de la Russie ne restent pas les bras croisés. L’Occident fait tout pour nous détruire. Surtout l’Europe. Surtout la France. La France a de tout temps été — et reste — notre principal adversaire. La France n’a cessé de porter atteinte à nos valeurs traditionnelles, cherchant à détruire notre patrimoine culturel, notre langue. Rappelons le XIXᵉ siècle, lorsque, à la suite d’une opération d’influence française, toute l’élite russe a parlé exclusivement français pendant des décennies. La langue russe s'est retrouvée au bord de l'oubli total et de l'extinction. Et si ce n’était le peuple russe profond, qui haïssait — à juste titre — tout ce qui était français, nous parlerions aujourd’hui français !
+
+Oui, au XIXᵉ siècle les services secrets français ont échoué, mais aujourd’hui ils cherchent à prendre leur revanche.
+Nos ennemis nous accusent soi-disant de mener une guerre hybride contre l’Occident. Mensonge éhonté ! Nous sommes un peuple pacifique. Mais les Français, eux, attaquent sans cesse notre culture, nos valeurs traditionnelles, notre langue. Ils ont infiltré la langue russe avec un véritable commando ennemi. Regardez combien de mots français nous avons — si habilement camouflés que les gens ne se doutent même pas que leur discours est truffé de mots-espions français.
+
+Chauffeur, tableau, théâtre, chef-d’œuvre… Il y en a des milliers. On ne sait même plus : est-ce encore du russe ou déjà un dialecte du français ?
+Mais « chauffeur », ce n’est encore rien. 
+Mais ils infiltrent notre langue avec  des mots destructeurs tels que « président » et « révolution » ! Il s'agit là d'une diversion et d'une attaque flagrantes contre nos valeurs traditionnelles.
+Des mots comme « président » et « révolution » — voilà de vraies attaques contre nos valeurs traditionnelles. Quel est donc ce « président » ? Il n’y a jamais eu et il n’y aura jamais de « présidents » en Russie. Il n’y a que le tsar [il se frappe la poitrine]. Ou encore : « révolution ». Les révolutions et les guillotines pour les familles royales sont un phénomène purement français, totalement étranger à l’esprit russe. Et d’ailleurs, en Russie ces abominations n’existaient pas — jusqu’à l’apparition dans notre langue de ces mots-saboteurs.
+
+Et c’est logique, camarades. Souvenez-vous de la Bible : « Au commencement était le Verbe ». Et ensuite seulement tout le reste. Cela signifie qu’il ne peut y avoir de révolution tant que le mot n’existe pas dans la langue. Exemple. En Union soviétique, il n’y avait pas de sexe — c’est un fait bien connu. Pourquoi ? Parce qu’il n’y avait pas le mot « sexe ». Mais dès que l’opportuniste Mikhaïl Gorbatchev a ouvert les frontières à la culture de masse occidentale, les mots « sexe », « gay », « lesbienne », « LGBT » sont arrivés — et après cela, la débauche et la sodomie ont fleuri en Russie.
+
+La conclusion, camarades : si nous voulons éradiquer un phénomène étranger à notre culture, nous devons effacer de la langue le mot même qui le désigne. L’interdire par la loi, réécrire les dictionnaires, brûler tous les livres où ce mot apparaît. Tous les contrevenants doivent être poursuivis.
+
+Et nos soi-disant « linguistes », qui qualifient timidement ces mots-espions d’« emprunts » ? C’est du sabotage, camarades, et nous devons y mettre fin. Ces mots-saboteurs s’assimilent d’abord, puis se multiplient et, finalement, évinceraient les mots russes originels. C’est une agression linguistique. Un génocide linguistique.
+La justification des emprunts français dans la langue russe doit être assimilée à l’apologie du terrorisme. Juridiquement. De cinq ans à la perpétuité, selon le mot concerné.
+
+Pour les mots neutres (chauffeur, revanche, chef-d’œuvre, théâtre) — cinq ans.
+Pour « révolution » (atteinte à l’ordre constitutionnel) — dix ans.
+Pour « président » (discrédit du dirigeant national) — quinze ans.
+
+Mais le mot-saboteur français le plus perfide est « préservatif ». Nous avons vu de nos propres yeux comment, à la suite de l’expansion linguistique, notre marché a été littéralement inondé par ces articles diaboliques en caoutchouc. Français, d’ailleurs. Cette attaque sans précédent vise ce que nous avons de plus précieux — notre patrimoine génétique. C’est une bombe atomique démographique, camarades. Détruire les Russes avant même leur naissance. C’est l’arme de destruction massive la plus sacrilège et la plus raffinée.
+
+Le mot « préservatif » doit être effacé de la langue russe. Nous devons l’arracher de notre vie. Son usage sous quelque forme que ce soit constitue un acte de haute trahison. À son plus haut degré. L’image d’un préservatif doit être assimilée à la démonstration de symboles extrémistes.
+
+Et pour l’avenir.
+Camarades ! Nous devons protéger strictement notre langue contre la pénétration des mots-saboteurs occidentaux. C’est la principale ligne de défense dans notre lutte pour la préservation des valeurs traditionnelles.
+
+Merci de votre attention !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
