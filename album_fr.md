@@ -1062,7 +1062,7 @@ vous écoutez de la musique ! C’est de la discréditation !
 
 Clinique dentaire, ville russe.
 Sur la porte du cabinet, un écriteau : « Plus de matériel pour les plombages. »
-Dans le hall, le dentiste en discussion avec un patient
+Dans le hall, le dentiste en discussion avec un patient.
 
 **Dentiste** :
 
@@ -1362,7 +1362,7 @@ Au-dessus d’eux, le Père Noël vole, un sac de cadeaux à la main.
 ![](Images/Fr_Album_38.jpg)
 
 Front russo-ukrainien – côté russe.
-Un prêtre orthodoxe exhorte des soldats à se faire baptiser Dan's une piscine gonflable.
+Un prêtre orthodoxe exhorte des soldats à se faire baptiser dans une piscine gonflable.
 
 **Prêtre** :
 
