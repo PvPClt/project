@@ -2212,7 +2212,7 @@ Nous allons ressusciter notre grande puissance et notre grande « deuxième arm�
 ![](Images/Fr_Album_60.jpg)
 
 Russie. Moscou. Salle des séances de la Douma d’État.
-Le président de la Russie, Vladimir Poutine, s’adresse aux députés.
+Le président russe, Vladimir Poutine, s’adresse aux députés.
 
 — Chers députés ! Amis ! Camarades !
 La situation géopolitique est montée à son paroxysme. Les ennemis de la Russie ne restent pas les bras croisés. L’Occident fait tout pour nous détruire. Surtout l’Europe. Surtout la France. La France a de tout temps été — et reste — notre principal adversaire. La France n’a cessé de porter atteinte à nos valeurs traditionnelles, cherchant à détruire notre patrimoine culturel, notre langue. Rappelons le XIXᵉ siècle, lorsque, à la suite d’une opération d’influence française, toute l’élite russe a parlé exclusivement français pendant des décennies. La langue russe s'est retrouvée au bord de l'oubli total et de l'extinction. Et si ce n’était le peuple russe profond, qui haïssait — à juste titre — tout ce qui était français, nous parlerions aujourd’hui français !
