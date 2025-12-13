@@ -2,7 +2,7 @@
 
 # ABOUT THE AUTHOR 
 
-![](Inmages/Author.jpg)
+![](Images/Author.jpg)
 
 On 24 April 2024, I fled Russia to escape physical persecution by the security services. I was subjected to so-called "prolonged murder" – systematic poisoning with toxic gases. When I was brought to the brink beyond which death became clearly visible, I was forced to leave the country.
 
