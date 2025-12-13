@@ -2206,8 +2206,8 @@ Nous allons ressusciter notre grande puissance et notre grande « deuxième arm�
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
-
- ## 60.OPÉRATION D'INFILTRATION CULTURELLE
+                              
+## 60.OPÉRATION D'INFILTRATION CULTURELLE
 
 ![](Images/Fr_Album_60.jpg)
 
