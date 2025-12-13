@@ -2,6 +2,8 @@
 
 # ABOUT THE AUTHOR 
 
+![](Inmages/Author.jpg)
+
 On 24 April 2024, I fled Russia to escape physical persecution by the security services. I was subjected to so-called "prolonged murder" – systematic poisoning with toxic gases. When I was brought to the brink beyond which death became clearly visible, I was forced to leave the country.
 
 On 29 September 2024, I applied for asylum in Switzerland, providing sufficient grounds for the impossibility of my return to Russia.
