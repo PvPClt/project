@@ -1,5 +1,6 @@
-
 # À PROPOS DE L'AUTEUR 
+
+![](Images/Author.jpg)
 
 Le 24 avril 2024, j’ai fui la Russie pour échapper aux persécutions physiques des services de sécurité. J’ai été soumise à ce qu’on appelle un « assassinat prolongé » – un empoisonnement systématique par des gaz toxiques. Lorsque j’ai été conduite au seuil au-delà duquel la mort se dessinait clairement, j’ai été contrainte de quitter le pays.
 
