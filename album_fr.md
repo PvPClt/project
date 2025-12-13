@@ -2209,7 +2209,7 @@ Nous allons ressusciter notre grande puissance et notre grande « deuxième arm�
 
  ## 60.OPÉRATION D'INFILTRATION CULTURELLE
 
-![](Images/Fr_Album_59.jpg)
+![](Images/Fr_Album_60.jpg)
 
 Russie. Moscou. Salle des séances de la Douma d’État.
 Le président de la Russie, Vladimir Poutine, s’adresse aux députés.
