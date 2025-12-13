@@ -850,7 +850,7 @@ Il pêche sur le Dniepr, en Ukraine, en compagnie de son ministre de la Défense
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 16. LE RENSEIGNEMENT A SIGNALÉ : UNE CHAMBRE D’ENFANT FABRIQUAIT DES UNIFORMES
+## 16. CHAMBRE D’ENFANT – ATELIER DE CONFECTION D’UNIFORMES MILITAIRES
 
 ![](Images/Fr_Album_16.jpg)
 
@@ -1439,7 +1439,7 @@ Prédication sur le parvis.
 #PoutinismeMilitaireOrthodoxe
                                👻
 
-## 42. LA LIGNE TORDUE DE POUTINE
+## 42. LIGNE TORDUE DE POUTINE
 
 ![](Images/Fr_Album_42.jpg)
 
@@ -1613,7 +1613,7 @@ Au tableau : la courbe de natalité en Russie.
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 50. POUTINE 2.0 : LA SPIRALE DE L’HISTOIRE
+## 50. POUTINE 2.0 – SPIRALE HISTORIQUE
 
 ![](Images/Fr_Album_50.jpg)
 
