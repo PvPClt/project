@@ -2249,7 +2249,7 @@ We will revive our great country and our great "second army of the world." Moreo
 #OrthodoxMilitaryPutinism
                               👻
                               
-60. CULTURAL INFILTRATION OPERATION 
+## 60. CULTURAL INFILTRATION OPERATION 
 
 ![](Images/Fr_Album_60.jpg)
 
