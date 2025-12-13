@@ -2248,6 +2248,45 @@ We will revive our great country and our great "second army of the world." Moreo
 
 #OrthodoxMilitaryPutinism
                               👻
+                              
+60. CULTURAL INFILTRATION OPERATION 
+
+![](Images/Fr_Album_60.jpg)
+
+Russia. Moscow. State Duma hall.
+President of Russia Vladimir Putin is speaking to the deputies.
+
+“Esteemed deputies! Friends! Comrades!
+The geopolitical situation has reached a boiling point. Russia’s enemies are not sitting idle. The West is doing everything in its power to destroy us. Especially Europe. Especially France. France has always been and remains our main adversary. France has constantly encroached on our traditional values, trying to destroy our cultural heritage and our language. Let us recall the 19th century, when, as a result of a French influence operation, the entire Russian elite spoke exclusively French for decades. The Russian language found itself on the verge of complete oblivion and extinction. And if it weren’t for the deep Russian people, who quite rightly hated everything French, we would all now be speaking French!
+
+Yes, in the 19th century French intelligence failed, but now they are trying to take revenge.
+Our enemies accuse us of allegedly waging a hybrid war against the West. Brazen lies! We are peaceful people. But the French truly do attack our culture, our traditional values, our language again and again. They have infiltrated the Russian language with a massive enemy landing force. Just look at how many French words we have — words so cleverly disguised that people don’t even suspect their speech is packed with French spy-words.
+
+Chauffeur, tableau, theatre, chef-d’œuvre… There are thousands of them. It’s no longer clear whether it’s still Russian or already a dialect of French.
+Well, the word “chauffeur” is nothing. But they're sneaking such destructive words as "president" and "revolution" into our language! This is nothing but blatant sabotage and an assault on our traditional values. What is this “president”? Russia has never had and never will have “presidents.” Only a tsar [pounds his chest]. Or take “revolution.” Revolutions and guillotines for royal families are purely French socio-political phenomena, absolutely alien to the Russian spirit. And by the way, we never had these abominations — until these shameful sabotage-words entered our language.
+
+And this makes sense, comrades. Remember the Bible: “In the beginning was the Word.” And only after that — everything else. Meaning: there can be no revolution until the word “revolution” exists in the language. For example. In the Soviet Union there was no sex — this is a well-known fact. Why? Because there was no word “sex.” But once the opportunist Mikhail Gorbachev opened the borders to Western mass culture, the words “sex,” “gay,” “lesbian,” “LGBT” entered — and after that, debauchery and sodomy blossomed in Russia.
+
+The conclusion, comrades: if we want to eradicate a phenomenon alien to our culture, we must erase from the language the very word that denotes it. Ban it by law, rewrite dictionaries, burn all books containing that word. All violators must be prosecuted.
+
+And our so-called “linguists,” who shyly call these spy-words “borrowings”? This is sabotage, comrades, and we must stop it. First these sabotage-words assimilate, then they begin to multiply, and eventually they drive out the original Russian words. This is linguistic aggression, comrades. Linguistic genocide.
+Justifying French borrowings in the Russian language must legally be equated to justifying terrorism. From five years to life imprisonment, depending on the particular word.
+
+For neutral words (chauffeur, revanche, chef-d’œuvre, theatre) — five years.
+For “revolution” (undermining the constitutional order) — ten years.
+For “president” (discrediting the national leader) — fifteen years.
+
+But the most insidious French sabotage-word is “condom.” We have seen with our own eyes how, after linguistic expansion, our market was literally flooded with these devilish rubber products. French ones, by the way. This unprecedented attack is aimed at the most valuable thing we have — our gene pool. This is a demographic atomic bomb, comrades. To destroy Russians even before they are born. This is the most blasphemous, the most sophisticated weapon of mass destruction.
+
+The word “condom” must be erased from the Russian language. We must uproot it from our lives. The use of this word in any form is an act of high treason. In its highest manifestation. The depiction of a condom must be equated with displaying extremist symbols.
+
+And in the future.
+Comrades! We must strictly protect our language from the penetration of Western sabotage-words. This is the main defensive line in our struggle for traditional values.
+
+Thank you for your attention!
+
+#OrthodoxMilitaryPutinism
+                              👻
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
