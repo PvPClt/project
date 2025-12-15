@@ -1,4 +1,4 @@
-,**Shcheglova Olga (Boris Bidyaga)**
+**Shcheglova Olga (Boris Bidyaga)**
 
 # 🇬🇧 ALBUM OF SATIRICAL MINIATURES "WARD №666"
 
@@ -2287,6 +2287,423 @@ Thank you for your attention!
 
 #OrthodoxMilitaryPutinism
                               👻
+
+## 61. GEOPOLITICAL SANDBOX
+*Unfinished Mini-Play*
+
+![](Images/All_Album_61.jpg)
+
+Seven boys are playing in the Sandbox:
+ Bully, Jew, and five others. Each boy is special, each wears a unique headpiece: a red cap, a white cap, a bucket hat, a peaked cap, a hat.
+ 
+
+**ACT 1**
+
+The Boys in the Sandbox
+
+**HAT**:
+
+— News, everyone! The Bully has started another fight.
+
+**WHITE CAP:**
+
+— With whom this time?
+
+**HAT**:
+
+— The Jew.
+
+**WHITE CAP** (sternly):
+
+— Bully, stop it immediately! Disrupting order in the Sandbox is unacceptable!
+
+**BULLY**:
+
+— And who are you to give me orders?
+
+**WHITE CAP:**
+
+— I am the Sandbox monitor. I am the moral authority.
+
+**BULLY**:
+
+— And I am the criminal Authority. I don’t care about your rules. I have a special path and special moral values.
+
+**PEAKED CAP** (cautiously):
+
+— And what's the fight about anyway? What are you arguing over?
+
+**BULLY:**
+
+— He grabbed my land!
+
+**WHITE CAP:**
+
+— Since when is it yours?
+
+**BULLY**:
+
+— It’s always been mine. My great-grandfather’s ashes are buried there!
+
+**HAT**:
+
+— But we agreed on the inviolability of borders! Your Uncle Boris put his signature on it!
+
+**BULLY**:
+
+— Boris was a fool and an alcoholic. Therefore, the deal is declared null and void! It’s my land. End of discussion.
+
+(The Bully walks up to the Jew and punches him in the chest.)
+
+**JEW**:
+
+— Help! He’s killing me!
+
+**HAT**:
+
+— Hang in there, little guy! We’ll pass a Resolution right now. First. We fully condemn this aggression!
+
+**BUCKET HAT:**
+
+— Second. We recognize the Jew’s legitimate right to defend his territory by any means necessary.
+
+**PEAKED CAP:**
+
+— Third. We call on the Bully to respect the established order and immediately cease the conflict.
+
+**WHITE CAP:**
+
+— Should we maybe actually help him?
+
+**BULLY** (making a scary face):
+
+— Just you try! You’ll get a black eye!
+
+**HAT**:
+
+— Such statements are unacceptable! Personally, I find them concerning.
+
+**PEAKED CAP:**
+
+— And disconcerting.
+
+**BUCKET HAT:**
+
+— Guys, we need to be careful with him. Don’t forget: he has a bulldozer.
+
+**BULLY**:
+
+— Exactly! I’ll bring my bulldozer and smash this whole Sandbox to splinters!
+
+(He hits the Jew again.)
+
+**JEW** (in a whisper):
+
+— He’s killing me.
+
+**HAT**:
+
+— My concern has multiplied many times over.
+
+**PEAKED CAP**:
+
+— My disconcertment is growing exponentially.
+
+**WHITE CAP:**
+
+— I heard that his so-called bulldozer is all rusted out and won’t start.
+
+**BUCKET HAT** (with doubt in his voice):
+
+— We don’t know for sure, what if he fixed it and installed new spark plugs?
+
+**HAT**:
+
+— We must be prudent. Let’s not anger him.
+
+**BUCKET HAT**:
+
+— But it’s obvious: as soon as he finishes off the Jew, he’ll attack the rest of us!
+
+**PEAKED CAP:**
+
+— I am, of course, a bit farther from him, and across the strait, but still, my knees are trembling with fear. Here’s an idea: let’s help the Jew, but just a little bit and secretly. That way the Bully won’t notice.
+
+**BUCKET HAT:**
+
+— The main thing is not to give too much. If the Bully starts losing ground, he’ll get angry. And then he’ll definitely bring his bulldozer and raze the entire Sandbox to the ground.
+
+**HAT**:
+
+— Correct. Let them fight. While the Bully is busy with this brawl, we can sleep soundly.
+
+**WHITE CAP:**
+
+— Excellent plan. We’ll do just that.
+
+
+**ACT 2**
+
+The New Monitor
+
+A boy in a red cap, holding a golf club, approaches the Sandbox.
+
+**RED CAP:**
+
+— So, what do we have here? A complete mess. It’s all your fault, you foolish old man. Get out of the Sandbox! Your time is up. I’m the monitor now.
+
+**WHITE CAP:**
+
+— Fine. I’m leaving. I did all I could. Good luck with this conflict!
+
+**RED CAP:**
+
+— That’s not why I came. I came to get the Gold Peacemaker Medal. You, with your stupid decrees, only fueled this fight. I came to stop it. You’re a fool, and I’m smart. That’s the whole difference between us. Get out and stop bothering me.
+
+(White Cap leaves.)
+
+**JEW** (looking at the new monitor with hope):
+
+— You will help me, right?
+
+**RED CAP** (sternly):
+
+— So many fine young men have fallen! Beautiful, splendid young men! And all because of you. Why did you let yourself be dragged into this conflict?
+
+**JEW** (stunned):
+
+— I let myself?! He was the one who started it!
+
+**RED CAP**:
+
+— And didn’t you see he’s a thousand times stronger than you? A normal person doesn’t pick a fight with a superior opponent. You should have negotiated right away, not escalated the conflict.
+
+**JEW**:
+
+— But I couldn’t just give him the land! My constitution doesn’t allow it.
+
+**RED CAP**:
+
+— Don’t give me that! You have no cards. You didn’t give it up then, you’ll give it up now. Don’t give it up now, you’ll give it up in a year. Same difference. Only another half a million fine boys will end up in the grave.
+
+**JEW**:
+
+— But that’s not fair! You should help me defeat him instead.
+
+**RED CAP** (with condemnation):
+
+— How much help did the old man give you? Billions in coins. You didn’t even say thank you. You just kept whining and begging for more. And then — where is it all? What happened to those billions?
+
+**JEW**:
+
+— I’m ashamed to admit it, but... they were a bit embezzled. It just happened. It’s not my fault!!!
+
+**RED CAP:**
+
+— You have to pay back all those billions to me. I heard significant deposits of rare-earth metals have been found on your plot? They belong to me now.
+
+**JEW** (agitated):
+
+— This is robbery!
+
+**RED CAP**:
+
+— You thought you’d get a free ride? That’s not how things are done. Sign here.
+
+**JEW**:
+
+— But I’m not authorized. I need parliamentary approval...
+
+**RED CAP**:
+
+— Oh, really?! Hey, Steve, call the guys — tell them to hold back our intel.
+
+**JEW** (desperately):
+
+— Not the intel! I beg you!
+
+**RED CAP:**
+
+— So, are you signing or not?
+
+**JEW** (dejectedly):
+
+— I’m signing.
+
+
+**ACT 3**
+
+The Same Characters
+
+**RED CAP:**
+
+— So, we begin the peace process. I demand an end to this fight. Bully, state your terms.
+
+**BULLY**:
+
+— He must give me two regions. Throw half of his toy soldiers in the trash. And renounce joining any military blocs.
+
+**RED CAP:**
+
+— Hmm... Not bad. Jew, do you agree?
+
+**JEW** (firmly):
+
+— Over my dead body.
+
+**BULLY** (with a gloating smirk):
+
+— That can be arranged.
+
+**RED CAP:**
+
+— Enough with your jokes! Jew, what’s the problem?
+
+**JEW**:
+
+— He wants me to give him the land without a fight. That’s absurd! There’s no precedent for that in military history.
+
+**RED CAP:**
+
+— Why do you need so much land? Half your population has emigrated.
+
+**JEW**:
+
+— I can’t. Society is against voluntarily ceding territory.
+
+**RED CAP:**
+
+— Hey, Steve! Hold back our intel!
+
+**JEW** (hurriedly):
+
+— Alright, alright. I agree, but I demand thorough detailing of the specifics.
+
+**RED CAP:**
+
+— What about the toy soldiers? And renouncing military blocs?
+
+**JEW**:
+
+— In that case, I need ironclad security guarantees—in case the Bully tries to take more of my land. Who will protect me? And how?
+
+**RED CAP:**
+
+— I’m giving you a personal guarantee: in case of renewed aggression, we’ll... figure something out. A 100% guarantee.
+
+
+**ACT 4**
+
+The Same Characters
+
+**RED CAP:**
+
+— I’m doing everything possible to reconcile these brawlers. I’ve tried every means. But the peace process is somehow stalled.
+
+**PEAKED CAP:**
+
+— You’re the best negotiator — strict but fair. Can I call you “Daddy”?
+
+**HAT**:
+
+— The perfect nickname! Daddy! We are in awe of your diplomatic skill! However, one can’t help but notice that you’re putting pressure on the Jew while fully supporting the Bully’s demands.
+
+**BUCKET HAT:**
+
+— Daddy! We would recommend putting pressure on the Bully as well — for example, you could give the Jew weapons. You promised! But for some reason, you aren’t...
+
+**HAT**:
+
+— It seems Daddy is afraid of the Bully’s bulldozer.
+
+**RED CAP:**
+
+— The bulldozer is a bluff. The Bully is pulling our leg. I’m not afraid of a bulldozer. What I am truly afraid of is that he’ll sneak up from behind, splash gasoline on my trousers, and set them on fire.
+
+(Hat, Peaked Cap, and Bucket Hat exchange meaningful glances and giggle nervously.)
+
+**RED CAP:**
+
+— What’s so funny? Your trousers are just as vulnerable to him as mine are! So I advise you to think long and hard before giving weapons to the Jew. Personally, I wash my hands of it.
+
+**PEAKED CAP:**
+
+— Well, then you could impose secondary sanctions on the Bully.
+
+**RED CAP:**
+
+— Sanctions are a debatable matter. First, I don’t want to scare him away from the negotiations. Right now, the Bully is meeting me halfway, and we should value that. Second, he has the world’s largest reserves of rare-earth metals. Why should I quarrel with him if I intend, after peace is concluded, to trade and jointly develop those unique deposits? And besides: my personal friendly relationship with the Bully is the key to future peace in the Sandbox.
+
+(Pause.)
+
+**RED CAP:**
+
+— As for you three — I have major grievances with you! Do you think I’ll save you when the Bully attacks you? Don’t even hope. Enough of freeloading off me! You’re big boys and must learn to defend yourselves. You need to increase your defense spending to 5 percent of your GDP. That’s an order!
+And stop this idiotic immigration! Just look at yourselves in the mirror, see what you’ve become. Where has all your aristocratic bearing, your moral values, your faith gone? You’re destroying your own identity with your own hands. If things continue like this — our friendship will be over!
+
+
+**ACT 5**
+
+The Same Characters
+
+**RED CAP:**
+
+— So, to summarize. The thirteenth round of talks was sabotaged by the Jew — forcing me to kick him out of the Oval Office. The fourteenth round was sabotaged by the Bully, because, apparently, his plane number one got lost in a labyrinth of clouds.
+
+**BULLY** (casually):
+
+— That’s exactly what happened — the Jew disabled all my navigation systems!
+
+**RED CAP:**
+
+— Fine, whatever! Let’s schedule a date for the next round. And no more nonsense! I propose next Thursday.
+
+**JEW**:
+
+— Won’t work for me — I have Shabbat.
+
+**RED CAP:**
+
+— Then Friday.
+
+**BULLY:**
+
+— Christ was crucified on a Friday.
+
+**RED CAP:**
+
+— Then Saturday, Sunday, Monday...
+
+**BULLY** (shaking his head negatively):
+
+— A three-day mourning period has been declared nationwide...
+
+**RED CAP** (furious):
+
+— Then today! Now! This minute!
+I demand that you make peace! Sit down at the negotiating table!
+
+(Red Cap pulls out a folding table and two chairs from behind his back.)
+
+**RED CAP:**
+
+— My pleasure! Have a seat!
+
+**BULLY**:
+
+— Well, now! My chair has gone missing. This is direct sabotage of the negotiation process. I can’t negotiate standing up!
+
+**JEW**:
+
+— And a leg broke off my chair! It’s all the Bully, his tricks!
+
+(Waves a chair leg in the air.)
+
+**RED CAP** (wearily, with a martyred expression):
+
+— The fifteenth round of negotiations is concluded. The dialogue was productive but difficult. We eagerly await the next meeting. There’s a good chance of reaching an agreement before Thanksgiving.
+
+                              
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
