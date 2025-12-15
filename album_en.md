@@ -1236,6 +1236,8 @@ And, I am sure, it will be your salvation in any hopeless situation.
 
 ## 32. PUTINACEA FOR ALL TROUBLES: FEAR
 
+![](Images/En_Album_32.jpg)
+
 **PUTINACEA®**
 
 A combined broad-spectrum drug. Active against all oppositional microorganisms.
