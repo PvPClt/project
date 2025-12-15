@@ -284,22 +284,17 @@ Are stomped into that consecrated ground.
 
 > Sacred ancient Egyptian temple. Inside, well-known procedure of Judgment of the Egyptian god Osiris, as described in the "Book of the Dead," is taking place. Also participate:
 > 
-> • God Thoth (court secretary, clay tablet in hands)
+> • God Thoth (court secretary, clay tablet in  hands)
+>
 > • God Anubis (forensic expert)
+>
 > • Goddess Maat (prosecutor)
+>
 > • 42 Egyptian God-jurors (wearing masks of Hitler, Mussolini, Lenin, Stalin, Beria, Brezhnev, Zhirinovsky, Dracula, the Devil, and other historical figures)
+>
 > • Russian president, Vladimir Putin (defendant)
-> • God Thoth (court secretary, with a clay tablet in his hands)
 >
-> • God Anubis (forensic expert)
->
-> • Goddess Maat (prosecutor)
->
-> • 42 Egyptian God-jurors (wearing masks of Hitler, Mussolini, Lenin, Stalin, Beria, Brezhnev, Zhirinovsky, Dracula, the Devil, and other historical figures)
->
-> • Russian president, Vladimir Putin (the defendant)
->
-> The hall is illuminated by flickering TV screens broadcasting the court proceedings. Putin stands by gigantic apothecary scales; on one scale pan lies a red paper heart with a gilded engraving: "Putin: 86%". The other pan is empty, yet the scales balance each other.
+> Hall illuminated by TV screens broadcasting court proceedings. Putin stands by gigantic apothecary scales; on one scale pan lies a red paper heart with a gilded engraving: "Putin: 86%". The other pan is empty, yet the scales balance each other.
 
 **Osiris**:
 
