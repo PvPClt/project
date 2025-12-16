@@ -2248,6 +2248,425 @@ Merci de votre attention !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
+
+
+ ## 61. LE BAC À SABLE GÉOPOLITIQUE
+
+*Pièce de théâtre miniature inachevée*
+
+![](Images/All_Album_61.jpg)
+
+Sept garçons jouent dans un bac à sable : Le Voyou, le Juif et cinq autres. Chaque garçon est unique, portant un couvre-chef distinctif : une casquette rouge, une casquette blanche, un bob, une casquette de Marine,  un chapeau.
+
+
+**ACTE 1**
+
+Les garçons dans le bac à sable
+
+**CHAPEAU** : 
+
+— On a du nouveau ! Le Voyou a encore déclenché une bagarre.
+
+**CASQUETTE BLANCHE :** 
+
+— Contre qui cette fois ?
+
+**CHAPEAU** : 
+
+— Le Juif.
+
+**CASQUETTE BLANCHE** (sévère) :
+
+— Voyou, arrête ça immédiatement ! Il est inacceptable de troubler l'ordre du bac à sable !
+
+**VOYOU** : 
+
+— Et t’es qui toi pour me donner des ordres ?
+
+**CASQUETTE BLANCHE** : 
+
+— Je suis le délégué du bac à sable. Je suis l’autorité morale.
+
+**VOYOU** : 
+
+— Et moi, je suis l’autorité criminelle. Je m’en balance de tes règles. J’ai ma propre voie et mes propres valeurs morales.
+
+**CASQUETTE DE MARINE** (prudemment) : 
+
+— Mais pourquoi cette bagarre ? Quel est le litige ?
+
+**VOYOU** : 
+
+— Il m’a piqué ma terre !
+
+**CASQUETTE BLANCHE :** 
+
+— Depuis quand est-elle à toi ?
+
+**VOYOU** : 
+
+— Elle l’a toujours été. C’est là que repose la poussière de mon arrière-grand-père !
+
+**CHAPEAU** : 
+
+— Mais nous nous étions mis d'accord sur l'intangibilité des frontières ! Ton oncle Boris avait apposé sa signature !
+
+**VOYOU** : 
+
+— Boris était un idiot et un alcoolique. De ce fait, l’accord est déclaré nul et non avenu ! 
+C’est mon terrain. Fin du baratin.
+
+(Voyou s'approche de Juif et lui colle une châtaigne en plein thorax.)
+
+**JUIF** : 
+
+— À l’aide ! On me tue !
+
+**CHAPEAU** : 
+
+— Tiens bon, petit ! Nous allons adopter une Résolution. Primo : nous condamnons fermement cette agression !
+
+**BOB** : 
+
+— Secundo : nous reconnaissons le droit légitime du Juif à défendre son territoire par tous les moyens.
+
+**CASQUETTE DE MARINE** : 
+
+— Tertio : nous appelons le Voyou à respecter l'ordre établi et à cesser immédiatement le conflit.
+
+**CASQUETTE BLANCHE :** 
+
+— On ne devrait pas l'aider, quand même ?
+
+**VOYOU** (faisant une grimace terrifiante) : 
+
+— Essaie un peu ! Tu vas t'en prendre une dans l'œil !
+
+**CHAPEAU** : 
+
+— De tels propos sont inadmissibles ! Personnellement, ils m’inquiètent beaucoup.
+
+**CASQUETTE DE MARINE** : 
+
+— Et ils me préoccupent.
+
+**BOB** :
+
+— Les gars, faut être prudents avec lui. N'oubliez pas : il a un bulldozer.
+
+**VOYOU** : 
+
+— T’as pigé ! J'déboule avec le bulldozer и j’te lamine ce bac à sable, en deux-deux !
+
+(Il frappe à nouveau le Juif.)
+
+**JUIF** (dans un souffle) : 
+
+— On m'éclate !
+
+**CHAPEAU** :
+
+— Mon inquiétude a décuplé.
+
+**CASQUETTE DE MARINE :** 
+
+— Ma préoccupation croît de manière exponentielle.
+
+**CASQUETTE BLANCHE :** 
+
+— J'ai entendu dire que son fameux bulldozer est tout rouillé et qu'il ne démarre plus.
+
+**BOB** (d'une voix hésitante) : 
+
+— On n'en sait rien... Et s'il l'avait réparé avec des bougies neuves ?
+
+**CHAPEAU** : 
+
+— Il faut faire preuve de circonspection. Ne le fâchons pas.
+
+**BOB** : 
+
+— Mais c’est clair : dès qu'il en aura fini avec le Juif, il s'en prendra à nous !
+
+**CASQUETTE DE MARINE** : 
+
+— Moi, bien sûr, je suis un peu plus loin, de l'autre côté du détroit, mais mes genoux tremblent quand même de peur. Écoutez : on va aider le Juif, mais petit à petit et en cachette. Comme ça, le Voyou ne remarquera rien.
+
+**BOB** : 
+
+— L'important, c'est de ne pas lui en donner trop. Si le Voyou commence à perdre du terrain, il va s'énerver. Et là, c'est sûr, il sort son bulldozer et il rase tout le bac à sable.
+
+**CHAPEAU** : 
+
+— C’est ça. Qu’ils se battent. Tant que le Voyou est occupé par cette bagarre, nous pouvons dormir sur nos deux oreilles.
+
+**CASQUETTE BLANCHE :** 
+
+— Excellent plan. C’est ce qu’on va faire.
+ 
+ 
+**ACTE 2**
+
+Le nouveau délégué
+
+Un garçon en casquette rouge arrive près du bac à sable, un club de golf à la main.
+
+**CASQUETTE ROUGE :** 
+
+— Alors, qu'est-ce que vous foutez ? Quel bordel sans nom ! C'est de ta faute, vieille baderne. Dégage du bac à sable ! Ton temps est révolu. C'est moi qui mène la danse, ici.
+
+**CASQUETTE BLANCHE :** 
+
+— Très bien. Je m'en vais. J'ai fait ce que j'ai pu. Bonne chance avec ce conflit !
+
+**CASQUETTE ROUGE :**
+
+— Je ne suis pas venu pour tes enfantillages. Je suis venu récupérer ma Médaille d’Or de la Paix. Toi, avec tes stupides édits, tu n’as fait qu'attiser cette bagarre. Moi, je suis là pour y mettre un terme. Tu es une nullité, je suis le génie. Voilà l'abîme qui nous sépare. File !
+
+(Casquette Blanche s'en va.)
+
+**JUIF** (regardant le nouveau délégué avec espoir) : 
+
+— Tu vas m’aider, n’est-ce pas ?
+Tu es mon seul espoir !
+
+**CASQUETTE ROUGE** (sévèrement) : 
+
+— Tant de jeunes garçons sont tombés ! Des garçons magnifiques, superbes ! Et tout ça à cause de toi. Pourquoi t’es-tu laissé entraîner dans ce conflit ?
+
+**JUIF** (abasourdi) : 
+
+— Moi ?! Mais c'est lui qui a commencé !
+
+**CASQUETTE ROUGE** : 
+
+— Et tu n'as pas vu qu’il était mille fois plus fort que toi ? Un type normal ne cherche pas la bagarre avec des forces supérieures. Il fallait négocier tout de suite au lieu d'envenimer les choses.
+
+**JUIF :** 
+
+— Mais je ne pouvais pas lui donner ma terre ! Ma constitution me l'interdit.
+
+**CASQUETTE ROUGE :** 
+
+— Casquette Rouge : — Cesse tes balivernes ! Tu n'as plus aucune carte en main. Ce que tu n’as pas donné hier, tu es contraint de le donner aujourd’hui. Sinon, tu le donneras dans un an. Le résultat sera identique. Sauf qu'un demi-million de beaux garçons de plus finiront au cimetière.
+
+**JUIF :** 
+
+— Mais c’est injuste ! Tu ferais mieux de m’aider à le battre.
+
+**CASQUETTE ROUGE** (avec réprobation) : 
+
+— Le vieux t'a donné combien d'aide ? Des milliards de pièces. Tu n’as même pas dit merci. Tu ne fais que quémander. Et d'ailleurs, c'est passé où tout ça ? Où sont passés ces milliards ? Ils se sont volatilisés ?
+
+**JUIF** : 
+
+— J'ai honte de l'avouer, mais on en a un petit peu détourné. C'est arrivé comme ça. Je n'y suis pour rien !!!
+
+**CASQUETTE ROUGE :** 
+
+— Tous ces milliards, tu me les dois. J’ai entendu dire qu’on a trouvé de gros gisements de métaux rares sur ton lopin de terre ? Désormais, ils m’appartiennent.
+
+**JUIF** (agité) : 
+
+— C’est du vol !
+
+**CASQUETTE ROUGE** : 
+
+— Tu croyais avoir un tour de manège gratuit ? Ça ne marche pas comme ça. Signe ici.
+
+**JUIF** : 
+
+— Mais je n’ai pas les pouvoirs. Il me faut l'accord du parlement...
+
+**CASQUETTE ROUGE :** 
+
+— Ah, c'est comme ça ! Hé, Steve, appelle les gars — dites-leur de bloquer nos renseignements militaires.
+
+**JUIF** (désespéré) : 
+
+— Pas les renseignements ! Je t’en supplie !
+
+**CASQUETTE ROUGE :** 
+
+— Alors, tu signes ou pas ?
+
+**LE JUIF** (accablé) : 
+
+— Je signe.
+ 
+ 
+**ACTE 3**
+
+Mêmes personnages
+
+**CASQUETTE ROUGE :** 
+
+— Bien. Déclarons l'ouverture du processus de paix. J’exige que cette bagarre s'arrête immédiatement. Voyou, expose tes exigences.
+
+**VOYOU** : 
+
+— Il doit me donner deux régions. Démanteler la moitié de ses petits soldats. Et renoncer à rejoindre toute alliance militaire.
+
+**CASQUETTE ROUGE** : 
+
+— Hum... C'est raisonnable. Juif, t’es d’accord ?
+
+**JUIF** (fermement) : 
+
+— Uniquement sur mon cadavre.
+
+**VOYOU** (avec un sourire malicieux) :
+
+— Ça peut s'arranger.
+
+**CASQUETTE ROUGE** : 
+
+— Cessez de jouer la comédie ! Juif, c'est quoi le problème ?
+
+**JUIF** : 
+
+— Il veut que je lui donne la terre sans combattre. C’est absurde ! Il n'y a aucun précédent dans l’histoire militaire.
+
+**CASQUETTE ROUGE :** 
+
+— Pourquoi as-tu besoin de tant de terre ? La moitié de ta population a émigré.
+
+**JUIF** : 
+
+— Je ne peux pas. L’opinion publique est contre la cession volontaire de territoires.
+
+**CASQUETTE ROUGE :** 
+
+— Hé, Steve ! Bloquez les renseignements !
+
+**JUIF** (précipitamment) : 
+
+— D’accord, d’accord. Je suis d'accord, mais j'exige une étude approfondie des détails.
+
+**CASQUETTE ROUGE** : 
+
+— Et pour les soldats ? Et le renoncement aux clubs de combat ?
+
+**JUIF** : 
+
+— Dans ce cas, j'ai besoin de garanties de sécurité solides — au cas où le Voyou s'en prendrait à nouveau à mes terres. Qui me protégera ? Et comment ?
+
+**CASQUETTE ROUGE :** 
+
+— Je te donne ma garantie personnelle : en cas de nouvelle agression, nous... trouverons quelque chose. Garantie 100%.
+ 
+ 
+**ACTE 4**
+
+Mêmes personnages
+
+**CASQUETTE ROUGE :** 
+
+— J'ai tout mis en œuvre pour réconcilier ces deux bagarreurs. J’ai tout essayé. Mais pour une raison obscure, le processus de paix est au point mort.
+
+**casquette de marine :** 
+
+— Tu es le meilleur négociateur — dur mais juste. Est-ce que je peux t'appeler "Papa" ?
+
+**CHAPEAU** : 
+
+— Quel surnom parfait ! Papa ! Nous admirons ton art de la diplomatie ! Cependant, on ne peut s'empêcher de remarquer que tu mets la pression sur le Juif, alors que tu soutiens pleinement les exigences du Voyou.
+
+**BOB** : 
+
+— Papa ! Nous suggérerions de faire pression aussi sur le Voyou — par exemple, tu pourrais donner des armes au Juif. Tu l’avais promis ! Mais pour une raison qu'on ignore, tu ne le fais pas...
+
+**CHAPEAU :** 
+
+— Apparemment, Papa a peur du bulldozer du Voyou.
+
+**CASQUETTE ROUGE :** 
+
+— Le bulldozer, c'est du bluff. Le Voyou essaie de nous intimider. Je n'ai pas peur du bulldozer. Ce que je crains vraiment, c'est qu’il se faufile derrière moi pour asperger mon pantalon d'essence et y mettre le feu.
+
+(Chapeau, Casquette de Marine et Panama échangent des regards entendus et ricanent nerveusement.)
+
+**CASQUETTE ROUGE :** 
+
+— Pourquoi vous riez ? Vos pantalons sont tout aussi vulnérables que le mien face à lui ! Alors je vous conseille de bien réfléchir avant de donner des armes au Juif. Moi, personnellement, je m’en lave les mains.
+
+**CASQUETTE DE MARINE :** 
+
+— Dans ce cas, tu pourrais instaurer des sanctions secondaires contre le Voyou.
+
+**CASQUETTE ROUGE :** 
+
+— Les sanctions, c’est délicat. D'une part, je ne veux pas le faire fuir de la table des négociations. Pour l'instant, le Voyou fait des efforts, ce qui est tout à son honneur, et il faut l'apprécier. D'autre part, il possède les plus grandes réserves de métaux rares au monde. Pourquoi me brouiller avec lui si je compte, après la paix, commercer et exploiter conjointement ces gisements uniques ? En définitive, mes bonnes relations personnelles avec le Voyou constituent le gage de la paix future dans le bac à sable.
+
+(Pause.)
+
+**CASQUETTE ROUGE :** 
+
+— Quant à vous trois — J'ai un sérieux compte à régler avec vous ! Vous croyez quoi ? Que je vais venir vous sauver quand le Voyou vous sautera à la gorge ? N’y comptez même pas. Arrêtez de vivre à mes crochets ! Vous êtes des grands garçons, apprenez à vous défendre seuls. Vous devez augmenter vos dépenses de défense à 5 % de votre PIB. C’est un ordre ! Et arrêtez cette immigration idiote ! Regardez-vous dans un miroir, voyez dans quel décrépitude vous êtes. Où sont passées votre aristocratie, vos valeurs morales, votre foi ? Vous détruisez votre identité de vos propres mains. Si ça continue comme ça, notre amitié est terminée !
+
+ 
+**ACTE 5**
+
+Mêmes personnages
+
+**CASQUETTE ROUGE :** 
+
+— Alors, je résume. Le treizième round de négociations a été saboté par le Juif, dont le comportement m'a forcé à le chasser du Bureau Ovale. Le quatorzième round a été gâché par le Voyou car, voyez-vous, son "Air Force One" s’est perdu dans un labyrinthe de nuages.
+
+**VOYOU** (désinvolte) : 
+
+— C’est la vérité — le Juif a brouillé tous mes instruments de navigation !
+
+**CASQUETTE ROUGE :** 
+
+— Bon, passons ! Fixons la date du prochain round. Et pas de bêtises ! Je propose jeudi prochain.
+
+**JUIF** : 
+
+— Pas possible — j’ai Chabbat.
+
+**CASQUETTE ROUGE :** 
+
+— Vendredi alors.
+
+**VOYOU** : 
+
+— C’est le jour où ils ont crucifié le Christ.
+
+**CASQUETTE ROUGE :** 
+
+— Samedi, dimanche, lundi alors...
+
+**VOYOU** (secouant la tête négativement) : 
+
+— Un deuil national de trois jours a été décrété dans tout mon pays...
+
+**CASQUETTE ROUGE** (furieux) : 
+
+— Alors, que ça soit aujourd’hui ! Tout de suite ! À l'instant même ! J’exige que vous fassiez la paix ! Asseyez-vous à la table des négociations !
+
+(Casquette Rouge sort de derrière son dos une table pliante et deux chaises.)
+
+**CASQUETTE ROUGE :** 
+
+— Je vous en prie ! Prenez place !
+
+**VOYOU** : 
+
+— Ben voyons ! Ma chaise a disparu. C'est un sabotage direct du processus. Je ne peux pas négocier debout !
+
+**JUIF** : 
+
+— Et le pied de ma chaise est cassé ! C’est encore un coup du Voyou !
+
+(Il brandit le pied de chaise en l'air.)
+
+**CASQUETTE ROUGE** (fatigué, avec une expression de martyr) : 
+
+— Le quinzième round de négociations est terminé. Le dialogue a été productif mais difficile. Nous attendons avec impatience la prochaine rencontre. Il y a de bonnes chances d’aboutir à un accord avant Thanksgiving.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻                               
                                 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
