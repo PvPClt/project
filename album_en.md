@@ -327,7 +327,7 @@ Are stomped into that consecrated ground.
 **Putin**:
 
 — Gladly, Your Honor.
-I was born an ordinary Petersburg kid — an average C student. And through my own persistent labor, reaping the rewards in the field of state service, I climbed to the pinnacle of power — became president of a great country. I pursued the most humane and just policies. In my decrees, I promised every citizen a separate apartment, free healthcare and education, high wages, and zero inflation. I established lasting peace in the warlike Chechen Republic. I became the world's most generous donor. I built 20 oil and gas pipelines. My gas lights and heats the entire planet. I aid national liberation movements worldwide — supplying them with weapons at discounted prices. I distribute billion-dollar loans to poor countries and annul their debts a couple of years later. I give China my natural resources for a pittance. Thanks to my policies, the NATO bloc has significantly expanded its borders. I liberated the fraternal Ukrainian people from the tyranny of Zelenskyy's fascist regime. I stopped the bloody slaughter in Ukraine.
+I was born an ordinary Petersburg kid — an average C student. And through my own persistent labor, reaping the rewards in the field of state service, I climbed to the pinnacle of power — became president of a great country. I pursued the most humane and just policies. In my decrees, I promised every citizen a separate apartment, free healthcare and education, high wages, and zero inflation. I established lasting peace in the warlike Chechen Republic. I became the world's most generous donor. I built 20 oil and gas pipelines. My gas lights and heats the entire planet. I aid national liberation movements worldwide — supplying them with weapons at discounted prices. I distribute billion-dollar loans to poor countries and annul their debts a couple of years later. I give China my natural resources for a pittance. Thanks to my policies, the NATO bloc has significantly expanded its borders. I liberated the fraternal Ukrainian people from the tyranny of Zelensky's fascist regime. I stopped the bloody slaughter in Ukraine.
 
 (An ad pops up on the screen: "Gas for every tomb! Let life never end!")
 
@@ -874,7 +874,7 @@ We will fight these scoundrels. We are passing a law on preventive confiscation:
 
 ![](Images/En_Album_15.jpg)
 
-Dream of Russian President Vladimir Putin: he himself and Defense Minister Sergei Shoigu fishing on Dnieper River, Ukraine.
+Dream of Russian President Vladimir Putin: he himself and Defense Minister Sergei Shoigu fishing on the Dnieper River, Ukraine.
 
 **Shoigu:**
 
@@ -895,7 +895,7 @@ Dream of Russian President Vladimir Putin: he himself and Defense Minister Serge
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 16. INTELLIGENCE REPORTS: CHILD’S BEDROOM USED AS UNIFORM WORKSHOP
+## 16. CHILD’S BEDROOM — UNIFORM WORKSHOP
 
 ![](Images/En_Album_16.jpg)
 
@@ -915,7 +915,7 @@ Russian Ministry of Defense briefing led by General Konashenkov, chief of the De
 
 **General Konashenkov:**
 
-— They were practicing how to embroider insignia.
+— They practiced embroidering insignia.
 
 #OrthodoxMilitaryPutinism
                                 👻
@@ -924,7 +924,7 @@ Russian Ministry of Defense briefing led by General Konashenkov, chief of the De
 
 ![](Images/En_Album_17.jpg)
 
-Russia. Confessional in Russian Orthodox church. Behind screen, priest. Young girl confessing, sobbing.
+Orthodox church, Russian town. Confessional.
 
 **Girl:**
 
@@ -1135,7 +1135,7 @@ In 3125 days.
 
 ![](Images/En_Album_27.jpg)
 
-Russian town, oncology clinic. 
+Oncology clinic,  Russian town.
 Doctor’s office. Patient on examination table, doctor bandaging his chest.
 
 **Patient:**
@@ -1192,7 +1192,7 @@ I don’t need that. My ratings are already high.
 
 ![](Images/En_Album_30.jpg)
 
-Russian town, military enlistment office. Large poster on wall lists required supplies for conscripts.
+Military enlistment office, Russian town.
 
 A conscript must bring: 
 
@@ -1361,7 +1361,7 @@ Parade ground, Russian military unit. General paces before formation.
 
 **Soldier:**
 
-— Comrade General, why didn’t we take Kyiv in three days?
+— Comrade General, why didn’t we take Kyiv, the Ukrainian capital, in three days?
 
 **General:**
 
@@ -1454,7 +1454,8 @@ Russian-Ukrainian front, Russian positions. Ritual of blessing ammunition.
 
 ![](Images/En_Album_41.jpg)
 
-Russia. Entrance of Russian Orthodox church. Priest delivers sermon.
+Orthodox church, Russian town.
+Priest delivers sermon at church entrance.
 
 **Priest:**
 
@@ -1496,7 +1497,7 @@ Russia. Entrance of Russian Orthodox church. Priest delivers sermon.
 
 ![](Images/En_Album_43.jpg)
 
-Russia. Burning oil depot. Two Russian Orthodox priests talk to Patriarch.
+Burning oil depot,  Russian town. Two Orthodox priests talk to Patriarch.
 
 **Patriarch:**
 
@@ -1553,6 +1554,7 @@ Live your life so that you bring no shame to the Motherland:
 13. Abstain from doubt: faith in television shall save you.
 14. Avoid the words “freedom” and “peace,” for they are heresy.
 15. Thou shalt not make idols outside the power vertical.
+
 May loyalty be with you — and ye shall not perish in prison.
 
 *From the “Revelation of Russian agency for communications control,” ch. 666.*
@@ -1591,7 +1593,7 @@ Correctional colony for pacifists, Russia.
 
 ![](Images/En_Album_47.jpg)
 
-Russia. Confessional in Russian Orthodox church.
+Confessional in Orthodox church, Russian town.
 
 **Repentant sinner:**
 
@@ -1674,6 +1676,7 @@ Finale (Under Development — Beta Preview):
 ▸ 30% — “Novichok™” (Modern & Lethal)
 
 ▸ 10% — “Spontaneous” Heart Attack (Plausible Deniability Package)
+
 Scheduled Release: 202X
 
 > **Historical Note**
@@ -1902,7 +1905,7 @@ That wasn’t a man, that was a walking corpse!
 
 ![](Images/En_Album_53.jpg)
 
-Consultation in psychiatric hospital. Three professors at table.
+Case conference in psychiatric hospital. Three professors at table.
 
 **First Professor**:
 
@@ -2003,8 +2006,8 @@ Consultation in psychiatric hospital. Three professors at table.
 
 ![](Images/En_Album_54.jpg)
 
-Russia.
-Sermon in front of Russian Orthodox church.
+Orthodox church, Russian town.
+Priest delivers sermon at church entrance.
 
 **Priest:**
 
@@ -2030,7 +2033,7 @@ Sermon in front of Russian Orthodox church.
 ![](Images/En_Album_55_1.jpg)
 ![](Images/En_Album_55_2.jpg)
 
-Street in Russian town.
+Street, Russian town.
 
 **Police Officer:**
 
@@ -2057,7 +2060,7 @@ Street in Russian town.
 
 ![](Images/En_Album_56.jpg)
 
-Russia. Confessional of Russian Orthodox church.
+Orthodox church, Russian town. Confessional.
 
 **Penitent:**
 
@@ -2204,8 +2207,12 @@ Deputy Valentina Bebienko speaks from podium:
 
 – Dear deputies! The President has set us the task of reviving great Russia tripling the birth rate. I won’t deny  it – the task is not easy. It's a difficult task. A super difficult one. But we are obliged to fulfill it. Because our president wants us to. I propose we approach the problem creatively. Of course, our target audience is young people. Under 30. After 30, influencing one's consciousness is not so easy. Mental patterns are already formed, and resistance to the state narrative is observed.
 
-Now let's remember our own sad childhood. How did we satisfy our... needs – the perfectly legitimate urges of puberty? Secretly, stealthily, in dark stairwells on dirty windowsills, in damp basements, on dusty attics, or simply, God forgive me, in the park behind a bush. And always in tension: what if someone sees? What if the neighbors report us? And if, God forbid, you got caught – they drag you to the police, write a report, call your parents. In a word, shame for the rest of your life. This is wrong, comrades. This doesn't agree with the state demographic policy. Let's correct this imbalance. Let's give our children and grandchildren a happy childhood. Just as there used to be a phone booth on every corner – now in its place there will be a beautiful and tidy "reproduction pavilion". With surveillance cameras for facial recognition – we will award participants social bonuses on the "State Services" internet-portal. 
-Inside – a spacious room with 4 double beds, a large TV on the wall. A film library with inspiring videotapes and soap operas. A cupboard with Viagra and accessories. Everything is high-style, clean, and attractive – from the cheerful wallpaper  to the playful patterns on the bed linen. And on the steps, instead of a doorman – a priest, sprinkling holy water on those entering, and with a blessing:
+Now let's remember our own sad childhood. How did we satisfy our... needs – the perfectly legitimate urges of puberty? Secretly, stealthily, in dark stairwells on dirty windowsills, in damp basements, on dusty attics, or simply, God forgive me, in the park behind a bush. And always in tension: what if someone sees? What if the neighbors report us? And if, God forbid, you got caught – they drag you to the police, write a report, call your parents. In a word, shame for the rest of your life. 
+
+This is wrong, comrades. This doesn't agree with the state demographic policy. Let's correct this imbalance. Let's give our children and grandchildren a happy childhood. Just as there used to be a phone booth on every corner – now in its place there will be a beautiful and tidy "reproduction pavilion". With surveillance cameras for facial recognition – we will award participants social bonuses on the "State Services" internet-portal. 
+Inside – a spacious room with 4 double beds, a large TV on the wall. A film library with inspiring videotapes and soap operas. A cupboard with Viagra and accessories. Everything is high-style, clean, and attractive – from the cheerful wallpaper  to the playful patterns on the bed linen. 
+
+And on the steps, instead of a doorman – a priest, sprinkling holy water on those entering, and with a blessing:
 "Blessed are the copulators... in the name of the Father and of the Son, and of the Holy Spirit... in accordance with Presidential Decree No. 666..."
 
 And after nine months, the system will automatically assess performance. If the birth of a child is confirmed, the parents will receive a one-time payment. In case of a male child, the amount will be doubled — in accordance with the state program for the militarization of demographic policy.
@@ -2254,7 +2261,7 @@ Russia. Moscow. State Duma hall.
 President of Russia Vladimir Putin is speaking to the deputies.
 
 “Esteemed deputies! Friends! Comrades!
-The geopolitical situation has reached a boiling point. Russia’s enemies are not sitting idle. The West is doing everything in its power to destroy us. Especially Europe. Especially France. France has always been and remains our main adversary. France has constantly encroached on our traditional values, trying to destroy our cultural heritage and our language. Let us recall the 19th century, when, as a result of a French influence operation, the entire Russian elite spoke exclusively French for decades. The Russian language found itself on the verge of complete oblivion and extinction. And if it weren’t for the deep Russian people, who quite rightly hated everything French, we would all now be speaking French!
+The geopolitical situation has reached a boiling point. Russia’s enemies are not sitting idle. The West is doing everything in its power to destroy us. Especially Europe. Especially France. France has always been and remains our main adversary. France has constantly encroached on our traditional values, trying to destroy our cultural heritage and our language. Let us recall the 19th century, when, as a result of a French influence operation, the entire Russian elite spoke exclusively in French for decades. The Russian language found itself on the verge of complete oblivion and extinction. And if it weren’t for the deep Russian people, who quite rightly hated everything French, we would all now be speaking in French!
 
 Yes, in the 19th century French intelligence failed, but now they are trying to take revenge.
 Our enemies accuse us of allegedly waging a hybrid war against the West. Brazen lies! We are peaceful people. But the French truly do attack our culture, our traditional values, our language again and again. They have infiltrated the Russian language with a massive enemy landing force. Just look at how many French words we have — words so cleverly disguised that people don’t even suspect their speech is packed with French spy-words.
@@ -2582,7 +2589,7 @@ The Same Characters
 
 **JEW**:
 
-— In that case, I need ironclad security guarantees—in case the Bully tries to take more of my land. Who will protect me? And how?
+— In that case, I need ironclad security guarantees — in case the Bully tries to take more of my land. Who will protect me? And how?
 
 **RED CAP:**
 
@@ -2615,7 +2622,7 @@ The Same Characters
 
 **RED CAP:**
 
-— The bulldozer is a bluff. The Bully is pulling our leg. I’m not afraid of a bulldozer. What I am truly afraid of is that he’ll sneak up from behind, splash gasoline on my trousers, and set them on fire.
+— The bulldozer is a bluff. The Bully is pulling our leg. I’m not afraid of the bulldozer. What I am truly afraid of is that he’ll sneak up from behind, splash gasoline on my trousers, and set them on fire.
 
 (Hat, Peaked Cap, and Bucket Hat exchange meaningful glances and giggle nervously.)
 
