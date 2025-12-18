@@ -16,14 +16,14 @@ Des exemples de satire politique brillante et de révélation du régime poutini
 
 ### Album de miniatures satiriques « Chambre n°666 »
 
-[lire sur le site](album_fr.md) I [télécharger le PDF]
+[lire sur le site](album_fr.md) 
 
 ### Mini-pièce satirique « Se relevant de ses genoux »
 
-[lire sur le site](play_fr.md) | [télécharger le PDF]
+[lire sur le site](play_fr.md) 
 ### Anatomie des « valeurs traditionnelles » poutiniennes, article
 
-[lire sur le site](values_fr.md) I [télécharger le PDF]
+[lire sur le site](values_fr.md) 
 
 [À PROPOS DE L’AUTEURE](fr_author)
 
@@ -38,14 +38,14 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 ### Album of satirical miniatures "Ward №666"
 
-[read on the website](album_en.md) I [download PDF]
+[read on the website](album_en.md)
 ### Satirical mini-play "Rising Off Her Knees"
 
-[read on the website](play_en.md) | [download PDF]
+[read on the website](play_en.md) 
 
 ### The Anatomy of Putin's "Traditional Values", article
 
-[read on the website](values_en.md) | [download PDF]
+[read on the website](values_en.md) 
 
 [ABOUT THE AUTHOR](en_author)
 
@@ -60,15 +60,15 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 ### Альбом сатиричних мініатюр «Палата №666»
 
-[читати на сайті](album_ua.md) I [завантажити PDF]
+[читати на сайті](album_ua.md) 
 
 ### Сатирична мініп’єса «Встаюча з колін»
 
-[читати на сайті](play_ua.md) I [завантажити PDF]
+[читати на сайті](play_ua.md)
 
 ### Анатомія путінських „традиційних цінностей“, стаття
 
-[читати на сайті](values_ua.md) | [завантажити PDF]
+[читати на сайті](values_ua.md) 
 
 [ПРО АВТОРА](ua_author)
 
@@ -83,14 +83,13 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 ### Альбом сатирических миниатюр «Палата №666»
 
-[читать на сайте](album_ru.md) I [скачать PDF](https://github.com/pvpclt/project/releases/tag/Album_Ru-v1.0.0)
+[читать на сайте](album_ru.md) 
 
 ### Сатирическая мини-пьеса «Встающая с колен»
 
-[читать на сайте](play_ru.md) I [скачать PDF](https://github.com/pvpclt/project/releases/tag/Play_Ru-v1.0.0)
-
+[читать на сайте](play_ru.md) 
 ### Анатомия путинских „традиционных ценностей“, статья
 
-[читать на сайте](values_ru.md) I [скачать PDF](https://github.com/pvpclt/project/releases/tag/Values_Ru-v1.0.0)
+[читать на сайте](values_ru.md) 
 
 [ОБ АВТОРЕ](ru_author)
