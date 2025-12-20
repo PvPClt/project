@@ -2717,7 +2717,7 @@ I demand that you make peace! Sit down at the negotiating table!
 
 ![](Images/En_Album_62.jpg)
 
-Russia, Moscow, the Kremlin. Meeting of Russian Security Council. Russian President Vladimir Putin at podium.
+Russia, Moscow, the Kremlin. Meeting of Russian Security Council. Russian President Vladimir Putin speaking.
 
 **Putin:**
 
