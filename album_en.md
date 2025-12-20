@@ -2720,32 +2720,32 @@ Russia, Moscow, the Kremlin. Meeting of Russian Security Council. Russian Presid
 **Putin:**
 
 — Comrades! 
+
 Today is a momentous day. Today, we have identified and formulated our third — and most important — goal of the Special Military Operation. Thus, from this moment on, I ask you to memorize our three strategic goals in the fight against the fascist Ukrainian regime:
 
  • Demilitarization
 
  • Denazification
 
-  • Decolonization (of the Russian language)
+ • Decolonization (of the Russian language)
 
 Comrades!
 
-It is with deep sorrow that I inform you: we have been struck by a catastrophe of cosmic proportions. For centuries, the enemy has been weaving a deadly web behind our backs, insidiously and secretly, and we have found ourselves caught in it — completely unexpectedly.
+It is with deep sorrow that I inform you: we have been struck by a catastrophe of cosmic proportions. For centuries, the enemy has been weaving a deadly web behind our backs, insidiously and secretly, and now we have found ourselves caught in it — completely unexpectedly.
 
 Comrades!
 
 We pay the utmost attention to protecting our spiritual and family values. This is wonderful! However, we have completely lost sight of our traditional communicational values. Both semantic and phonetic.
 
-After all, our language — our national treasure — has for centuries has been subjected to predatory raids by the Ukrainian language for centuries! They steal our traditional, primordial Russian words, mutilate them by changing their phonetic form and semantics, and use them in their language without our consent!
+After all, our language — our national treasure — has for centuries  been subjected to predatory raids by the Ukrainian language! They steal our traditional, primordial Russian words, mutilate them by changing their phonetic form and semantics, and use them in their language without our consent!
 
-They have stolen our prefixes and endings; they have stolen our nouns, adjectives, and verbs. They radically change their meaning; they mangle their pronunciation. This is a violation of the copyright of our intellectual property! We gave them no permission to do this. This is a criminal offense and grounds for compensation.
+They have stolen our prefixes and endings; they have stolen our nouns, adjectives, and verbs. They radically change their meaning; they mangle their pronunciation. This is a violation of the copyright of our intellectual property! We gave them no permission to do that. This is a criminal offense and grounds for compensation.
 
-But it is also a desecration of the Russian language. It is genocide of our Linguistic heritage. It is a  spit in our souls.
 But it is also a desecration of the Russian language. It is genocide of our linguistic heritage. It is a humiliating spit in our souls.
 
 Comrades! 
 
-Before me lies a three-volume work compiled by our chief linguist and renowned expert on the Russian language — Vladimir Dal. It contains all the original Russian words stolen from our language by the Ukrainian language — words that have been humiliated and insulted, turned into despicable slaves in the service of the communications of the Ukrainian fascist mob.
+Before me lies a three-volume work compiled by our chief linguist and renowned expert on the Russian language — Vladimir Dal. It contains all the original Russian words stolen from our language by the Ukrainians — words that have been humiliated and insulted, turned into speechless slaves in the service of the communications of the Ukrainian fascist mob.
 
 I do not wish to be unsubstantiated, comrades. I will give you dozens of examples of how our noble, authentic Russian words have been rudely and unceremoniously raped, violated, and forced into the alien structure of the so-called Ukrainian language.
 
@@ -2781,20 +2781,17 @@ And so on and so forth. I repeat, I have in my hands three thick volumes listing
 
 We turned to experts, who came to the conclusion that this phenomenon is nothing more than the colonization of the Russian language with the aim of discrediting, humiliating, parodying, abusing, insulting, causing serious damage to its structural elements and, ultimately, destroying it.
 
-Therefore, comrades, a new task stands before us. Through four years of selfless struggle, we have achieved the goals of demilitarization and denazification of the so-called Ukraine. Now we face a task no less important — the decolonization of the Ukrainian mova.
+Therefore, comrades, a new task stands before us. After four years of selfless struggle, we have achieved the goals of demilitarization and denazification of the so-called Ukraine. Now we are faced with an equally important task — the decolonization of the Russian language.
 
-We must tear our violated words from the claws of the fascists, return them to their home harbor, and rehabilitate them.
+We must wrest our desecrated words from the clutches of the fascists, return them to their native harbor, and rehabilitate them.
 
-And we are filing a counterclaim against Ukraine in the International Tribunal for compensation for reputational and linguistic harm. If anyone wants to use our words — obtain written permission and pay royalties. But we will not allow any violence, abuse, or disrespect toward our linguistic symbols and their sacred meanings.
+And we are filing a counterclaim against Ukraine in the International Tribunal for compensation for reputational and linguistic damage. You want to use our words?  Obtain written permission and pay royalties. But we will not tolerate any violence, abuse, or disrespect for our linguistic symbols and their sacred meaning.
 
-**Secretary of the Security Council N. Patrushev:** 
+Security Council Secretary N. Patrushev:
+— Vladimir Vladimirovich! I propose that we offer the opposing side a mutual settlement of our claim and  Ukraine's claim against Russia for material damage from military actions. We will demand compensation for the same amount — 800 billion euros.
 
-— Vladimir Vladimirovich! I propose: we launch an initiative for a 'set-off' regarding this lawsuit and Ukraine's lawsuit against Russia for material damages from military actions. We will write in the same amount — 800 billion euros.
-
-**Putin:**
-
-— A very good proposal! Thank you! Thus we win twice. They have devastation, and we are snug as a bug in a rug.
-
+Putin: 
+— Very good suggestion! Thank you! Thus, we win twice. We razed to the ground half of their country, but at the same time we do not pay a penny in reparations. 
 
 #OrthodoxMilitaryPutinism
                               👻
