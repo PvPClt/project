@@ -2707,7 +2707,109 @@ I demand that you make peace! Sit down at the negotiating table!
 
 — The fifteenth round of negotiations is concluded. The dialogue was productive but difficult. We eagerly await the next meeting. There’s a good chance of reaching an agreement before Thanksgiving.
 
+#OrthodoxMilitaryPutinism
+                              👻
                               
+                              
+## 62. OUTRAGEOUS!  ENEMIES PLUNDERING  RUSSIAN LANGUAGE!
+
+![](Images/En_Album_62.jpg)
+
+Russia, Moscow, the Kremlin. Meeting of Russian Security Council. Russian President Vladimir Putin at podium.
+
+**Putin:**
+
+— Comrades! 
+Today is a momentous day. Today, we have identified and formulated our third — and most important — goal of the Special Military Operation. Thus, from this moment on, I ask you to memorize our three strategic goals in the fight against the fascist Ukrainian regime:
+
+ • Demilitarization
+
+ • Denazification
+
+  • Decolonization (of the Russian language)
+
+Comrades!
+
+It is with deep sorrow that I inform you: we have been struck by a catastrophe of cosmic proportions. For centuries, the enemy has been weaving a deadly web behind our backs, insidiously and secretly, and we have found ourselves caught in it — completely unexpectedly.
+
+Comrades!
+
+We pay the utmost attention to protecting our spiritual and family values. This is wonderful! However, we have completely lost sight of our traditional communicational values. Both semantic and phonetic.
+
+After all, our language — our national treasure — has for centuries has been subjected to predatory raids by the Ukrainian language for centuries! They steal our traditional, primordial Russian words, mutilate them by changing their phonetic form and semantics, and use them in their language without our consent!
+
+They have stolen our prefixes and endings; they have stolen our nouns, adjectives, and verbs. They radically change their meaning; they mangle their pronunciation. This is a violation of the copyright of our intellectual property! We gave them no permission to do this. This is a criminal offense and grounds for compensation.
+
+But it is also a desecration of the Russian language. It is genocide of our Linguistic heritage. It is a  spit in our souls.
+But it is also a desecration of the Russian language. It is genocide of our linguistic heritage. It is a humiliating spit in our souls.
+
+Comrades! 
+
+Before me lies a three-volume work compiled by our chief linguist and renowned expert on the Russian language — Vladimir Dal. It contains all the original Russian words stolen from our language by the Ukrainian language — words that have been humiliated and insulted, turned into despicable slaves in the service of the communications of the Ukrainian fascist mob.
+
+I do not wish to be unsubstantiated, comrades. I will give you dozens of examples of how our noble, authentic Russian words have been rudely and unceremoniously raped, violated, and forced into the alien structure of the so-called Ukrainian language.
+
+• Take the Russian word ***ubit'*** (to kill). They snatched it and turned it into ***vbiti***. This is a discredit: one can vbit' (drive) a nail into a board, but fascists are to be killed (ubit').
+
+• Take the Russian word ***tol'ko*** (only). They turned it into ***til'ky***.To a Russian ear, it sounds offensive. Furthermore, it's noteworthy that they use the hostile NATO letter **"i"** here. With a dot! Completely alien to our intellectual values. Did you know that there is an even more vile letter in the language, **"ï,"** with two dots! It is a clear symbol of degradation and the quintessence of fascist rhetoric.
+
+• Take the Russian word ***chelovek*** (person). They turned it into ***cholovik***, and on top of that, they changed its meaning. According to their twisted logic, only men belong to the category of "people." That is, women are not people. This discredits the entire female half of humanity. What disrespect for Russian women!
+
+• Take the Russian word ***narushat'*** (to violate). They changed everything in it: the prefix, the suffix, the ending. What did they get? A disgusting hybrid: ***porushuvaty***. This is an insult to the feelings of those who believe in the beauty and grandeur of the Russian language.
+
+• Take the Russian word ***laska*** (caress). Kind, sweet, innocent, and warm. They have put it to use in the service of blatant propaganda for sexual games and debauchery! Just look at it! ***Bud' laska!*** For them, this supposedly means ***please***. "Bud' laska, go to the store." "Bud' laska, make an omelet." And so on. Every minute we hear this ***bud' laska***. But it is nothing more than an invitation to sexual foreplay: 
+
+***bud' laska = caress me!***
+
+This is sexual harassment in its purest form!
+
+• And what about the word ***shkodit'*** ? We know that it means very bad behaviour. But they stole it and — to annoy us — elevated and refined it. For them, it means ***to damage***: "Do not ***poshkod'*** the bag!" How are we supposed to take this? This is discrediting of our very meanings, comrades. Sacred meanings.
+
+What don't they do with our words!
+
+• They rearrange letters in historically established combinations: we say ***rozhdayetsya*** (is born), they say ***narodzhuyetsya***. We have **"zhd,"** they have **"dzh"***. This is a pure mockery of our language.
+
+ • We say ***vsyo*** (all/everything), they say ***usyo***.
+
+ • We say ***ulitsa*** (street), they say ***vulytsya***.
+
+•  We say ***krestit'sya*** (to cross oneself), they say ***khrestytysya***. They are simply mimicking us! Like monkeys in a zoo.
+
+•  And the good old word ***kakoy-nibud'*** (any/some)? They simply mutilated it! They castrated it and swapped the parts of the compound word. What did they get? Gibberish, abracadabra: ***bud'-yakiy***.
+
+And so on and so forth. I repeat, I have in my hands three thick volumes listing all crimes of this nature.
+
+We turned to experts, who came to the conclusion that this phenomenon is nothing more than the colonization of the Russian language with the aim of discrediting, humiliating, parodying, abusing, insulting, causing serious damage to its structural elements and, ultimately, destroying it.
+
+Therefore, comrades, a new task stands before us. Through four years of selfless struggle, we have achieved the goals of demilitarization and denazification of the so-called Ukraine. Now we face a task no less important — the decolonization of the Ukrainian mova.
+
+We must tear our violated words from the claws of the fascists, return them to their home harbor, and rehabilitate them.
+
+And we are filing a counterclaim against Ukraine in the International Tribunal for compensation for reputational and linguistic harm. If anyone wants to use our words — obtain written permission and pay royalties. But we will not allow any violence, abuse, or disrespect toward our linguistic symbols and their sacred meanings.
+
+**Secretary of the Security Council N. Patrushev:** 
+
+— Vladimir Vladimirovich! I propose: we launch an initiative for a 'set-off' regarding this lawsuit and Ukraine's lawsuit against Russia for material damages from military actions. We will write in the same amount — 800 billion euros.
+
+**Putin:**
+
+— A very good proposal! Thank you! Thus we win twice. They have devastation, and we are snug as a bug in a rug.
+
+Therefore, comrades, we are faced with a new task. After four years of selfless struggle, we have achieved the goals of demilitarization and denazification of the so-called Ukraine. Now we are faced with an equally important task—the decolonization of the Ukrainian language.
+
+We must wrest our desecrated words from the clutches of the fascists, return them to their native harbor, and rehabilitate them.
+
+And we are filing a counterclaim against Ukraine in the International Tribunal for compensation for reputational and linguistic damage. If anyone wants to use our words, they must obtain written permission and pay royalties. But we will not tolerate any violence, insults, or disrespect for our linguistic symbols and their sacred meaning.
+
+Secretary of the Security Council N. Patrushev:
+— Vladimir Vladimirovich! I propose that we offer the opposing side a mutual settlement of our claim and Ukraine's claim against Russia for material damage from military actions. We will demand compensation for the same amount — 800 billion euros.
+
+Putin: 
+— Very good suggestion! Thank you! That way, we will win twice. They will have devastation, and we will avoid reparations.
+
+#OrthodoxMilitaryPutinism
+                              👻
+
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
