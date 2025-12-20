@@ -2795,17 +2795,6 @@ And we are filing a counterclaim against Ukraine in the International Tribunal f
 
 — A very good proposal! Thank you! Thus we win twice. They have devastation, and we are snug as a bug in a rug.
 
-Therefore, comrades, we are faced with a new task. After four years of selfless struggle, we have achieved the goals of demilitarization and denazification of the so-called Ukraine. Now we are faced with an equally important task—the decolonization of the Ukrainian language.
-
-We must wrest our desecrated words from the clutches of the fascists, return them to their native harbor, and rehabilitate them.
-
-And we are filing a counterclaim against Ukraine in the International Tribunal for compensation for reputational and linguistic damage. If anyone wants to use our words, they must obtain written permission and pay royalties. But we will not tolerate any violence, insults, or disrespect for our linguistic symbols and their sacred meaning.
-
-Secretary of the Security Council N. Patrushev:
-— Vladimir Vladimirovich! I propose that we offer the opposing side a mutual settlement of our claim and Ukraine's claim against Russia for material damage from military actions. We will demand compensation for the same amount — 800 billion euros.
-
-Putin: 
-— Very good suggestion! Thank you! That way, we will win twice. They will have devastation, and we will avoid reparations.
 
 #OrthodoxMilitaryPutinism
                               👻
