@@ -2789,10 +2789,12 @@ We must wrest our desecrated words from the clutches of the fascists, return the
 
 And we are filing a counterclaim against Ukraine in the International Tribunal for compensation for reputational and linguistic damage. You want to use our words?  Obtain written permission and pay royalties. But we will not tolerate any violence, abuse, or disrespect for our linguistic symbols and their sacred meaning.
 
-Security Council Secretary N. Patrushev:
+**Security Council Secretary N. Patrushev:**
+
 — Vladimir Vladimirovich! I propose that we offer the opposing side a mutual settlement of our claim and  Ukraine's claim against Russia for material damage from military actions. We will demand compensation for the same amount — 800 billion euros.
 
-Putin: 
+**Putin:**
+
 — Very good suggestion! Thank you! Thus, we win twice. We razed to the ground half of their country, but at the same time we do not pay a penny in reparations. 
 
 #OrthodoxMilitaryPutinism
