@@ -2753,7 +2753,7 @@ I do not wish to be unsubstantiated, comrades. I will give you dozens of example
 
 • Take the Russian word ***ubit'*** (to kill). They snatched it and turned it into ***vbiti***. This is a discredit: one can vbit' (drive) a nail into a board, but fascists are to be killed (ubit').
 
-• Take the Russian word ***tol'ko*** (only). They turned it into ***til'ky***.To a Russian ear, it sounds offensive. Furthermore, it's noteworthy that they use the hostile NATO letter **i** here. With a dot! Completely alien to our intellectual values. Did you know that there is an even more vile letter in the language, **ï**, with two dots! It is a clear symbol of degradation and the quintessence of fascist rhetoric.
+• Take the Russian word ***tol'ko*** (only). They turned it into ***til'ky***.To a Russian ear, it sounds offensive. Furthermore, it's noteworthy that they use the hostile NATO letter **i** here. With a dot! Completely alien to our intellectual values. Did you know that there is an even more vile letter in the Ukrainian language: **ï**, with two dots! It is a clear symbol of degradation and the quintessence of fascist rhetoric.
 
 • Take the Russian word ***chelovek*** (person). They turned it into ***cholovik***, and on top of that, they changed its meaning. According to their twisted logic, only men belong to the category of "people." That is, women are not people? This discredits the entire female half of humanity. What disrespect for Russian women!
 
