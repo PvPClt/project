@@ -2260,7 +2260,9 @@ We will revive our great country and our great "second army of the world." Moreo
 Russia. Moscow. State Duma hall.
 President of Russia Vladimir Putin is speaking to the deputies.
 
-“Esteemed deputies! Friends! Comrades!
+**Putin:**
+
+— Esteemed deputies! Friends! Comrades!
 The geopolitical situation has reached a boiling point. Russia’s enemies are not sitting idle. The West is doing everything in its power to destroy us. Especially Europe. Especially France. France has always been and remains our main adversary. France has constantly encroached on our traditional values, trying to destroy our cultural heritage and our language. Let us recall the 19th century, when, as a result of a French influence operation, the entire Russian elite spoke exclusively in French for decades. The Russian language found itself on the verge of complete oblivion and extinction. And if it weren’t for the deep Russian people, who quite rightly hated everything French, we would all now be speaking in French!
 
 Yes, in the 19th century French intelligence failed, but now they are trying to take revenge.
@@ -2751,9 +2753,9 @@ I do not wish to be unsubstantiated, comrades. I will give you dozens of example
 
 • Take the Russian word ***ubit'*** (to kill). They snatched it and turned it into ***vbiti***. This is a discredit: one can vbit' (drive) a nail into a board, but fascists are to be killed (ubit').
 
-• Take the Russian word ***tol'ko*** (only). They turned it into ***til'ky***.To a Russian ear, it sounds offensive. Furthermore, it's noteworthy that they use the hostile NATO letter **"i"** here. With a dot! Completely alien to our intellectual values. Did you know that there is an even more vile letter in the language, **"ï,"** with two dots! It is a clear symbol of degradation and the quintessence of fascist rhetoric.
+• Take the Russian word ***tol'ko*** (only). They turned it into ***til'ky***.To a Russian ear, it sounds offensive. Furthermore, it's noteworthy that they use the hostile NATO letter **i** here. With a dot! Completely alien to our intellectual values. Did you know that there is an even more vile letter in the language, **ï**, with two dots! It is a clear symbol of degradation and the quintessence of fascist rhetoric.
 
-• Take the Russian word ***chelovek*** (person). They turned it into ***cholovik***, and on top of that, they changed its meaning. According to their twisted logic, only men belong to the category of "people." That is, women are not people. This discredits the entire female half of humanity. What disrespect for Russian women!
+• Take the Russian word ***chelovek*** (person). They turned it into ***cholovik***, and on top of that, they changed its meaning. According to their twisted logic, only men belong to the category of "people." That is, women are not people? This discredits the entire female half of humanity. What disrespect for Russian women!
 
 • Take the Russian word ***narushat'*** (to violate). They changed everything in it: the prefix, the suffix, the ending. What did they get? A disgusting hybrid: ***porushuvaty***. This is an insult to the feelings of those who believe in the beauty and grandeur of the Russian language.
 
@@ -2767,7 +2769,7 @@ This is sexual harassment in its purest form!
 
 What don't they do with our words!
 
-• They rearrange letters in historically established combinations: we say ***rozhdayetsya*** (is born), they say ***narodzhuyetsya***. We have **"zhd,"** they have **"dzh"***. This is a pure mockery of our language.
+• They rearrange letters in historically established combinations: we say ***rozhdayetsya*** (is born), they say ***narodzhuyetsya***. We have **zhd** they have **dzh**. This is a pure mockery of our language.
 
  • We say ***vsyo*** (all/everything), they say ***usyo***.
 
@@ -2779,7 +2781,7 @@ What don't they do with our words!
 
 And so on and so forth. I repeat, I have in my hands three thick volumes listing all crimes of this nature.
 
-We turned to experts, who came to the conclusion that this phenomenon is nothing more than the colonization of the Russian language with the aim of discrediting, humiliating, parodying, abusing, insulting, causing serious damage to its structural elements and, ultimately, destroying it.
+We turned to experts, who came to the conclusion that this phenomenon is nothing less than the colonization of the Russian language with the aim of discrediting, humiliating, parodying, abusing, insulting, causing serious damage to its structural elements and, ultimately, destroying it.
 
 Therefore, comrades, a new task stands before us. After four years of selfless struggle, we have achieved the goals of demilitarization and denazification of the so-called Ukraine. Now we are faced with an equally important task — the decolonization of the Russian language.
 
