@@ -2800,6 +2800,70 @@ And we are filing a counterclaim against Ukraine in the International Tribunal f
 #OrthodoxMilitaryPutinism
                               👻
 
+ ## 63. FUNDAMENTAL FOUNDATIONS OF PROPAGANDA
+
+![](Images/En_Album_63.jpg)
+
+Russia, Moscow, the Kremlin. Russian President Vladimir Putin addresses journalists of the Kremlin press pool.
+
+**Putin**: 
+
+— Comrades! Today, I would like to touch upon the bedrock principles of Russian state ideology. Our enemies accuse us of — how shall I put it —distorting ideas and facts, of turning concepts, principles, and faith upside down. In the public sphere, the term "mendacious propaganda" is frequently leveled against us.
+
+This is unjust, comrades. It is a blatant lie and a baseless insinuation. We invent nothing, and we shall tolerate no "creative ad-libbing". Our ideology is based on a strictly scientific approach. Much like Marxism-Leninism, our ideology flows logically from the world-renowned theories of the greatest thinkers of human civilization.
+
+If the three pillars of Communist teaching were Marx, Engels, and Lenin, then the three pillars of our ideology are Hegel, Einstein, and Orwell.
+
+Dialectics and the Theory of Relativity provide the scientific basis for the structural framework of our ideology. The novel "1984" is a brilliant example of the substantive application of that very structure.
+
+Our world rests upon fundamental laws:
+
+• Universal Gravitation
+
+• Unity and Struggle of Opposites (Hegel)
+
+• General Theory of Relativity (Einstein)
+
+Yes, dear comrades, everything in this world is relative: good and evil are intertwined; antagonists live in symbiosis. Read your Hegel. Remember your Einstein.
+
+Take, for instance, war and peace. The brilliant visionary Orwell was the first to uncover the immutable truth: 
+
+**PEACE IS WAR, WAR IS PEACE**
+
+And indeed, look: there is currently peace between NATO and Russia. For now. I repeat: for now. But what is happening in reality? In reality, a full-scale hybrid war is underway (cyber-attacks, a war of ideas and meanings, draconian economic sanctions, the freezing of our financial assets, and so on). And this is what you call "peace"? I must specifically note the overtly hostile practice of regular NATO weapon deliveries to Ukraine. If NATO "HIMARS", even if launched from Ukraine, have decimated dozens of my strategically vital oil refineries — does that, in your view, qualify as peace?
+
+On the other hand, conventional wars are peace in its embryonic stage. War leads nations to peace. Give people war, and they will immediately become ardent adherents of peace. War begets peace. No one desires peace more than the soldiers sitting in the trenches. These soldiers are not fighting for territory — they are fighting for peace. And the more brutal, bloody, and destructive a war becomes, the more solid and indestructible the peace born of that war will be. 
+
+**WAR IS PEACE**, comrades. This is a fact. And it is a fact that must be reckoned with.
+
+Another of Orwell’s brilliant discoveries is the axiom:
+
+**TRUTH IS A LIE**
+
+Indeed, the statement of any fact is subjective. Everything depends on the speaker’s point of view, on interpretation, and ultimately — on the definition of concepts. But conceptual frameworks can (and must!) differ across various cultures. 
+
+For example, Europe has its own notions of duty, morality, and spiritual values; we have ours. By virtue of this alone, we cannot share the same interpretation of facts. What they call the truth is, for us, a lie. And vice versa. It is self-evident.
+
+As for the so-called "rewriting" of history: this too is obvious, comrades. Scientific and technological progress is fundamentally changing our lives, our perceptions, and our views — changing them right before our eyes. We now have dozens of times more information at our disposal than we did, say, ten years ago. Artificial Intelligence offers immense opportunities for a more adequate analysis and understanding of history. Because of this, we must, of course, adapt textbooks for students and schoolchildren. This is the natural consequence of the total informatization of the society in which we live.
+
+Furthermore, the dialectical approach leads us to the recognition of an obvious truth: 
+
+**DEFENSE IS OFFENSE**
+
+Take, for example, our heroic Special Military Operation. Yes, today it is already a full-fledged war. A war for peace throughout the world. But let us recall how it all began. NATO was openly preparing an invasion of our country by the Ukrainian army. If we had not entered the territory of Ukraine on February 24, 2022, we would be defending ourselves against the enemy on our own soil right now. We acted wisely — we delivered a preemptive retaliatory strike. In doing so, we saved thousands of lives and hundreds of civilian facilities from death and destruction. As you can see: 
+
+**OFFENSE IS DEFENSE**
+
+In its purest form.
+
+And so, comrades, let us summarize. The most important front of our confrontation with the West is the ideological one. In your professional activities, you must not only disavow enemy propaganda — you must be able to prove to the electorate the scientific validity of our state ideology. I have provided you with several compelling examples. This is the foundation, which you may develop and deepen indefinitely.
+
+To work, comrades! 
+
+Victory will be ours!
+                             
+#OrthodoxMilitaryPutinism
+                              👻
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
