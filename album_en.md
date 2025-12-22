@@ -2865,6 +2865,65 @@ Victory will be ours!
 #OrthodoxMilitaryPutinism
                               👻
 
+## 64. PUTIN’S HANDBOOK
+
+![](Images/All_Album_64.jpg)
+
+Russia, Moscow, the Kremlin. Meeting of the heads of state security and law enforcement agencies. President of Russia Vladimir Putin speaking.
+
+**Putin**: 
+
+— Comrades! Who among you has read the seminal work of the great British writer **George Orwell**, "**1984**"? No one? You should. It is our handbook.
+
+Dear comrade Orwell described a fairly effective totalitarian system of government. Of course, in the middle of the last century, he couldn't have even dreamed of the technologies we have at our disposal today. Because of this, his system is quite cumbersome, resource-heavy, and expensive. But regardless — it works perfectly! Even in conditions of technological backwardness.
+
+But the main thing, comrades, is his immortal totalitarian ideas: ***doublethink***, the ***mutability of the past***, and the ***thought police***.
+
+We have already adopted some things from his system and are applying them with great success. But, as they say, there is still room for improvement.
+
+First and foremost, we must introduce the concept of ***thoughtcrime*** into our jurisprudence. This concept follows logically from our traditional values. Remember what Christ said in his sermons: if you have lusted after your brother’s wife, you have already committed adultery. Thus, according to the dogmas of our Orthodox Christian Church, the very thought of sin becomes a sin. This is an important metaphysical leap that we are simply duty-bound to put at the service of our state security.
+
+So, we didn't invent ***thoughtcrime***, and neither did Orwell — it was invented by Lord God Himself.
+
+What does this mean for us in practice?
+First: a special unit must appear within the police — Thought Purity Department. Put simply, that very Orwellian ***Thought Police***.
+
+Second: we must refine our criminal and administrative codes by introducing punishments for ***thoughtcrime***.
+And most importantly — we must launch practical work among the population.
+
+Let’s turn back to our handbook. In the mythical country of Oceania, dissenters were identified by establishing 24-hour surveillance over citizens using so-called ***telescreens***. Unlike Oceania, which, as I understand, had the status of a pariah on the international stage, Russia is one of the major geopolitical players and must maintain at least some semblance of basic decency. Therefore, we cannot openly violate such fundamental civil rights as the right to privacy.
+
+Furthermore, ***telescreens*** are effective tools of intimidation, but uncovering secret thoughts requires clandestine methods. No one will confess to heresy if they know they are being monitored.
+
+We have already taken a large — a huge — step in this direction: we developed and implemented the mandatory messenger MAX, which allows us to covertly monitor our citizens' communications. 
+
+But! When a foreign agent goes to a protest, stands in a solo picket, or publishes unpatriotic appeals on the internet — that is already an advanced stage of ideological deviation. That can no longer be cured; it can only be punished with imprisonment.
+
+In fact, you know, I suggest viewing dissent as a progressive disease. If we manage to diagnose it at an early stage, there is a very good chance that, with the help of basic corrective procedures, we can cure a person of this illness forever.
+
+Therefore — our attention must be directed primarily at children. Yes, our "Talks about the Important things" are already standard practice across the country. This is wonderful — we are instilling the correct mindsets in our children. But we need feedback! What do we have in this regard? Student surveys? They are absolutely ineffective; it’s like expecting a foreign agent to confess in front of a ***telescreen***.
+
+We need a systemic, global solution. And it lies right on the surface. What will we do? We will install 24-hour audio surveillance in kindergartens, schools, and other educational institutions. Not video surveillance — no. That is expensive and unnecessary. We don’t need faces — only conversations and a voice recognition system. This is simpler and cheaper. And it can be done covertly.
+
+Next, artificial intelligence analyzes the information coming to the server and produces the final result: "Petya Belkin from 3rd grade at School No. 212 is unreliable; yesterday during the break between the second and third lessons, he used an insulting remark directed at the President."
+
+Petya is then handled by the juvenile department for painless ideological correction — much like the way a child’s teeth are straightened with braces when they grow in sideways.
+And exactly like crooked teeth — in childhood, such ideological correction is still possible.
+
+And by the way, when little Petya grows up, he will only be grateful to us for helping him get rid of wrong thoughts in his childhood and thereby saving him from prison.
+
+Naturally, total audio surveillance should be carried out in all state institutions — we are not breaking any laws there. In coordination with private business owners, we will also install monitoring devices on their premises and in their offices. If they refuse to cooperate — well, you know how to persuade them.
+
+Our ultimate goal, comrades, is to build a harmonious society — a society based on the principles of homogeneity, conformity, solidarity, and cohesion.
+
+So that I no longer have to lie during a "Direct Line" with the people, claiming that foreign agents in Russia are not subject to criminal prosecution.
+
+We won’t actually have to persecute dissenters — for the simple reason that we won’t have any dissenters left.
+
+#OrthodoxMilitaryPutinism
+                              👻  
+                              
+
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 ### LIST OF CHARITABLE FOUNDATIONS ASSISTING UKRAINE:
