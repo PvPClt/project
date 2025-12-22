@@ -2666,7 +2666,162 @@ Mêmes personnages
 — Le quinzième round de négociations est terminé. Le dialogue a été productif mais difficile. Nous attendons avec impatience la prochaine rencontre. Il y a de bonnes chances d’aboutir à un accord avant Thanksgiving.
 
 #PoutinismeMilitaireOrthodoxe
-                                👻                               
+                                👻  
+
+                                
+## 62. AU SECOURS ! LES ENNEMIS PILLENT LA LANGUE RUSSE !
+
+![](Images/Fr_Album_62.jpg)
+
+Russie, Moscou, le Kremlin. Réunion du Conseil de sécurité de Russie. Président russe Vladimir Poutine prend la parole.
+
+**Poutine** : 
+
+— Camarades ! 
+
+Aujourd'hui est un jour mémorable. Aujourd'hui, nous avons trouvé et formulé notre troisième — et principal — objectif de l'opération militaire spéciale. Ainsi, à partir de cet instant, je vous demande de mémoriser notre triade stratégique dans la lutte contre le régime fasciste ukrainien :
+
+• Démilitarisation
+
+• Dénazification
+
+• Décolonisation (de langue Russe)
+
+Camarades ! 
+
+C'est avec une immense tristesse que je vous l'annonce : nous avons été frappés par une catastrophe d'une ampleur cosmique. L'ennemi, de manière insidieuse et secrète, dans notre dos et depuis des siècles, a tissé une toile mortelle dans laquelle nous nous sommes retrouvés, tout à fait par surprise pour nous-mêmes.
+
+Camarades ! 
+
+Nous accordons la plus grande attention à la défense de nos valeurs spirituelles et familiales. C'est merveilleux ! Cependant, nous avons totalement perdu de vue nos valeurs communicationnelles traditionnelles. Sémantiques et phonétiques.
+
+Pourtant, notre langue, notre trésor national, subit depuis des siècles les assauts de pirates pillards de la part de la langue ukrainienne ! Ils volent nos mots russes traditionnels et ancestraux, les enlaidissent en changeant leur apparence phonétique et leur sémantique, et les utilisent dans leur langue sans notre consentement !
+
+Ils nous ont volé nos préfixes et nos terminaisons, ils nous ont volé nos noms, nos adjectifs et nos verbes. Ils changent radicalement leur sens, ils massacrent leur prononciation. C'est une violation des droits d'auteur sur notre propriété intellectuelle ! Nous ne leur avons pas donné d'autorisation. C'est un délit pénal et une base pour exiger une compensation.
+
+Mais c'est aussi une profanation de la langue russe. C'est un génocide de notre Fonds Linguistique. C'est un crachat méprisant au fond de notre âme.
+
+Camarades ! 
+
+Devant moi se trouve une œuvre en trois volumes compilée par notre linguiste en chef et spécialiste reconnu de la langue russe — Vladimir Dal. Y sont rassemblés tous les mots originellement russes, volés par la langue ukrainienne, des mots soumis à l'humiliation et à l'outrage, transformés en esclaves méprisables au service des communications de la clique fasciste ukrainienne.
+
+Je ne veux pas parler sans preuves, camarades. Je vais vous citer des dizaines d'exemples de la manière dont nos nobles mots russes authentiques ont été grossièrement et sans ménagement bafoués, violés et comprimés dans le cadre étranger de la soi-disant langue ukrainienne.
+
+• Voici le mot russe ***ubit'*** (tuer). Ils l'ont raflé et transformé en ***vbiti***. C'est une discréditation : on  enfonce (***vbiti*** ) un clou dans une planche, alors que nous, nous  tuons  (***ubit'*** ) les fascistes.
+
+• Voici le mot russe ***tol'ko*** (seulement). Ils l'ont transformé en ***til'ky***. Pour une oreille russe, c'est insultant. De plus, remarquez qu'ils utilisent ici la lettre hostile de l'OTAN, le **"i"**. Avec un point ! Totalement étrangère à nos valeurs intellectuelles. Et saviez-vous qu'il existe dans la langue ukrainienne une lettre encore plus abjecte — le **"ï"** avec deux points ! C'est un symbole flagrant de dégradation et la quintessence de la rhétorique fasciste.
+
+• Voici le mot russe ***tchelovek*** (être humain). Ils en ont fait ***tcholovik***,  et en plus ils ont changé la sémantique. Selon leur logique perverse, seuls les hommes appartiennent à la catégorie des « humains ». Les femmes, donc, ne seraient pas des êtres humains? C'est une discréditation de toute notre moitié féminine. Le comble de l'irrespect envers la femme russe !
+
+• Voici le mot russe ***narushat'*** (violer/enfreindre). Ils y ont tout changé : le préfixe, le suffixe, la terminaison. Qu'est-ce que ça a donné ? Un hybride dégoûtant : ***porushuvaty***. C'est une insulte aux sentiments des croyants en la beauté et la grandeur de la langue russe.
+
+• Voici le mot russe ***laska*** (caresse/tendresse). Un mot doux, gentil, innocent et chaleureux. Ils l'ont mis au service d'une propagande éhontée pour les jeux sexuels et la débauche ! Regardez plutôt ! ***Boud' laska*** ! Chez eux, cela signifie prétendument  ***s'il vous plaît*** . "Boud' laska, va au magasin". "Boud' laska, fais une omelette". Et ainsi de suite. À chaque pas, nous entendons ce  ***boud' laska***. Mais ce n'est rien d'autre qu'une invitation aux préludes sexuels : 
+
+***boud' laska = caresse-moi*** !
+
+C'est du harcèlement sexuel à l'état pur !
+
+• Et le mot ***shkodit'*** ? Nous savons qu'il signifie commettre de mauvaises actions (faire des bêtises). Mais ils l'ont saisi et — pour nous narguer — l'ont élevé et ennobli. Chez eux, cela signifie ***endommager*** : « Fais attention à ne pas ***poshkod'*** le sac ! ». Comment comprendre cela ? C'est une discréditation de nos propres notions, camarades. Des notions sacrées.
+
+Que ne font-ils pas avec nos mots !
+
+• Ils déplacent les lettres dans des combinaisons historiquement établies : nous disons ***rozhdayetsya*** (naît), ils disent ***narodzhuyetsya***. Nous avons **"zhd"**, ils ont **"dzh"**. C'est une simple moquerie envers notre langue.
+
+• Nous disons ***vsyo*** (tout), ils disent ***ousyo***.
+
+ • Nous disons ***oulitsa*** (rue), ils disent ***voulytsya***.
+
+• Nous disons ***krestit'sya*** (se signer/se baptiser), ils disent ***khrestytysya***. Ils nous imitent tout simplement ! Comme un singe au zoo.
+
+• Et le bon vieux mot ***kakoy-niboud'*** (quelconque) ? Ils l'ont tout simplement défiguré ! Castré et inversé les parties du mot composé. Qu'est-ce que ça a donné ? Un charabia, une abracadabra : ***boud'-yakiy***.
+
+Et ainsi de suite. Je le répète, j'ai entre les mains trois volumes épais énumérant tous les crimes de ce genre.
+
+Nous avons consulté des spécialistes qui en sont venus à la conclusion que ce phénomène n'est rien d'autre qu'une colonisation de la langue russe dans le but de la discréditer, de l'avilir, de la parodier, de l'abêtir, de l'outrager, de causer des dommages graves à ses éléments structurels et, finalement, de l'anéantir.
+
+Par conséquent, camarades, une nouvelle tâche s'impose à nous. Après quatre ans de lutte acharnée, nous avons obtenu la démilitarisation et la dénazification de la soi-disant Ukraine. Maintenant, une tâche non moins importante nous attend : la décolonisation de la langue Russe.
+
+Nous devons arracher des griffes des fascistes nos mots bafoués, les ramener dans leur port d'origine et les réhabiliter.
+
+Et nous déposons une demande reconventionnelle auprès du Tribunal international contre l'Ukraine pour réparation du préjudice réputationnel et linguistique. Si quelqu'un veut utiliser nos mots — qu'il obtienne une autorisation écrite et paie des redevances. Mais nous ne permettrons aucune violence, aucun outrage et aucun manque de respect envers nos symboles linguistiques et leurs sens sacrés.
+
+ **Secrétaire du Conseil de sécurité, N. Patrouchev** : 
+ 
+— Vladimir Vladimirovitch ! Je propose : de lancer une initiative de compensation entre cette plainte et la plainte de l'Ukraine contre la Russie pour réparation des dommages matériels causés par les hostilités. Nous inscrirons le même montant — 800 milliards d'euros.
+
+**Poutine** : 
+
+— La proposition est juste. Merci ! 
+Ainsi, nous gagnons deux fois. Nous avons détruit la moitié de leur pays, et nous ne paierons pas un centime de réparations.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+                                
+
+## 63. BASES SCIENTIFIQUES DE LA PROPAGANDE
+
+![](Images/Fr_Album_63.jpg)
+
+Russie, Moscou, Kremlin. Président russe Vladimir Poutine s'adresse aux journalistes du pool de presse présidentiel.
+
+**Poutine** : 
+
+— Camarades ! 
+
+Aujourd’hui, je souhaiterais aborder les principes fondamentaux de l’idéologie d’État russe. Nos ennemis nous accusent de dénaturer les idées et les faits, de renverser les concepts, les principes et la foi. Souvent, dans l’espace public, les mots « propagande mensongère » sont utilisés à notre égard.
+
+C’est injuste, camarades. C’est un mensonge éhonté et une insinuation. Nous n’inventons rien et nous ne tolérerons aucune improvisation. Notre idéologie repose sur une approche strictement scientifique. Tout comme le marxisme-léninisme, notre idéologie découle logiquement des théories mondialement connues des plus grands penseurs de la civilisation humaine. Si les trois piliers de la doctrine communiste étaient Marx, Engels et Lénine, les trois piliers de notre idéologie sont Hegel, Einstein et Orwell.
+
+La dialectique et la théorie de la relativité constituent le fondement scientifique  du cadre structurel de notre idéologie. Le roman « 1984 » est un exemple frappant de l'application pertinente de cette structure.
+
+Notre monde repose sur des lois fondamentales :
+
+• La gravitation universelle ;
+
+• L'unité et la lutte des contraires (Hegel) ;
+
+• Théorie de la relativité générale (Einstein).
+
+Oui, chers camarades, tout dans ce monde est relatif : le bien et le mal s'entremêlent, les antagonistes vivent en symbiose. Lisez Hegel. Souvenez-vous d'Einstein.
+
+Prenons, par exemple, la guerre et la paix. Le génial visionnaire Orwell fut le premier à découvrir cette vérité immuable : 
+
+**LA PAIX, C’EST LA GUERRE** ; 
+
+**LA GUERRE, C’EST LA PAIX**
+
+ Et c’est vrai. Regardez : il y a actuellement la paix entre l'OTAN et la Russie. Pour l’instant. Je répète : pour l’instant. Mais que se passe-t-il dans les faits ? En réalité, une guerre hybride à grande échelle est en cours (cyberattaques, guerre des idées et des sens, sanctions économiques draconiennes, gel de nos actifs financiers, etc.) Et vous appelez cela « la paix » ?  Je tiens à souligner particulièrement la pratique ouvertement hostile des livraisons régulières d'armes de l'OTAN à l'Ukraine. Si les « HIMARS » de l'OTAN, bien que lancés depuis le territoire ukrainien, ont détruit des dizaines de mes raffineries de pétrole stratégiquement importantes, est-ce cela que vous appelez la paix ?
+
+D’un autre côté, les guerres conventionnelles sont la paix en gestation. La guerre mène les peuples à la paix. Donnez la guerre aux gens, et ils deviendront immédiatement de fervents partisans de la paix. La guerre engendre la paix. Personne ne désire plus la paix que les soldats accroupis dans les tranchées. Ces soldats ne se battent pas pour des territoires — ils se battent pour la paix. Et plus la guerre devient cruelle, sanglante et destructrice, plus la paix issue de cette guerre sera solide et indestructible. 
+
+**LA GUERRE, C’EST LA PAIX**, camarades. C’est un fait. Et il faut en tenir compte.
+
+Une autre découverte géniale d’Orwell est l’axiome : 
+
+**LA VÉRITÉ, C’EST LE MENSONGE** 
+
+En effet, le constat de n'importe quel fait est subjectif. Tout dépend du point de vue de l’orateur, de l’interprétation et, en fin de compte, de la définition des concepts. Mais après tout, l’appareil conceptuel peut (et doit !) différer selon les cultures. Par exemple, l’Europe a ses propres notions du devoir, de la morale, des valeurs spirituelles ; nous avons les nôtres. De ce seul fait, nous ne pouvons pas avoir la même interprétation des faits qu'eux. Ce qu’ils appellent vérité est pour nous un mensonge. Et vice versa. C’est une évidence.
+
+Quant au prétendu « réécriture » de l’histoire... Mais c’est l'évidence même, camarades. Le progrès technico-scientifique change radicalement notre vie, notre perception, nos points de vue ; il les change sous nos yeux. Nous disposons aujourd’hui de dix fois plus d’informations qu’il y a dix ans. L’intelligence artificielle offre d’immenses possibilités pour une analyse et une compréhension plus adéquates de l’histoire. Par conséquent, nous devons bien entendu adapter les manuels scolaires pour les étudiants et les écoliers. C’est une conséquence logique de l’informatisation totale de la société dans laquelle nous vivons.
+
+De plus, l’approche dialectique nous conduit à reconnaître cette vérité manifeste : 
+
+**LA DÉFENSE, C’EST L’ATTAQUE**
+
+Prenons notre héroïque opération militaire spéciale. Oui, c’est désormais une guerre à part entière. Une guerre pour la paix dans le monde. Mais rappelons-nous comment tout a commencé. L’OTAN préparait ouvertement une invasion de notre pays par l’armée ukrainienne. Si, le 24 février 2022, nous n’avions pas envahi le territoire de l’Ukraine, nous serions aujourd'hui en train de nous défendre contre l’ennemi sur notre propre sol. Nous avons agi avec sagesse : nous avons porté à l’ennemi une riposte préventive. Nous avons ainsi sauvé des milliers de vies et des centaines d’infrastructures civiles de la mort et de la destruction. Comme vous le voyez:
+
+ **L’ATTAQUE EST UNE DÉFENSE**
+
+ À l’état pur.
+
+Ainsi, camarades, résumons. Le front le plus important de notre confrontation avec l’Occident est idéologique. Dans votre activité professionnelle, vous ne devez pas seulement désavouer la propagande ennemie — vous devez savoir prouver à l’électorat le bien-fondé scientifique de notre idéologie d’État. Je vous ai donné quelques exemples convaincants. C’est une base que vous pouvez développer et approfondir à l’infini.
+
+Agissez, camarades ! 
+
+La victoire sera nôtre !
+
+#PoutinismeMilitaireOrthodoxe
+                                👻                             
                                 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
