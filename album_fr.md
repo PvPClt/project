@@ -2821,7 +2821,75 @@ Agissez, camarades !
 La victoire sera nôtre !
 
 #PoutinismeMilitaireOrthodoxe
-                                👻                             
+                                👻    
+
+                                
+## 64. "1984": GUIDE PRATIQUE DE POUTINE 
+
+![](Images/All_Album_64.jpg)
+
+Russie, Moscou, le Kremlin. Réunion des chefs des organes de la sécurité d'État et de l'ordre public. Président russe Vladimir Poutine prend la parole.
+
+**Poutine** : 
+
+— Camarades ! 
+
+Qui d'entre vous a lu l'œuvre magistrale du grand écrivain britannique ***George Orwell, « 1984 »*** ? Personne ? Lisez-le. C’est notre guide pratique.
+
+Ce cher camarade Orwell y a décrit un système de gestion étatique totalitaire assez efficace. Bien sûr, au milieu du siècle dernier, il ne pouvait même pas rêver, même en songe, des technologies dont nous disposons aujourd'hui. De ce fait, son système est assez lourd, gourmand en ressources et coûteux. Mais peu importe — il fonctionne à merveille ! Même dans des conditions de retard technologique.
+
+Mais le plus important, camarades, ce sont ses idées totalitaires immortelles : ***la doublepensée, la réécriture de l'histoire, la Police de la Pensée***.
+
+Nous lui avons déjà emprunté quelques éléments que nous appliquons avec grand succès. Mais, comme on dit, il y a encore une marge de progression.
+
+Avant tout, nous devons introduire dans notre jurisprudence le concept de ***crime de pensée***. Ce concept découle logiquement de nos valeurs traditionnelles. Rappelez-vous les sermons du Christ : si tu as convoité la femme de ton frère, tu as déjà commis l'adultère. Ainsi, selon les dogmes de notre Église orthodoxe, la pensée même du péché devient un péché. C'est un saut métaphysique majeur que nous avons le devoir de mettre au service de la sécurité de notre État.
+
+Finalement, ***le crime de pensée*** n’a été inventé ni par nous, ni même par Orwell — il a été inventé par le Seigneur Dieu Lui-même.
+
+Qu'est-ce que cela signifie pour nous en pratique ?
+
+Premièrement : la police doit se doter d'une unité spéciale — ***le Département de Pureté des Pensées***. En clair, cette fameuse ***Police de la Pensée*** orwellienne.
+
+Deuxièmement : il est nécessaire de remanier nos codes pénal et administratif en y introduisant des sanctions pour ***les crimes de pensée***.
+
+Et le plus important — nous devons organiser le travail pratique au sein de la population.
+
+Consultons notre guide pratique. Dans le pays mythique de l'Océanie, les dissidents étaient identifiés grâce à une surveillance constante des citoyens via des soi-disant ***télécrans***. Contrairement à l'Océanie, qui, si j'ai bien compris, était un paria sur la scène internationale, la Russie est l'un des plus grands acteurs géopolitiques et doit respecter au moins un semblant de décence élémentaire. Par conséquent, nous ne pouvons pas violer ouvertement des droits fondamentaux tels que le respect de la vie privée.
+
+De plus, ***les télécrans*** sont utiles comme outils d'intimidation, mais pour débusquer les pensées secrètes, il faut des méthodes secrètes. Personne n'avouera une hérésie en sachant qu'il est sur écoute et épié.
+
+Nous avons déjà fait un grand — un immense — pas dans cette direction : nous avons développé et déployé la messagerie sans alternative **MAX**, qui permet de surveiller discrètement les communications de nos citoyens. 
+
+Mais ! Quand un agent de l'étranger descend dans la rue, tient un piquet de grève solitaire ou publie des appels antipatriotiques sur Internet — c'est déjà un stade avancé de déviation idéologique. À ce niveau, on ne soigne plus, on punit par l'emprisonnement.
+
+D'ailleurs, vous savez, je propose de considérer la dissidence comme une maladie évolutive. Si nous parvenons à la diagnostiquer à un stade précoce, il y a de très bonnes chances, grâce à de simples procédures correctives, de guérir une personne à jamais.
+
+C’est pourquoi notre attention doit se porter en priorité sur les enfants.
+
+Certes, nous avons déjà généralisé les cours des « **Discussions sur l’essentiel** ». C'est parfait — nous inculquons les bonnes idées à nos enfants. Mais il nous faut un retour d’information ! Qu'avons-nous pour l'instant ? Des questionnaires pour étudiants ? C'est absolument inefficace. Cela revient à attendre les aveux d'un agent de l'étranger devant ***un télécran***.
+
+Il nous faut une solution systémique, globale. Et elle est à portée de main.
+
+Que faisons-nous ? Nous installons dans les jardins d'enfants, les écoles et autres établissements d'enseignement une écoute permanente. Pas de vidéosurveillance — non. C'est cher et inutile. Nous n'avons pas besoin des visages — seulement des conversations et d'un système de reconnaissance vocale. C'est plus simple и moins coûteux. Et cela se fait clandestinement.
+
+Ensuite, l'intelligence artificielle analyse les informations arrivant sur le serveur et livre le résultat final : 
+
+« Piotr Belkine, élève de CE2 à l'école n°212, n'est pas fiable ; hier, à la récréation entre le deuxième et le troisième cours, il a prononcé un mot offensant à l'adresse du Président. »
+
+Ensuite, le département des mineurs s'occupe de Piotr : une correction idéologique indolore, comme vous savez, quand on utilise des bagues dentaires pour corriger la position des dents d'un enfant qui poussent de travers. Et tout comme pour les dents tordues — à l'âge enfantin, une telle correction idéologique est encore possible.
+
+Et soit dit en passant, le petit Piotr, une fois adulte, ne pourra que nous être reconnaissant de l'avoir aidé, dans son enfance, à se débarrasser de ses pensées impures, le sauvant ainsi de la prison.
+
+Bien entendu, l'écoute totale doit être pratiquée dans toutes les institutions publiques — là, nous ne violons aucune loi. En accord avec les propriétaires d'entreprises privées, nous installons également des écoutes dans leurs établissements et bureaux. S'ils refusent de coopérer... vous savez comment les convaincre.
+
+Notre objectif final, camarades, est de bâtir une société harmonieuse — une société fondée sur les principes d'homogénéité, de conformisme, de solidarité et de cohésion.
+
+Pour que je n'aie plus, lors de ma « Ligne directe » avec le peuple, à mentir en affirmant qu'en Russie les agents de l'étranger ne subissent pas de poursuites pénales.
+
+En réalité, nous ne poursuivrons plus les dissidents — pour la simple et bonne raison qu'il n'y aura plus de dissidents chez nous.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻                               
                                 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
