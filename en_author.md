@@ -1,64 +1,37 @@
-
-
-# ABOUT THE AUTHOR 
+# ABOUT THE AUTHOR AND THE CONDITIONS OF THE PROJECT’S CREATION
 
 ![](Images/Author.jpg)
 
-On 24 April 2024, I fled Russia to escape physical persecution by the security services. I was subjected to so-called "prolonged murder" – systematic poisoning with toxic gases. When I was brought to the brink beyond which death became clearly visible, I was forced to leave the country.
+1. Flight and Denial of Asylum In April 2024, at the age of 66, I was forced to flee Russia to escape persecution. In September of the same year, I applied for asylum in Switzerland, providing evidence that my return to Russia was impossible.
 
-On 29 September 2024, I applied for asylum in Switzerland, providing sufficient grounds for the impossibility of my return to Russia.
-However, thanks to the operational interference of the FSB in the procedure, with the silent consent and assistance of the Swiss State Secretariat for Migration (SEM), the review process was grossly violated, resulting in my asylum application being denied.
+However, the consideration of my case was accompanied by gross procedural violations: I was not provided with an adequate translation of the Interview Protocol, my answers were distorted by the translator, and my key evidence was ignored by the SEM (State Secretariat for Migration). The Decision was based on fabricated circumstances and false "facts"; a scheduled medical examination was cancelled without explanation. As a result, I received an unsubstantiated denial of asylum and was deported to Georgia, where I found myself in the midst of a humanitarian catastrophe.
 
-Switzerland allowed Russian security services to embed their own recruited translator and lawyer into the process, who sabotaged the proceedings by deliberately distorting the content of my answers and failing to submit my written materials and evidence to the SEM. Switzerland, in turn, violated my rights by not providing me with a legally valid official translation of the Interview Protocol, forcing me to sign a knowingly false document written in French, a language I do not understand.
+2. Survival Conditions For almost two years, I, a 68-year-old woman alone, have been living in a tent on the street, without access to basic human living conditions:
 
-Colluding with the FSB, Switzerland cancelled my scheduled medical examination without explanation; the purpose of the examination was to identify damage to my respiratory tract from constant inhalation of toxic gases.
+• Cold: At night, the temperature in the tent drops below zero degrees Celsius.
 
-For over a year, since my deportation from Switzerland to Georgia, I have been living in conditions of total humanitarian catastrophe:
+• Lack of Medicine and Hygiene: No possibility of receiving medical treatment, washing, or doing laundry.
 
-• I live outdoors in winter and summer, sleep in a tent, suffering from  cold as I do not have winter clothing, footwear, or winter gear.
+• Minimal Resources: Food consists of dry rations and ice-cold water; there is no electricity, heating, air conditioning, or refrigerator (no conditions for storing medicine); I am unable to purchase gas, winter gear, or warm clothes and shoes.
 
-• I have no access to medical care and am almost always unable to buy medicine due to a lack of proper storage conditions.
+3. Systematic Pressure and Persecution My situation is not just a lack of housing. I face constant harassment and hostility that make survival practically impossible: damage to property (tent, air mattress, bicycle), systematic night-time noise, threats and intimidation, physical harm to my health, and hacking attacks on my smartphone.
 
-• I am deprived of all, even the most basic, amenities: electricity, heating, access to water, sanitation, a refrigerator, air conditioning, furniture, and so on.
+The most horrific act of pressure was the news received in October 2025 of my mother’s sudden death in Russia, which I regard as part of an intimidation campaign.
 
-• I am completely deprived of the possibility of any hygiene procedures – only purchased wet wipes. A shower and laundry happen once a year; instead of washing my hair, I shave it off.
+4. Creativity as an Act of Resistance and Help This entire system of pressure has one goal: to silence me and force me back to Russia. And that is exactly why I do not remain silent and continue to live in unbearable conditions, despite everything.
 
-• I am deprived of normal nutrition – it is replaced by dry rations and icy water, warmed only a few degrees by my own body heat.
+My work as a writer, satirist, and artist, exposing the war and the Putin regime, is systematically blocked on all major Russian-language platforms (9 social networks and 2 literary portals). Total censorship is the best proof of the ideological value, significance, and relevance of my words.
 
-But all these major and minor hardships and deprivations are nothing compared to the unprecedented scale and cruelty of the persecution I face systematically and continuously: 
+This project is my response to those trying to destroy me. In conditions bordering on torture, I create texts in order to:
 
-• Against me, the security services are conducting a total and ubiquitous incitement of hatred and enmity based on slander, lies, and falsifications. This is done with the obvious goal of making my persecution "mass and nationwide."
+• Expose the endless flow of political madness, lawlessness, lies, cynicism, and cruelty.
 
-• Three hundred sleepless nights in Georgia: artificial night-time noise is intentionally created near my tent.
+• Direct the attention of the world community to the needs of those suffering from war and authoritarian regimes.
 
-• My bicycle – my only means of transportation – has been completely vandalised: FSB agents regularly puncture the tires, disable the brakes, gearbox, cut cables, clip plastic ties, etc.
+• Convert this attention into real help by encouraging readers to make direct donations to verified support funds for Ukraine.
 
-• My tent and tarp have been slashed with a knife, the air mattress punctured (since 13 May 2025 I have been sleeping on bare, icy ground), and the tent frame broken.
+Every miniature, play, or article you read is written at the cost of incredible effort: a Spartan life in a tent, amidst unbearable heat, cold, hunger, constant persecution, despair, and hopelessness. This is not just text. It is a testament to courage, unbreakable will, and active resistance. At the same time, it is a tool to help those like me—the suffering, the dispossessed, and the desperate.
 
-• I am subjected to threats, direct physical violence, and harm to my health.
-
-• There have been dozens of attempts to stage road accidents involving me.
-
-• Attempts to poison me are made regularly, in various forms, for example, by spraying unknown chemical agents on the outside of my tarp and tent.
-
-• I constantly face everyday sabotage in shops and pharmacies.
-
-• To hinder my creative work, the FSB carries out unprecedented digital terrorism: my phone is hacked and compromised at the firmware level; interference with my work is also ensured through the internet provider: communication is blocked, apps and programs are disrupted, data is deleted and replaced, and constant surveillance is conducted.
-
-• Technological terror: I am systematically prevented from charging my devices, depriving me of access to the most valuable resource – electricity.
-
-Russian President V. Putin and his regime are in a state of panic fear of my creative work (as a writer, a satirist-absurdist, a queer philosopher). This is eloquently evidenced by the fact that all my works, across all genres and directions (even detective novels), have been blocked by censorship on 9 popular social platforms: VK, OK, Dzen, LiveJournal, Teletype, Tilda, Substack, Medium, as well as on the largest Russian literary portals Proza.ru and Lib.ru. On the Telegram platform, my channel is under a shadow ban.
-
-Finally the persecution reached its peak – cynical, utterly inhuman – on 20 October 2025, when the FSB in Russia killed my mother in an attempt to force me to return to Russia for the funeral.
-
-For safety, I have built an improvised fence of dry trunks, branches, and sticks around my tent. It is an illusory, but my only, defence.
-
-For almost two years, I have been forced to go without medical care, as it is impossible to receive it in third countries while under systematic persecution. In non-democratic countries, the security services control all spheres of life, and upon their order, medicine transforms from a source of aid into the most accessible and effective instrument for destroying health and carrying out murder under the guise of "treatment."
-
-Security services persecute and kill "as part of their duty"; it is ridiculous to hold them morally responsible for it.
-
-But Switzerland, which has signed the convention on human rights, which undertook to provide international protection to those persecuted in authoritarian countries – Switzerland violated its obligations by colluding with the FSB and denying me asylum, forcing me to lead an existence on the verge of torture and inhuman treatment – not a life, but survival in the harshest conditions, which for a person of my age (68) is tantamount to slow but inevitable murder.
-
-**All responsibility for my death will fall on Switzerland and will cover this country in eternal shame.**
+I have no means to improve my living (survival) conditions in any way. But I can create meaning. Let us help these meanings find their way to those who need them.
 
 
