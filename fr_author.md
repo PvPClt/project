@@ -1,65 +1,41 @@
-# À PROPOS DE L'AUTEUR 
+#À PROPOS DE L’AUTEURE ET DES CONDITIONS DE CRÉATION DU PROJET
 
 ![](Images/Author.jpg)
 
-Le 24 avril 2024, j’ai fui la Russie pour échapper aux persécutions physiques des services de sécurité. J’ai été soumise à ce qu’on appelle un « assassinat prolongé » – un empoisonnement systématique par des gaz toxiques. Lorsque j’ai été conduite au seuil au-delà duquel la mort se dessinait clairement, j’ai été contrainte de quitter le pays.
 
-Le 29 septembre 2024, j’ai demandé l’asile en Suisse, en fournissant des motifs suffisants justifiant l’impossibilité de mon retour en Russie.
+1. Fuite et refus d'asile En avril 2024, à l'âge de 66 ans, j'ai été contrainte de fuir la Russie pour échapper aux persécutions. En septembre de la même année, j'ai déposé une demande d'asile en Suisse, fournissant les preuves de l'impossibilité de mon retour en Russie.
 
-Cependant, en raison de l’ingérence opérationnelle du FSB dans la procédure, avec le consentement silencieux et l’aide du Secrétariat d’État aux migrations (SEM) suisse, l’examen de ma demande a été grossièrement violé, ce qui a conduit à un refus d’asile.
+Cependant, l'examen de mon dossier a été entaché de graves vices de procédure : on ne m'a pas fourni de traduction adéquate du procès-verbal de l'audition, mes réponses ont été déformées par l'interprète, mes preuves clés n'ont pas été prises en compte par le SEM (Secrétariat d’État aux migrations). La décision a été fondée sur des circonstances imaginaires et de faux « faits » ; un examen médical prévu a été annulé sans explication. En conséquence, j'ai reçu un refus d'asile infondé et j'ai été expulsée vers la Géorgie, où je me suis retrouvée dans une situation de catastrophe humanitaire.
 
-La Suisse a permis aux services de sécurité russes d’introduire dans le processus leur propre traducteur et avocat recrutés, qui ont saboté la procédure en déformant délibérément le contenu de mes réponses et en omettant de transmettre au SEM mes documents écrits et preuves. La Suisse, à son tour, a violé mes droits en ne me fournissant pas de traduction officielle juridiquement valable du Procès-verbal d’entretien, me forçant à signer un document sciemment faux rédigé en français, une langue que je ne comprends pas.
+2. Conditions de survie Depuis presque deux ans, moi, femme seule de 68 ans, je vis dans une tente dans la rue, sans accès aux conditions de vie humaines de base :
 
-De connivence avec le FSB, la Suisse a annulé sans explication mon examen médical prévu, qui visait à identifier les dommages causés à mes voies respiratoires par l’inhalation constante de gaz toxiques.
+• Le froid : La nuit, la température dans la tente descend en dessous de zéro degré Celsius.
 
-Depuis plus d’un an, après ma déportation de Suisse vers la Géorgie, je vis dans des conditions de catastrophe humanitaire totale :
+• Absence de soins et d'hygiène : Impossibilité de se soigner, de se laver ou de faire la lessive.
 
-• Je vis à l’extérieur en hiver comme en été, je dors sous une tente, souffrant du froid car je n’ai pas les moyens d’acheter des vêtements d’hiver, des chaussures ou un équipement hivernal.
+• Ressources minimales : Alimentation à base de rations sèches et d'eau glacée ; absence d'électricité, de chauffage, de climatisation, de réfrigérateur (pas de conditions pour conserver les médicaments) ; impossibilité d'acheter du gaz, du matériel d'hiver, des vêtements chauds ou des chaussures.
 
-• Je n’ai pas accès aux soins médicaux et je suis presque toujours dans l’impossibilité d’acheter des médicaments en raison de l’absence de conditions de stockage appropriées.
+3. Pression et persécution systématiques Ma situation n'est pas seulement un manque de logement. Je suis confrontée à un harcèlement et à une hostilité constants qui rendent la survie pratiquement impossible : dégradation de mes biens (tente, matelas pneumatique, vélo), nuisances sonores nocturnes systématiques, menaces et intimidations, atteintes à ma santé, piratages et attaques informatiques sur mon smartphone.
 
-• Je suis privée de tout confort, même le plus élémentaire : électricité, chauffage, accès à l’eau, sanitaires, réfrigérateur, climatisation, meubles, etc.
+L'acte de pression le plus atroce a été la nouvelle reçue en octobre 2025 de la mort soudaine de ma mère en Russie, ce que je considère comme faisant partie d'une campagne d'intimidation.
 
-• Je suis complètement privée de toute procédure d’hygiène – j’utilise seulement des lingettes humides achetées. Une douche et une lessive ont lieu une fois par an ; au lieu de me laver les cheveux, je me les rase.
+4. La création comme acte de résistance et d'entraide Tout ce système de pression n'a qu'un but : me faire taire et me forcer à retourner en Russie. Et c'est précisément pour cela que je ne me tais pas et que je continue à vivre dans des conditions insupportables, malgré tout.
 
-• Je suis privée d’une alimentation normale – remplacée par des rations sèches et de l’eau glacée, réchauffée de quelques degrés seulement par la chaleur de mon propre corps.
+Mon travail d'écrivaine, de satiriste et d'artiste, dénonçant la guerre et le régime de Poutine, est systématiquement bloqué sur toutes les principales plateformes russophones (9 réseaux sociaux et 2 portails littéraires). La censure totale est la meilleure preuve de la valeur idéologique, de l'importance et de la pertinence de ma parole.
 
-Mais toutes ces privations et difficultés, grandes et petites, ne sont rien en comparaison des persécutions d’une ampleur et d’une cruauté sans précédent que je subis de manière systématique et continue:
+Ce projet est ma réponse à ceux qui tentent de m'anéantir. Dans des conditions proches de la torture, je crée des textes afin de :
 
-• À mon encontre, les services de sécurité mènent une incitation totale et omniprésente à la haine et à l'inimitié, fondée sur la calomnie, le mensonge et les falsifications. Cela est fait dans le but évident de rendre ma persécution « massive et populaire ».
+• Dénoncer le flux incessant de folie politique, d'arbitraire, de mensonges, de cynisme et de cruauté.
 
-• Trois cents nuits blanches en Géorgie : un bruit nocturne artificiel est intentionnellement créé à proximité de ma tente.
+• Attirer l'attention de la communauté internationale sur les besoins de ceux qui souffrent de la guerre et des régimes autoritaires.
 
-• Mon vélo – mon seul moyen de transport – a été complètement saccagé : des agents du FSB percent régulièrement les pneus, sabotent les freins, la boîte de vitesses, coupent les câbles, sectionnent les attaches plastiques, etc.
+• Convertir cette attention en une aide réelle, en encourageant les lecteurs à faire des dons directs à des fonds de soutien vérifiés pour l'Ukraine.
 
-• Ma tente et ma bâche ont été lacérées au couteau, le matelas pneumatique percé (depuis le 13 mai 2025, je dors sur le sol nu et glacé), et l’armature de la tente a été brisée.
+Chaque miniature, pièce de théâtre ou article que vous lisez est écrit au prix d'efforts incroyables : une vie spartiate sous une tente, dans une chaleur ou un froid insupportables, la faim, la persécution constante, le désespoir et la détresse. 
 
-• Je suis confrontée à des menaces, à des violences physiques directes et à des atteintes à ma santé.
+Ce n'est pas un simple texte. C'est un témoignage de courage, d'une volonté inébranlable et d'une résistance active. Et en même temps, c'est un outil pour aider ceux qui, comme moi, souffrent, sont démunis et désespérés.
 
-• Des dizaines de tentatives d’accident de la route impliquant ma personne ont été organisées.
-
-• Des tentatives d’empoisonnement sont régulièrement commises sous différentes formes, par exemple en pulvérisant des agents chimiques inconnus sur l’extérieur de ma bâche et de ma tente.
-
-• Je fais constamment face à du sabotage quotidien dans les magasins et les pharmacies.
-
-• Pour entraver mon travail créatif, le FSB mène une terreur numérique sans précédent : mon téléphone est piraté et compromis au niveau du micrologiciel ; l’ingérence dans mon travail est aussi assurée via le fournisseur d’accès internet : les communications sont bloquées, les applications et programmes perturbés, les données supprimées et remplacées, et une surveillance constante est exercée.
-
-• Terreur technologique : on m’empêche systématiquement de charger mes appareils, me privant ainsi de l’accès à la ressource la plus précieuse – l’électricité.
-
-Le président russe V. Poutine et son régime sont en proie à une peur panique face à mon travail créatif (en tant qu'écrivaine, satiriste de l'absurde, philosophe queer). Ce fait est éloquemment illustré par le blocage par la censure de toutes mes œuvres, dans tous les genres et directions (même les romans policiers), sur 9 plateformes sociales populaires : VK, OK, Dzen, LiveJournal, Teletype, Tilda, Substack, Medium, ainsi que sur les plus grands portails littéraires russes Proza.ru et Lib.ru. Sur la plateforme Telegram, ma chaîne est sous une interdiction cachée (shadow ban).
-
-Mais ces persécutions ont atteint leur paroxysme – d’un cynisme et d’une inhumanité absolus – le 20 octobre 2025, lorsque le FSB en Russie a tué ma mère dans une tentative de me forcer à revenir en Russie pour l’enterrement.
-
-Pour ma sécurité, j’ai construit une clôture improvisée avec des troncs secs, des branches et des bâtons autour de ma tente. C’est une défense illusoire, mais la seule dont je dispose.
-
-Cela fait presque deux ans que je suis contrainte de me passer de soins médicaux, car il est impossible d'en recevoir dans des pays tiers lorsque l'on est soumis à des persécutions systématiques. Dans les pays non démocratiques, les services de sécurité contrôlent toutes les sphères de la vie, et sur leur ordre, la médecine se transforme d'une source d'aide en l'instrument le plus accessible et le plus efficace pour détruire la santé et commettre un meurtre sous couvert de « traitement ».
-
-Les services de sécurité persécutent et tuent « par devoir » ; il est simplement ridicule de leur en attribuer la responsabilité morale.
-
-Mais la Suisse, qui a signé la convention sur les droits de l’homme, qui s’est engagée à offrir une protection internationale à ceux qui sont persécutés dans des pays autoritaires – la Suisse a violé ses obligations en pactisant avec le FSB et en me refusant l’asile, me contraignant à une existence à la limite de la torture et des traitements inhumains – non pas une vie, mais une survie dans les conditions les plus rudes, ce qui pour une personne de mon âge (68 ans) équivaut à un meurtre lent mais inévitable.
-
-**Toute la responsabilité de ma mort retombera sur la Suisse et couvrira ce pays d’une honte éternelle.**
-
+Je n'ai aucun moyen d'améliorer tant soit peu mes conditions d'existence (de survie). Mais je peux créer du sens. Aidons ces idées à trouver leur chemin vers ceux qui en ont besoin.
 
 
 
