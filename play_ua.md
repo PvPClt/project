@@ -713,21 +713,9 @@ bbidyaga@protonmail.com
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
+[**Перелік благодійних фондів на допомогу Україні**](ua_funds)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+[**На головну сторінку**](index.md)
 
 
 
