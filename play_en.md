@@ -706,5 +706,7 @@ Without your cynical refusal to grant me asylum, condemning me to live in an icy
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
+[List Of Charitable Foundations Assisting Ukraine](en_funds)
 
+[Main Page](index.md)
 
