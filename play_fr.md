@@ -710,3 +710,7 @@ ISBN 978-5-9903439-2-4
 © Щеглова О.В., 2024
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
+[Liste des fondations caritatives en soutien à l’Ukraine](fr_funds)
+
+[Page d'accueil](index.md)
