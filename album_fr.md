@@ -2855,8 +2855,8 @@ ISBN : 978-5-9903439-3-1
 © Olga Viktorovna Shcheglova, 2025
 18+
 
-[Liste des fondations caritatives en soutien à l’Ukraine](fr_funds)
+[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
-[Page d'accueil](index.md)
+[**Page d'accueil**](index.md)
 
 
