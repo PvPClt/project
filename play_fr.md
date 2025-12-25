@@ -17,6 +17,12 @@ bbidyaga@protonmail.com
 
 ![](Images/Cover_Play.jpg)
 
+HOMMAGE AU SECRÉTARIAT D’ÉTAT AUX MIGRATIONS (SEM) DE SUISSE:
+
+Vous êtes ma Muse. Celle qui a éveillé mon élan créateur par le désespoir et l'impasse. Celle qui a enflammé mon inspiration avec un café glacé. Celle qui m'a nourrie d'idées brillantes avec une ration de famine. Celle qui m'a offert le repos par des nuits blanches. 
+
+Sans votre refus cynique de m'accorder l'asile, qui m'a condamné à vivre dans une tente glaciale, cette satire n'aurait peut-être pas atteint une telle acuité.
+
 ### Personnages :
 – La Russie ;
 
