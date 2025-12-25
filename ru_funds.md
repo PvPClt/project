@@ -40,3 +40,5 @@ https://returntolife.org.ua/donate/
 Помощь по многим направлениям: от тактического снаряжения и автомобилей для ВСУ до масштабной гуманитарной помощи гражданским.
 Сайт: https://prytulafoundation.org/
 Донаты: https://prytulafoundation.org/
+
+[На главную страницу](index.md)
