@@ -41,4 +41,4 @@ https://returntolife.org.ua/donate/
 Сайт: https://prytulafoundation.org/
 Донаты: https://prytulafoundation.org/
 
-[На главную страницу](index.md)
+[**На главную страницу**](index.md)
