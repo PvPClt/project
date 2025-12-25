@@ -14,7 +14,7 @@
 
 Bienvenue dans **l'Encyclopédie du « Poutinisme Militaire Orthodoxe »** — un royaume de folie politique, d'arbitraire, de cynisme et de cruauté, diagnostiqués et disséqués avec une précision chirurgicale par la plume de l'écrivaine et le pinceau de l'artiste.
 
-Olga Chtcheglova (Boris Bidiaga) présente : humour noir, caricature, grotesque, satire, hyper-absurde — arrachant les masques de la piété feinte et les voiles des fausses valeurs spirituelles ; mettant à nu les horreurs de la guerre, les vices et les plaies d'une société autoritaire ; dévoilant les mécanismes inhumains de la propagande, la transformation de la religion en idéologie, la criminalisation du pouvoir, la dégradation de la conscience collective ; fustigeant les « bonnes intentions » dont sont pavées les « autoroutes fédérales » menant en Enfer.
+Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, satire, hyper-absurde — arrachant les masques de la piété feinte et les voiles des fausses valeurs spirituelles ; mettant à nu les horreurs de la guerre, les vices et les plaies d'une société autoritaire ; dévoilant les mécanismes inhumains de la propagande, la transformation de la religion en idéologie, la criminalisation du pouvoir, la dégradation de la conscience collective ; fustigeant les « bonnes intentions » dont sont pavées les « autoroutes fédérales » menant en Enfer.
 
 ### Album de miniatures satiriques « Chambre n°666 »
 
@@ -64,7 +64,7 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 Ласкаво просимо до **Енциклопедії «Православного воєнного путінізму»** — у царство політичного божевілля, беззаконня, цинізму та жорстокості, діагностованих і розтинутих з хірургічною точністю пером письменниці та пензлем митця.
 
-Щеглова Ольга (Борис Бідяга) представляє: чорний гумор, шарж, гротеск, сатиру, гіпеабсурд — що зривають маски удаваної побожності, покрови мнимі духовних цінностей; обнажають жахіття війни, вади й виразки авторитарного суспільства; викривають безлюдні механізми пропаганди, перетворення релігії на ідеологію, криміналізацію влади, деградацію суспільної свідомості; бичують «благі наміри», якими вимощені «федеральні траси», що ведуть у Пекло.
+Щеглова Ольга (Борис Бидяга) представляє: чорний гумор, шарж, гротеск, сатиру, гіпеабсурд — що зривають маски удаваної побожності, покрови мнимі духовних цінностей; обнажають жахіття війни, вади й виразки авторитарного суспільства; викривають безлюдні механізми пропаганди, перетворення релігії на ідеологію, криміналізацію влади, деградацію суспільної свідомості; бичують «благі наміри», якими вимощені «федеральні траси», що ведуть у Пекло.
 
 ### Альбом сатиричних мініатюр «Палата №666»
 
