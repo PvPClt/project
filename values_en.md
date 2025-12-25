@@ -1,5 +1,3 @@
-
-
 **Shcheglova Olga (Boris Bidyaga)**
 
 # 🇬🇧 THE ANATOMY OF PUTIN'S "TRADITIONAL VALUES"
@@ -216,3 +214,6 @@ Yet history's arc, though long, bends toward justice. Regimes founded on lies an
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
+[List Of Charitable Foundations Assisting Ukraine](en_funds)
+
+[Main Page](index.md)
