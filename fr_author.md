@@ -3,11 +3,11 @@
 ![](Images/Author.jpg)
 
 
-1. Fuite et refus d'asile En avril 2024, à l'âge de 66 ans, j'ai été contrainte de fuir la Russie pour échapper aux persécutions. En septembre de la même année, j'ai déposé une demande d'asile en Suisse, fournissant les preuves de l'impossibilité de mon retour en Russie.
+I. Fuite et refus d'asile En avril 2024, à l'âge de 66 ans, j'ai été contrainte de fuir la Russie pour échapper aux persécutions. En septembre de la même année, j'ai déposé une demande d'asile en Suisse, fournissant les preuves de l'impossibilité de mon retour en Russie.
 
 Cependant, l'examen de mon dossier a été entaché de graves vices de procédure : on ne m'a pas fourni de traduction adéquate du procès-verbal de l'audition, mes réponses ont été déformées par l'interprète, mes preuves clés n'ont pas été prises en compte par le SEM (Secrétariat d’État aux migrations). La décision a été fondée sur des circonstances imaginaires et de faux « faits » ; un examen médical prévu a été annulé sans explication. En conséquence, j'ai reçu un refus d'asile infondé et j'ai été expulsée vers la Géorgie, où je me suis retrouvée dans une situation de catastrophe humanitaire.
 
-2. Conditions de survie Depuis presque deux ans, moi, femme seule de 68 ans, je vis dans une tente dans la rue, sans accès aux conditions de vie humaines de base :
+II. Conditions de survie Depuis presque deux ans, moi, femme seule de 68 ans, je vis dans une tente dans la rue, sans accès aux conditions de vie humaines de base :
 
 • Le froid : La nuit, la température dans la tente descend en dessous de zéro degré Celsius.
 
@@ -15,11 +15,11 @@ Cependant, l'examen de mon dossier a été entaché de graves vices de procédur
 
 • Ressources minimales : Alimentation à base de rations sèches et d'eau glacée ; absence d'électricité, de chauffage, de climatisation, de réfrigérateur (pas de conditions pour conserver les médicaments) ; impossibilité d'acheter du gaz, du matériel d'hiver, des vêtements chauds ou des chaussures.
 
-3. Pression et persécution systématiques Ma situation n'est pas seulement un manque de logement. Je suis confrontée à un harcèlement et à une hostilité constants qui rendent la survie pratiquement impossible : dégradation de mes biens (tente, matelas pneumatique, vélo), nuisances sonores nocturnes systématiques, menaces et intimidations, atteintes à ma santé, piratages et attaques informatiques sur mon smartphone.
+III. Pression et persécution systématiques Ma situation n'est pas seulement un manque de logement. Je suis confrontée à un harcèlement et à une hostilité constants qui rendent la survie pratiquement impossible : dégradation de mes biens (tente, matelas pneumatique, vélo), nuisances sonores nocturnes systématiques, menaces et intimidations, atteintes à ma santé, piratages et attaques informatiques sur mon smartphone.
 
 L'acte de pression le plus atroce a été la nouvelle reçue en octobre 2025 de la mort soudaine de ma mère en Russie, ce que je considère comme faisant partie d'une campagne d'intimidation.
 
-4. La création comme acte de résistance et d'entraide Tout ce système de pression n'a qu'un but : me faire taire et me forcer à retourner en Russie. Et c'est précisément pour cela que je ne me tais pas et que je continue à vivre dans des conditions insupportables, malgré tout.
+IV. La création comme acte de résistance et d'entraide Tout ce système de pression n'a qu'un but : me faire taire et me forcer à retourner en Russie. Et c'est précisément pour cela que je ne me tais pas et que je continue à vivre dans des conditions insupportables, malgré tout.
 
 Mon travail d'écrivaine, de satiriste et d'artiste, dénonçant la guerre et le régime de Poutine, est systématiquement bloqué sur toutes les principales plateformes russophones (9 réseaux sociaux et 2 portails littéraires). La censure totale est la meilleure preuve de la valeur idéologique, de l'importance et de la pertinence de ma parole.
 
