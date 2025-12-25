@@ -37,4 +37,4 @@ Ce n'est pas un simple texte. C'est un témoignage de courage, d'une volonté in
 
 Je n'ai aucun moyen d'améliorer tant soit peu mes conditions d'existence (de survie). Mais je peux créer du sens. Aidons ces idées à trouver leur chemin vers ceux qui en ont besoin.
 
-[Page d'accueil](index.md)
+[**Page d'accueil**](index.md)
