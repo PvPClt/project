@@ -34,4 +34,4 @@ Every miniature, play, or article you read is written at the cost of incredible 
 
 I have no means to improve my living (survival) conditions in any way. But I can create meaning. Let us help these meanings find their way to those who need them.
 
-[Main Page](index.md)
+[**Main Page**](index.md)
