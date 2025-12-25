@@ -2,6 +2,7 @@
 
 # SOS! UKRAINE NEEDS HELP 
 ![](Images/Cover_Project.jpg)
+
 **CONTENTS/SOMMAIRE/ЗМІСТ/ОГЛАВЛЕНИЕ**
 
 
@@ -25,6 +26,8 @@ Des exemples de satire politique brillante et de révélation du régime poutini
 
 [lire sur le site](values_fr.md) 
 
+[Liste des fondations caritatives en soutien à l’Ukraine](fr_funds)
+
 [À PROPOS DE L’AUTEURE](fr_author)
 
 # 🇬🇧 ENGLISH 
@@ -47,6 +50,8 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 [read on the website](values_en.md) 
 
+[List Of Charitable Foundations Assisting Ukraine](en_funds)
+
 [ABOUT THE AUTHOR](en_author)
 
 # 🇺🇦 УКРАЇНСЬКА
@@ -68,7 +73,9 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 ### Анатомія путінських „традиційних цінностей“, стаття
 
-[читати на сайті](values_ua.md) 
+[читати на сайті](values_ua.md)
+
+[Перелік благодійних фондів на допомогу Україні](ua_funds)
 
 [ПРО АВТОРА](ua_author)
 
@@ -91,5 +98,7 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 ### Анатомия путинских „традиционных ценностей“, статья
 
 [читать на сайте](values_ru.md) 
+
+[Список благотворительных фондов в помощь Украине](ru_funds)
 
 [ОБ АВТОРЕ](ru_author)
