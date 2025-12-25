@@ -40,4 +40,5 @@ Aide dans de multiples domaines : du matériel tactique et des véhicules pour l
 Site : https://prytulafoundation.org/
 Dons : https://prytulafoundation.org/
 
-[Page d'accueil](index.md)
+[**Page d'accueil**](index.md)
+
