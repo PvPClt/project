@@ -173,8 +173,8 @@ Cependant, l'histoire montre que les régimes fondés sur le mensonge et la viol
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
-[Liste des fondations caritatives en soutien à l’Ukraine](fr_funds)
+[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
-[Page d'accueil](index.md)
+[**Page d'accueil**](index.md)
 
 
