@@ -40,4 +40,4 @@ Aid across multiple areas: from tactical equipment and vehicles for the Armed Fo
 Site: https://prytulafoundation.org/
 Donate: https://prytulafoundation.org/
 
-[Main Page](index.md)
+[**Main Page**](index.md)
