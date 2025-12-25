@@ -12,8 +12,8 @@
 
 **Projet Artistique Caritatif en Soutien à l’Ukraine**
 
-Des exemples de satire politique brillante et de révélation du régime poutinien. Lisez et savourez. Et aidez l'Ukraine !
-
+Bienvenue dans **l'Encyclopédie du « Poutinisme Militaire Orthodoxe »** — un royaume de folie politique, d'arbitraire, de cynisme et de cruauté, diagnostiqués et disséqués avec une précision chirurgicale par la plume de l'écrivaine et le pinceau de l'artiste.**
+Olga Chtcheglova (Boris Bidiaga) présente : humour noir, caricature, grotesque, satire, hyper-absurde — arrachant les masques de la piété feinte et les voiles des fausses valeurs spirituelles ; mettant à nu les horreurs de la guerre, les vices et les plaies d'une société autoritaire ; dévoilant les mécanismes inhumains de la propagande, la transformation de la religion en idéologie, la criminalisation du pouvoir, la dégradation de la conscience collective ; fustigeant les « bonnes intentions » dont sont pavées les « autoroutes fédérales » menant en Enfer.
 
 ### Album de miniatures satiriques « Chambre n°666 »
 
@@ -36,8 +36,8 @@ Des exemples de satire politique brillante et de révélation du régime poutini
 
 **Charity Art Project in Support of Ukraine**
 
-Examples of brilliant political satire and exposure of the Putin regime. Read and enjoy. And help Ukraine!
-
+Welcome to the **Encyclopedia of "Orthodox Military Putinism"** — a realm of political madness, lawlessness, cynicism, and cruelty, diagnosed and dissected with surgical precision by the writer's pen and the artist's brush.**
+Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, satire, hyper-absurd — tearing off the masks of feigned piety and the veils of false spiritual values; laying bare the horrors of war, the vices and sores of an authoritarian society; exposing the inhuman mechanisms of propaganda, the transformation of religion into ideology, the criminalization of power, the degradation of public consciousness; lashing out at the "good intentions" with which the "federal highways" to Hell are paved.
 
 ### Album of satirical miniatures "Ward №666"
 
@@ -60,8 +60,8 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 **Літературно-художній проект на допомогу Україні**
 
-Зразки блискучих політичних сатир і розкриття путінського режиму. Читайте й насолоджуйтесь. І допомагайте Україні!
-
+Ласкаво просимо до **Енциклопедії «Православного воєнного путінізму»** — у царство політичного божевілля, беззаконня, цинізму та жорстокості, діагностованих і розтинутих з хірургічною точністю пером письменниці та пензлем митця.**
+Щеглова Ольга (Борис Бідяга) представляє: чорний гумор, шарж, гротеск, сатиру, гіпеабсурд — що зривають маски удаваної побожності, покрови мнимі духовних цінностей; обнажають жахіття війни, вади й виразки авторитарного суспільства; викривають безлюдні механізми пропаганди, перетворення релігії на ідеологію, криміналізацію влади, деградацію суспільної свідомості; бичують «благі наміри», якими вимощені «федеральні траси», що ведуть у Пекло.
 
 ### Альбом сатиричних мініатюр «Палата №666»
 
@@ -85,8 +85,8 @@ Examples of brilliant political satire and exposure of the Putin regime. Read an
 
 **Литературно-художественный проект в помощь Украине.**
 
-Образцы блестящей политической сатиры и разоблачения путинского режима. Читайте и наслаждайтесь. И помогайте Украине!
-
+Добро пожаловать в **Энциклопедию "Православного военного путинизма"** — в царство политического безумия, беспредела, цинизма и жестокости, диагностированных и вскрытых с хирургической точностью пером литератора и кистью художника.
+Щеглова Ольга (Борис Бидяга) представляет:  чёрный юмор, шарж, гротеск, сатира, гиперабсурд — срывающие маски притворного благочестия, покровы мнимых духовных ценностей; обнажающие ужасы войны, пороки и язвы авторитарного общества; разоблачающие бесчеловечные механизмы пропаганды, трансформацию религии в идеологию, криминализацию власти, деградацию общественного сознания;  бичующие "благие намерения", которыми выложены "федеральные трассы", ведущие в Ад.
 
 ### Альбом сатирических миниатюр «Палата №666»
 
