@@ -40,4 +40,4 @@
 Сайт: https://prytulafoundation.org/
 Донати: https://prytulafoundation.org/
 
-[На головну сторінку](index.md)
+[**На головну сторінку**](index.md)
