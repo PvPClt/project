@@ -2885,9 +2885,9 @@ ISBN: 978-5-9903439-3-1
 © Olga Viktorovna Shcheglova, 2025
 18+
 
-[List Of Charitable Foundations Assisting Ukraine](en_funds)
+[**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
-[Main Page](index.md)
+[**Main Page**](index.md)
 
 
 
