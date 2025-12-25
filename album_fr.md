@@ -25,66 +25,6 @@ Ce qui se trouve devant vous n’est pas seulement un recueil de caricatures. C�
 On y trouve des icônes avec des dieux païens, des baptêmes dans les tranchées, de l’eau bénite — injectée par voie intramusculaire. Ici, le patriotisme se pare d’une chaussette sur le sexe et les dauphins de combat du Pentagone nagent au service de la guerre.
 Dans ces miniatures se dessine une société où la guerre a remplacé le bon sens, les « valeurs traditionnelles » ont remplacé la conscience, et l’orthodoxie est devenue le « lubrifiant » des lance-missiles. Les prêtres bénissent la violence, les députés marchandent le patriotisme, et l’école n’enseigne plus à penser, mais à enfanter et obéir.
 
-Si vous partagez les idées de l’auteur, rejoignez le projet : faites un don à une ou plusieurs fondations caritatifs en soutien à l’Ukraine :
-
-**1. UNBROKEN (Незламні)**
-Prothèses, rééducation et soutien psychologique aux militaires et aux civils blessés par la guerre.
-
-Site : https://unbroken.org.ua
-
-Dons : https://unbroken.org.ua/donate
-
-**2. SavED**
-Restauration des écoles et jardins d’enfants dans les territoires libérés.
-
-Site : https://saved.foundation
-
-Dons : https://saved.foundation/?payment=general
-
-**3. UNITED24** (Plateforme officielle du président de l’Ukraine)
-Déminage, aide médicale, reconstruction de logements, écoles, hôpitaux.
-
-Site : https://u24.gov.ua
-
-Dons : https://u24.gov.ua/donate
-
-**4. Razom for Ukraine** 
-Soins médicaux, réhabilitation et prothèses pour les blessés, aide aux déplacés et réfugiés.
-
-Site : https://www.razomforukraine.org/
-
-Dons : https://www.razomforukraine.org/donate-to-ukraine/
-
-**5. Reviens vivant**
-Équipement de haute technologie pour les Forces armées ukrainiennes : drones, véhicules, systèmes de surveillance et moyens de communication. Formation du personnel militaire ukrainien.
-
-Site : https://savelife.in.ua/
-
-Dons : https://savelife.in.ua/en/donate-en/#donate-army-card-once
-
-**6. Fond pour la reconstruction de l'Ukraine** 
-Reconstruction à long terme des infrastructures détruites : logements, hôpitaux, écoles, énergie.
-
-Site : https://ukrainereconstructionfund.org/
-
-Dons : https://ukrainereconstructionfund.org/donate-now/
-
-**7. Retour à la vie**
-Aide humanitaire étendue aux victimes : personnes déplacées internes, enfants, familles des disparus.
-
-Site : https://returntolife.org.ua/
-
-Dons : https://returntolife.org.ua/donate/
-
-**8. Fondation Serhiy Prytula**
-Aide dans de multiples domaines : du matériel tactique et des véhicules pour les Forces armées ukrainiennes à l'aide humanitaire à grande échelle pour les civils.
-
-Site : https://prytulafoundation.org/
-
-Dons : https://prytulafoundation.org/
-
-*Vous trouverez également la liste des fondations caritatifs à la fin de l'album.*
-
 Bonne lecture !
 N'oubliez pas de liker, de reposter et de partager le lien avec vos amis. Votre engagement est le meilleur soutien pour le projet !
 
@@ -2899,65 +2839,6 @@ En réalité, nous ne poursuivrons plus les dissidents — pour la simple et bon
                                 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
-
-### LISTE DES FONDATIONS CARITATIVES EN SOUTIEN À L’UKRAINE : 
-
-**1. UNBROKEN (Незламні)**
-Prothèses, rééducation et soutien psychologique aux militaires et aux civils blessés par la guerre.
-
-Site : https://unbroken.org.ua
-
-Dons : https://unbroken.org.ua/donate
-
-**2. SavED**
-Restauration des écoles et jardins d’enfants dans les territoires libérés.
-
-Site : https://saved.foundation
-
-Dons : https://saved.foundation/?payment=general
-
-**3. UNITED24** (Plateforme officielle du président de l’Ukraine)
-Déminage, aide médicale, reconstruction de logements, écoles, hôpitaux.
-
-Site : https://u24.gov.ua
-
-Dons : https://u24.gov.ua/donate
-
-**4. Razom for Ukraine** 
-Soins médicaux, réhabilitation et prothèses pour les blessés, aide aux déplacés et réfugiés.
-
-Site : https://www.razomforukraine.org/
-
-Dons : https://www.razomforukraine.org/donate-to-ukraine/
-
-**5. Reviens vivant**
-Équipement de haute technologie pour les Forces armées ukrainiennes : drones, véhicules, systèmes de surveillance et moyens de communication. Formation du personnel militaire ukrainien.
-
-Site : https://savelife.in.ua/
-
-Dons : https://savelife.in.ua/en/donate-en/#donate-army-card-once
-
-**6. Fond pour la reconstruction de l'Ukraine** 
-Reconstruction à long terme des infrastructures détruites : logements, hôpitaux, écoles, énergie.
-
-Site : https://ukrainereconstructionfund.org/
-
-Dons : https://ukrainereconstructionfund.org/donate-now/
-
-**7. Retour à la vie**
-Aide humanitaire étendue aux victimes : personnes déplacées internes, enfants, familles des disparus.
-
-Site : https://returntolife.org.ua/
-
-Dons : https://returntolife.org.ua/donate/
-
-**8. Fondation Serhiy Prytula**
-Aide dans de multiples domaines : du matériel tactique et des véhicules pour les Forces armées ukrainiennes à l'aide humanitaire à grande échelle pour les civils.
-
-Site : https://prytulafoundation.org/
-
-Dons : https://prytulafoundation.org/
-
 ### CONCLUSION
 Merci d'avoir été avec nous ! Vos likes, vos partages et la promotion de notre chaîne sont le meilleur soutien qui aide le projet à vivre et à se développer.
 Si l’humour noir de l’auteur vous a plu, nous vous proposons de découvrir une œuvre encore plus percutante — la mini-pièce satirique illustrée « Se relevant de ses genoux »:
@@ -2973,5 +2854,9 @@ Date de création : 15.07.2025
 ISBN : 978-5-9903439-3-1
 © Olga Viktorovna Shcheglova, 2025
 18+
+
+[Liste des fondations caritatives en soutien à l’Ukraine](fr_funds)
+
+[Page d'accueil](index.md)
 
 
