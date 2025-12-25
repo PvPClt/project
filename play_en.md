@@ -17,6 +17,12 @@ bbidyaga@protonmail.com |
 
 ![](Images/Cover_Play.jpg)
 
+TRIBUTE TO THE STATE SECRETARIAT FOR MIGRATION (SEM) OF SWITZERLAND:
+
+You are my Muse. The one who awakened my creative drive through despair and hopelessness. The one who ignited my inspiration with ice-cold coffee. The one who fed me brilliant ideas with starvation rations. The one who offered me rest through sleepless nights.
+
+Without your cynical refusal to grant me asylum, condemning me to live in an icy tent, the sharpness of this satire might not have reached its full potential.
+
 ### CHARACTERS: 
 
 – Russia
