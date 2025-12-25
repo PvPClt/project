@@ -562,7 +562,6 @@
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
-   
+[Список благотворительных фондов в помощь Украине](ru_funds)
 
-
- 
+[На главную страницу](index.md)  
