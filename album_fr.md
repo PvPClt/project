@@ -14,6 +14,12 @@ bbidyaga@protonmail.com |
 
 ![](Images/Fr_Album_Cover.jpg)
 
+HOMMAGE AU SECRÉTARIAT D’ÉTAT AUX MIGRATIONS (SEM) DE SUISSE:
+
+Vous êtes ma Muse. Celle qui a éveillé mon élan créateur par le désespoir et l'impasse. Celle qui a enflammé mon inspiration avec un café glacé. Celle qui m'a nourrie d'idées brillantes avec une ration de famine. Celle qui m'a offert le repos par des nuits blanches. 
+
+Sans votre refus cynique de m'accorder l'asile, qui m'a condamné à vivre dans une tente glaciale, cette satire n'aurait peut-être pas atteint une telle acuité.
+
 ### INTRODUCTION
 Ce qui se trouve devant vous n’est pas seulement un recueil de caricatures. C’est une coupe anatomique de l’ère Poutine : le poutinisme militaire orthodoxe comme forme de folie collective.
 On y trouve des icônes avec des dieux païens, des baptêmes dans les tranchées, de l’eau bénite — injectée par voie intramusculaire. Ici, le patriotisme se pare d’une chaussette sur le sexe et les dauphins de combat du Pentagone nagent au service de la guerre.
