@@ -29,7 +29,7 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
-[À **propos de l'Auteure**](fr_author)
+[**À propos de l'Auteure**](fr_author)
 
 # 🇬🇧 ENGLISH 
 
@@ -72,13 +72,13 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 ### Сатирична мініп’єса «Встаюча з колін»
 
-[**Читати на сайті**(play_ua.md)
+[**Читати на сайті**](play_ua.md)
 
 ### Анатомія путінських „традиційних цінностей“, стаття
 
 [**Читати на сайті**](values_ua.md)
 
-[Перелік благодійних фондів на допомогу Україні](ua_funds)
+[**Перелік благодійних фондів на допомогу Україні**](ua_funds)
 
 [**Про Автора**](ua_author)
 
