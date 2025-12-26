@@ -29,7 +29,7 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
-[À **propos de l'auteure**](fr_author)
+[À **propos de l'Auteure**](fr_author)
 
 # 🇬🇧 ENGLISH 
 
@@ -43,18 +43,18 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 ### Album of satirical miniatures "Ward №666"
 
-[read on the website](album_en.md)
+[**Read on the website**](album_en.md)
 ### Satirical mini-play "Rising Off Her Knees"
 
-[read on the website](play_en.md) 
+[**Read on the website**](play_en.md) 
 
 ### The Anatomy of Putin's "Traditional Values", article
 
-[read on the website](values_en.md) 
+[**Read on the website**](values_en.md) 
 
-[List Of Charitable Foundations Assisting Ukraine](en_funds)
+[**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
-[ABOUT THE AUTHOR](en_author)
+[**About the Author**](en_author)
 
 # 🇺🇦 УКРАЇНСЬКА
 
@@ -68,19 +68,19 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 ### Альбом сатиричних мініатюр «Палата №666»
 
-[читати на сайті](album_ua.md) 
+[**Читати на сайті**](album_ua.md) 
 
 ### Сатирична мініп’єса «Встаюча з колін»
 
-[читати на сайті](play_ua.md)
+[**Читати на сайті**(play_ua.md)
 
 ### Анатомія путінських „традиційних цінностей“, стаття
 
-[читати на сайті](values_ua.md)
+[**Читати на сайті**](values_ua.md)
 
 [Перелік благодійних фондів на допомогу Україні](ua_funds)
 
-[ПРО АВТОРА](ua_author)
+[**Про Автора**](ua_author)
 
 # 🇷🇺 РУССКИЙ 
  
@@ -94,15 +94,15 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 ### Альбом сатирических миниатюр «Палата №666»
 
-[читать на сайте](album_ru.md) 
+[**Читать на сайте**](album_ru.md) 
 
 ### Сатирическая мини-пьеса «Встающая с колен»
 
-[читать на сайте](play_ru.md) 
+[**Читать на сайте**](play_ru.md) 
 ### Анатомия путинских „традиционных ценностей“, статья
 
-[читать на сайте](values_ru.md) 
+[**Читать на сайте**](values_ru.md) 
 
-[Список благотворительных фондов в помощь Украине](ru_funds)
+[**Список благотворительных фондов в помощь Украине**](ru_funds)
 
-[ОБ АВТОРЕ](ru_author)
+[**Об Авторе**](ru_author)
