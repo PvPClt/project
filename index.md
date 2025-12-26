@@ -18,18 +18,18 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 
 ### Album de miniatures satiriques « Chambre n°666 »
 
-[lire sur le site](album_fr.md) 
+[**Lire sur le site**](album_fr.md) 
 
 ### Mini-pièce satirique « Se relevant de ses genoux »
 
-[lire sur le site](play_fr.md) 
+[**Lire sur le site**](play_fr.md) 
 ### Anatomie des « valeurs traditionnelles » poutiniennes, article
 
-[lire sur le site](values_fr.md) 
+[**Lire sur le site**](values_fr.md) 
 
-[Liste des fondations caritatives en soutien à l’Ukraine](fr_funds)
+[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
-[À PROPOS DE L’AUTEURE](fr_author)
+[À **propos de l'auteure**](fr_author)
 
 # 🇬🇧 ENGLISH 
 
