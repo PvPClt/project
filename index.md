@@ -3,33 +3,8 @@
 # SOS! UKRAINE NEEDS HELP 
 ![](Images/Cover_Project.jpg)
 
-**SOMMAIRE/CONTENTS/ЗМІСТ/ОГЛАВЛЕНИЕ**
+**CONTENTS/SOMMAIRE/ЗМІСТ/ОГЛАВЛЕНИЕ**
 
-
-# 🇫🇷 FRANÇAIS
-
-## LE POUTINISME MILITAIRE ORTHODOXE
-
-**Projet Artistique Caritatif en Soutien à l’Ukraine**
-
-Bienvenue dans **l'Encyclopédie du « Poutinisme Militaire Orthodoxe »** — un royaume de folie politique, d'arbitraire, de cynisme et de cruauté, diagnostiqués et disséqués avec une précision chirurgicale par la plume de l'écrivaine et le pinceau de l'artiste.
-
-Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, satire, hyper-absurde — arrachant les masques de la piété feinte et les voiles des fausses valeurs spirituelles ; mettant à nu les horreurs de la guerre, les vices et les plaies d'une société autoritaire ; dévoilant les mécanismes inhumains de la propagande, la transformation de la religion en idéologie, la criminalisation du pouvoir, la dégradation de la conscience collective ; fustigeant les « bonnes intentions » dont sont pavées les « autoroutes fédérales » menant en Enfer.
-
-### Album de miniatures satiriques « Chambre n°666 »
-
-[**Lire sur le site**](album_fr.md) 
-
-### Mini-pièce satirique « Se relevant de ses genoux »
-
-[**Lire sur le site**](play_fr.md) 
-### Anatomie des « valeurs traditionnelles » poutiniennes, article
-
-[**Lire sur le site**](values_fr.md) 
-
-[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
-
-[**À propos de l'Auteure**](fr_author)
 
 # 🇬🇧 ENGLISH 
 
@@ -55,6 +30,31 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**About the Author**](en_author)
+
+# 🇫🇷 FRANÇAIS
+
+## LE POUTINISME MILITAIRE ORTHODOXE
+
+**Projet Artistique Caritatif en Soutien à l’Ukraine**
+
+Bienvenue dans **l'Encyclopédie du « Poutinisme Militaire Orthodoxe »** — un royaume de folie politique, d'arbitraire, de cynisme et de cruauté, diagnostiqués et disséqués avec une précision chirurgicale par la plume de l'écrivaine et le pinceau de l'artiste.
+
+Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, satire, hyper-absurde — arrachant les masques de la piété feinte et les voiles des fausses valeurs spirituelles ; mettant à nu les horreurs de la guerre, les vices et les plaies d'une société autoritaire ; dévoilant les mécanismes inhumains de la propagande, la transformation de la religion en idéologie, la criminalisation du pouvoir, la dégradation de la conscience collective ; fustigeant les « bonnes intentions » dont sont pavées les « autoroutes fédérales » menant en Enfer.
+
+### Album de miniatures satiriques « Chambre n°666 »
+
+[**Lire sur le site**](album_fr.md) 
+
+### Mini-pièce satirique « Se relevant de ses genoux »
+
+[**Lire sur le site**](play_fr.md) 
+### Anatomie des « valeurs traditionnelles » poutiniennes, article
+
+[**Lire sur le site**](values_fr.md) 
+
+[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
+
+[**À propos de l'Auteure**](fr_author)
 
 # 🇺🇦 УКРАЇНСЬКА
 
