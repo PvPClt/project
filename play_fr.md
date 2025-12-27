@@ -16,12 +16,6 @@ bbidyaga@protonmail.com | [Écrire via Signal](https://signal.me/#eu/iAMBIvJmOAj
 
 ![](Images/Cover_Play.jpg)
 
-HOMMAGE AU SECRÉTARIAT D’ÉTAT AUX MIGRATIONS (SEM) DE SUISSE:
-
-Vous êtes ma Muse. Celle qui a éveillé mon élan créateur par le désespoir et l'impasse. Celle qui a enflammé mon inspiration avec un café glacé. Celle qui m'a nourrie d'idées brillantes avec une ration de famine. Celle qui m'a offert le repos par des nuits blanches. 
-
-Sans votre refus cynique de m'accorder l'asile, qui m'a condamné à vivre dans une tente glaciale, cette satire n'aurait peut-être pas atteint une telle acuité.
-
 ### Personnages :
 – La Russie ;
 
@@ -707,6 +701,12 @@ Turquie – Géorgie
 
 ISBN 978-5-9903439-2-4
 © Щеглова О.В., 2024
+
+### HOMMAGE AU SECRÉTARIAT D’ÉTAT AUX MIGRATIONS (SEM) DE SUISSE:
+
+Vous êtes ma Muse. Celle qui a éveillé mon élan créateur par le désespoir et l'impasse. Celle qui a enflammé mon inspiration avec un café glacé. Celle qui m'a nourrie d'idées brillantes avec une ration de famine. Celle qui m'a offert le repos par des nuits blanches. 
+
+Sans votre refus cynique de m'accorder l'asile, qui m'a condamné à vivre dans une tente glaciale, cette satire n'aurait peut-être pas atteint une telle acuité.
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
