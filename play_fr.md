@@ -697,9 +697,11 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 (Il la regarde avec dégoût, la voit se tordre dans l’agonie, puis se détourne et sort.)
 
 24.09.2024
+
 Turquie – Géorgie
 
 ISBN 978-5-9903439-2-4
+
 © Щеглова О.В., 2024
 
 ### HOMMAGE AU SECRÉTARIAT D’ÉTAT AUX MIGRATIONS (SEM) DE SUISSE:
