@@ -3,7 +3,7 @@
 # SOS! UKRAINE NEEDS HELP 
 ![](Images/Cover_Project.jpg)
 
-**CONTENTS/SOMMAIRE/ЗМІСТ/ОГЛАВЛЕНИЕ**
+**SOMMAIRE/CONTENTS/ЗМІСТ/ОГЛАВЛЕНИЕ**
 
 
 # 🇫🇷 FRANÇAIS
