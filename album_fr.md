@@ -14,12 +14,6 @@ bbidyaga@protonmail.com |
 
 ![](Images/Fr_Album_Cover.jpg)
 
-HOMMAGE AU SECRÉTARIAT D’ÉTAT AUX MIGRATIONS (SEM) DE SUISSE:
-
-Vous êtes ma Muse. Celle qui a éveillé mon élan créateur par le désespoir et l'impasse. Celle qui a enflammé mon inspiration avec un café glacé. Celle qui m'a nourrie d'idées brillantes avec une ration de famine. Celle qui m'a offert le repos par des nuits blanches. 
-
-Sans votre refus cynique de m'accorder l'asile, qui m'a condamné à vivre dans une tente glaciale, cette satire n'aurait peut-être pas atteint une telle acuité.
-
 ### INTRODUCTION
 Ce qui se trouve devant vous n’est pas seulement un recueil de caricatures. C’est une coupe anatomique de l’ère Poutine : le poutinisme militaire orthodoxe comme forme de folie collective.
 On y trouve des icônes avec des dieux païens, des baptêmes dans les tranchées, de l’eau bénite — injectée par voie intramusculaire. Ici, le patriotisme se pare d’une chaussette sur le sexe et les dauphins de combat du Pentagone nagent au service de la guerre.
@@ -2846,6 +2840,12 @@ Si l’humour noir de l’auteur vous a plu, nous vous proposons de découvrir u
 ### REMERCIEMENTS
 L’auteur exprime sa plus ironique gratitude à Vladimir Poutine — l’éternel doyen du Chambre n° 666 — pour sa colossale contribution à la satire mondiale, pour l’inépuisable matériau fourni en temps réel et pour son exemple personnel et édifiant de ce qu’il ne faut surtout pas faire pour diriger un pays.
 Un merci tout aussi appuyé à tous ses camarades et voisins de pavillon : vous êtes une source intarissable d’absurde, de grotesque et d’humour noir. Sans votre dévouement absolu à la folie, cet album n’aurait jamais vu le jour — ou serait resté terne et ennuyeux.
+
+### HOMMAGE AU SECRÉTARIAT D’ÉTAT AUX MIGRATIONS (SEM) DE SUISSE:
+
+Vous êtes ma Muse. Celle qui a éveillé mon élan créateur par le désespoir et l'impasse. Celle qui a enflammé mon inspiration avec un café glacé. Celle qui m'a nourrie d'idées brillantes avec une ration de famine. Celle qui m'a offert le repos par des nuits blanches. 
+
+Sans votre refus cynique de m'accorder l'asile, qui m'a condamné à vivre dans une tente glaciale, cette satire n'aurait peut-être pas atteint une telle acuité.
 
 ### DONNÉES DE PUBLICATION
 Auteur : Olga Shcheglova (Boris Bidyaga)
