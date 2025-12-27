@@ -17,12 +17,6 @@ bbidyaga@protonmail.com |
 
 ![](Images/Cover_Play.jpg)
 
-TRIBUTE TO THE STATE SECRETARIAT FOR MIGRATION (SEM) OF SWITZERLAND:
-
-You are my Muse. The one who awakened my creative drive through despair and hopelessness. The one who ignited my inspiration with ice-cold coffee. The one who fed me brilliant ideas with starvation rations. The one who offered me rest through sleepless nights.
-
-Without your cynical refusal to grant me asylum, condemning me to live in an icy tent, the sharpness of this satire might not have reached its full potential.
-
 ### CHARACTERS: 
 
 – Russia
@@ -703,6 +697,12 @@ Without your cynical refusal to grant me asylum, condemning me to live in an icy
 **ISBN:  978-5-9903439-2-4**
 
 **© Shcheglova O.V., 2024**  
+
+### TRIBUTE TO THE STATE SECRETARIAT FOR MIGRATION (SEM) OF SWITZERLAND:
+
+You are my Muse. The one who awakened my creative drive through despair and hopelessness. The one who ignited my inspiration with ice-cold coffee. The one who fed me brilliant ideas with starvation rations. The one who offered me rest through sleepless nights.
+
+Without your cynical refusal to grant me asylum, condemning me to live in an icy tent, the sharpness of this satire might not have reached its full potential.
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
