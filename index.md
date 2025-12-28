@@ -1,6 +1,6 @@
 ![](Images/page_404.jpg)
 
-🇬🇧 # EN/ 🇫🇷 # FR/ 🇺🇦 #UA/ 🇷🇺 # RU
+## 🇬🇧 EN | 🇫🇷 FR | 🇺🇦 UA | 🇷🇺 RU
 ![](Images/Cover_Project.jpg)
 
 **CONTENTS/SOMMAIRE/ЗМІСТ/ОГЛАВЛЕНИЕ**
