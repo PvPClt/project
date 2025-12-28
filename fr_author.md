@@ -1,7 +1,8 @@
 # À PROPOS DE L’AUTEURE ET DES CONDITIONS DE CRÉATION DU PROJET
 
 ![](Images/Author.jpg)
-
+*C'est dans cette tente, protégée par une clôture improvisée faite de bâtons, qu'a été créée  l'
+Encyclopédie du poutinisme militaire orthodoxe.*
 
 I. Fuite et refus d'asile En avril 2024, à l'âge de 66 ans, j'ai été contrainte de fuir la Russie pour échapper aux persécutions. En septembre de la même année, j'ai déposé une demande d'asile en Suisse, fournissant les preuves de l'impossibilité de mon retour en Russie.
 
