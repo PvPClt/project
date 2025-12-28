@@ -4,36 +4,61 @@
 *It was in this tent, protected by a makeshift fence made of sticks, that the 
 Encyclopedia of Orthodox Military Putinism was created.*
 
-I. Flight and Denial of Asylum In April 2024, at the age of 66, I was forced to flee Russia to escape persecution. In September of the same year, I applied for asylum in Switzerland, providing evidence that my return to Russia was impossible.
+## Flight and Denial of Asylum 
 
-However, the consideration of my case was accompanied by gross procedural violations: I was not provided with an adequate translation of the Interview Protocol, my answers were distorted by the translator, and my key evidence was ignored by the SEM (State Secretariat for Migration). The Decision was based on fabricated circumstances and false "facts"; a scheduled medical examination was cancelled without explanation. As a result, I received an unsubstantiated denial of asylum and was deported to Georgia, where I found myself in the midst of a humanitarian catastrophe.
+On April 24, 2024, at the age of 66, I was forced to flee Russia to escape persecution by Russian secret services, whose goal was my physical elimination. However, the persecution continued abroad — in Turkey and Georgia, countries with a massive presence of Russian intelligence agents. 
 
-II. Survival Conditions For almost two years, I, a 68-year-old woman alone, have been living in a tent on the street, without access to basic human living conditions:
+On September 29, 2024, I applied for asylum in Switzerland, providing evidence of the impossibility of my return to Russia.
+However, the processing of my case by the State Secretariat for Migration (SEM) of Switzerland was accompanied by gross procedural violations: I was denied an adequate translation of the Interview Protocol, my answers were distorted by the interpreter, my key evidence was ignored by the SEM, and the Decision was based on fabricated circumstances and false "facts." A scheduled medical examination was canceled without explanation. As a result, my asylum claim was groundlessly rejected, and I was deported to Georgia, where I found myself again under persecution, this time amidst a humanitarian catastrophe.
 
-• Cold: At night, the temperature in the tent drops below zero degrees Celsius.
+## Survival Conditions 
 
-• Lack of Medicine and Hygiene: No possibility of receiving medical treatment, washing, or doing laundry.
+For almost two years, I, a 68-year-old single woman, have been living in a tent on the street, without access to basic human living conditions:
 
-• Minimal Resources: Food consists of dry rations and ice-cold water; there is no electricity, heating, air conditioning, or refrigerator (no conditions for storing medicine); I am unable to purchase gas, winter gear, or warm clothes and shoes.
+•	Cold and Heat: In winter, the temperature in the tent drops below zero degrees Celsius. In summer, it rises to 50°C.
 
-III. Systematic Pressure and Persecution My situation is not just a lack of housing. I face constant harassment and hostility that make survival practically impossible: damage to property (tent, air mattress, bicycle), systematic night-time noise, threats and intimidation, physical harm to my health, and hacking attacks on my smartphone.
+•	Lack of Medicine and Hygiene: Impossibility of receiving medical care or any form of treatment (no conditions for storing medication). Impossibility of washing or laundering clothes.
 
-The most horrific act of pressure was the news received in October 2025 of my mother’s sudden death in Russia, which I regard as part of an intimidation campaign.
+•	Minimal Resources: Nutrition consists of dry rations and cold water. Lack of electricity, heating, air conditioning, and refrigeration. Lack of gas, winter gear, warm clothing, and footwear.
 
-IV. Creativity as an Act of Resistance and Help This entire system of pressure has one goal: to silence me and force me back to Russia. And that is exactly why I do not remain silent and continue to live in unbearable conditions, despite everything.
+## Systematic Cross-border Persecution 
 
-My work as a writer, satirist, and artist, exposing the war and the Putin regime, is systematically blocked on all major Russian-language platforms (9 social networks and 2 literary portals). Total censorship is the best proof of the ideological value, significance, and relevance of my words.
+My situation is not merely a matter of lacking housing, medical care, and adequate living conditions. I am being subjected to constant and systematic cross-border persecution by the Russian secret services:
 
-This project is my response to those trying to destroy me. In conditions bordering on torture, I create texts in order to:
+• Incitement of widespread hatred and hostility among the local population, fueled by slander, insinuations, and fabricated "evidence."
 
-• Expose the endless flow of political madness, lawlessness, lies, cynicism, and cruelty.
+• Assassination attempts disguised as accidents, including deliberate tampering with my bicycle's braking system.
 
-• Direct the attention of the world community to the needs of those suffering from war and authoritarian regimes.
+• Infliction of bodily harm, including targeted and systematic attacks on my eyes.
 
-• Convert this attention into real help by encouraging readers to make direct donations to verified support funds for Ukraine.
+• Intimidation, death threats, and physical violence.
 
-Every miniature, play, or article you read is written at the cost of incredible effort: a Spartan life in a tent, amidst unbearable heat, cold, hunger, constant persecution, despair, and hopelessness. This is not just text. It is a testament to courage, unbreakable will, and active resistance. At the same time, it is a tool to help those like me—the suffering, the dispossessed, and the desperate.
+• A targeted campaign of sleep deprivation, utilizing electronic devices placed around my campsite programmed to emit deafeningly loud noises at intervals.
 
-I have no means to improve my living (survival) conditions in any way. But I can create meaning. Let us help these meanings find their way to those who need them.
+• Deliberate property damage, specifically targeting my tent, air mattress, and bicycle.
+
+• Institutional sabotage within the service sector, involving the intentional sale of substandard or hazardous goods.
+
+• Unprecedented digital terror: the hacking of my smartphone and relentless cyberattacks designed to obstruct my creative work (including the sabotage of AI tools, the destruction or alteration of data, and the creation of persistent technical barriers).
+
+• A heinous act of psychological pressure: the murder of my mother in Russia on October 20, 2025.
+
+## Creativity as Resistance: An Act of Survival and Aid 
+
+The goal of this persecution is simple: to kill me or break me. They want me silent, back in Russia, or dead. That is why I stay vocal. I continue to live and create in spite of everything — the technical hurdles, local hostility, living conditions bordering on torture, psychological warfare, and lack of any medical support.
+
+As a writer, satirist, and artist, my work exposing the war and the Putin regime is blacklisted across all major Russian-language and several international platforms. This total censorship is the ultimate validation of my work; it proves that my words carry ideological weight.
+
+This project is my response to those trying to destroy me. In conditions bordering on inhuman treatment, I create texts to:
+
+•	Expose the relentless tide of political madness, lawlessness, lies, cynicism, and cruelty.
+
+•	Command global attention toward those suffering under authoritarianism and war.
+
+• Mobilize that attention into tangible aid by directing readers to verified support funds for Ukraine.
+
+Every word you read was written under the strain of hunger, cold, constant persecution, and despair.
+
+This is more than literature. It is a testament to an unbroken will,  courage, and active resistance. And simultaneously — a tool to help those like me: the victims, the displaced, and the desperate.
 
 [**Main Page**](index.md)
