@@ -1,6 +1,8 @@
 # ABOUT THE AUTHOR AND THE CONDITIONS OF THE PROJECT’S CREATION
 
 ![](Images/Author.jpg)
+*It was in this tent, protected by a makeshift fence made of sticks, that the 
+«Encyclopedia of Orthodox Military Putinism» was created.*
 
 I. Flight and Denial of Asylum In April 2024, at the age of 66, I was forced to flee Russia to escape persecution. In September of the same year, I applied for asylum in Switzerland, providing evidence that my return to Russia was impossible.
 
