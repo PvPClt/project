@@ -29,27 +29,27 @@ The "Golden Dozen" (a selection of twelve key miniatures) is  presented below fo
 
 [1. The Supernovus Covenant](Golden_En.md#1-the-supernovus-covenant)
 
-2. Wanna be a Saint? Hang on the Cross!
+[2. Wanna be a Saint? Hang on the Cross!](Golden_En.md#2-Wanna-be-a-Saint-Hang-on-the-Cross)
 
-3. One Head for Crown, the Other Rules the Country
+[3. One Head for Crown, the Other Rules the Country](Golden_En.md#3-One-Head-for-Crown-the-Other-Rules-the-Country)
 
-4. Nobel Capers
+[4. Nobel Capers](Golden_En.md#4-Nobel-Capers)
 
-5. Shitty Immortality
+[5. Shitty Immortality](Golden_En.md#5-Shitty-Immortality)
 
-6. Cultural Infiltration Operation
+[6. Cultural Infiltration Operation](Golden_En.md#6-Cultural-Infiltration-Operation)
 
-7. Putin’s Handbook: "1984" Revisited
+[7. Putin’s Handbook: "1984" Revisited](Golden_En.md#7-Putins-Handbook-1984-Revisited)
 
-8. Putin in the Hall of Two Truths: Judgment of Osiris
+[8. Putin in the Hall of Two Truths: Judgment of Osiris](Golden_En.md#8-Putin-in-the-Hall-of-Two-Truths-Judgment-of-Osiris)
 
-9. Geopolitical Sandbox
+[9. Geopolitical Sandbox](Golden_En.md#9-Geopolitical-Sandbox)
 
-10. Propaganda Supplements
+[10. Propaganda Supplements](Golden_En.md#10-Propaganda-Supplements)
 
-11. "Conversations about Important Things"
+[11. "Conversations about Important Things"](Golden_En.md#11-Conversations-about-Important-Things)
 
-12. S-300: the Universal Bomb-Seal
+[12. S-300: the Universal Bomb-Seal](Golden_En.md#12-S-300-the-Universal-Bomb-Seal)
 
 
 ## 1. THE SUPERNOVUS COVENANT
