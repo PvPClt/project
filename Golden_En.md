@@ -1,4 +1,4 @@
-[**Lire en Françai**](Golden_Fr.md)
+[**Full Version of the Project**](Index.md)
 
 
 **Shcheglova Olga (Boris Bidyaga)**
@@ -20,8 +20,6 @@ The dossier highlights several critical dimensions of the current crisis:
 • Global Export of Instability: Detailed metaphorical analyses of how the "Russian model" is being offered as a "software update" for other potential autocracies.
 
 As a witness who has personally survived the methods described in this dossier, I provide these materials as a supplementary evidence base for understanding the "banality of evil" in the 21st century.
-
-I urge you to consider these materials not only as cultural artifacts but as a sociopsychological autopsy of a regime that poses a terminal threat to European security and universal human values.
 
 The "Golden Dozen" (a selection of twelve key miniatures) is  presented below for your immediate review.
 
