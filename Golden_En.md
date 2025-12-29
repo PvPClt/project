@@ -1,4 +1,4 @@
-[**Main Page**](index.md)
+[**Lire en Françai**](Golden_Fr.md)
 
 
 **Shcheglova Olga (Boris Bidyaga)**
@@ -27,31 +27,29 @@ The "Golden Dozen" (a selection of twelve key miniatures) is  presented below fo
 
 ### CONTENTS
 
-<h2 id="en1">1. The Supernovus Covenant</h2>
+1. The Supernovus Covenant
 
-<h2 id="en2">2. Wanna be a Saint? Hang on the Cross!</h2>
+2. Wanna be a Saint? Hang on the Cross!
 
-<h2 id="en3">3. One Head for Crown,  the Other  Rules the Country</h2>
+3. One Head for Crown, the Other Rules the Country
 
-<h2 id="en4">4. Nobel Capers</h2>
+4. Nobel Capers
 
-<h2 id="en5">5. Shitty Immortality</h2>
+5. Shitty Immortality
 
-<h2 id="en6">6.Cultural Infiltration Operation</h2>
+6. Cultural Infiltration Operation
 
-<h2 id="en7">7. Putin’s Handbook: "1984" Revisited
-</h2>
+7. Putin’s Handbook: "1984" Revisited
 
-<h2 id="en8">8. Putin in the Hall of Two Truths: Judgment of Osiris</h2>
+8. Putin in the Hall of Two Truths: Judgment of Osiris
 
-<h2 id="en9">9. Geopolitical Sandbox</h2>
+9. Geopolitical Sandbox
 
-<h2 id="en10">10. Propaganda Supplements</h2>
+10. Propaganda Supplements
 
-<h2 id="en11">11. "Conversations about  Important Things"</h2>
+11. "Conversations about Important Things"
 
-<h2 id="en12">12. S-300: the Universal Bomb-Seal</h2>
-
+12. S-300: the Universal Bomb-Seal
 
 
 ## 1. THE SUPERNOVUS COVENANT
