@@ -27,7 +27,7 @@ The "Golden Dozen" (a selection of twelve key miniatures) is  presented below fo
 
 ### CONTENTS
 
-[1. The Supernovus Covenant](#-1-THE-SUPERNOVUS-COVENANT)
+[1. The Supernovus Covenant](Golden_En.md#1-the-supernovus-covenant)
 
 2. Wanna be a Saint? Hang on the Cross!
 
