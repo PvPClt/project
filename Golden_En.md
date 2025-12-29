@@ -3,25 +3,25 @@
 
 **Shcheglova Olga (Boris Bidyaga)**
 
-# Encyclopedia of Orthodox Military Putinism. The "Golden Dozen"
+# Encyclopedia of Orthodox Military Putinism: The “Golden Dozen” Dossier
 
-## Introduction 
+#### **Diagnostic Foreword: Satire as a Method of Political Autopsy**
 
-While traditional political science often struggles to explain the irrational trajectory of the current Russian regime, this project utilizes the method of "Clinical Satire" to document the systematic mutation of the Russian state. This is not merely a collection of literary works; it is a diagnostic map of a regime that has transitioned from authoritarianism to a state of ideological necrophilia.
+Conventional political analysis often fails when confronted with the **performative absurdity** and **metaphysical cynicism** of the contemporary Russian regime. Where rational discourse reaches its limit, **clinical satire** becomes the essential diagnostic tool.
 
-The dossier highlights several critical dimensions of the current crisis:
+This project is not a literary exercise. It is a **systematic cartography of a political necrosis**—a regime that has evolved from post-Soviet authoritarianism into a unique hybrid: **Orthodox Military Putinism**. This ideology synthesizes imperial nostalgia, perverted religious symbolism, and hyper-modern surveillance into a doctrine of perpetual war — against its own citizens, against historical truth, and against the very concept of objective reality.
 
-• Dehumanization as State Policy: How the leadership views its youth and citizens not as people, but as "biological resources" for the preservation of power.
+The “Golden Dozen” dossier presented herein dissects four core pathologies of this system:
 
-• The Weaponization of Absurdity: How the regime uses "psychological gaslighting" and the distortion of reality to paralyze public conscience.
+1.  **The Biopolitics of Expendability:** The conceptual reduction of the population—especially its youth — from citizens to **consumable “bio-resources”**, valued only for their utility in sustaining power and fueling conflict.
+2.  **The Engineering of Unreality:** The regime’s core operational technology is not merely propaganda, but **institutionalized gaslighting**—the systematic weaponization of absurdity to collapse critical thought and moral judgment.
+3.  **The Sacrilege of Faith:** The strategic co-option and mutation of the Russian Orthodox Church into a **theological arm of the security state**, providing sacred sanction to war and repression.
+4.  **The Algorithm of Chaos:** A detailed schematic of how the Kremlin exports not just influence, but a **ready-to-install “software for autocracy”** — a package of hybrid tactics, ideological viruses, and corrupt governance models designed to destabilize and replicate.
 
-• The Mutation of Faith: The conversion of religious institutions into service centers for the security apparatus.
+I am not merely an observer. As a writer who has been directly targeted by the security apparatus this project documents, I compile these texts as **evidentiary artifacts**. They are sworn affidavits from the realm of the absurd, mapping the **applied banality of evil** in our digital age.
 
-• Global Export of Instability: Detailed metaphorical analyses of how the "Russian model" is being offered as a "software update" for other potential autocracies.
+Below you will find **The Golden Dozen**—twelve key diagnostic miniatures. They serve as both an introduction and a conclusive proof of concept.
 
-As a witness who has personally survived the methods described in this dossier, I provide these materials as a supplementary evidence base for understanding the "banality of evil" in the 21st century.
-
-The "Golden Dozen" (a selection of twelve key miniatures) is  presented below for your immediate review.
 
 ### CONTENTS
 
