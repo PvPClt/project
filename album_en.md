@@ -921,7 +921,7 @@ Kindergarten, Russian town. Air raid siren wails. Children lie face down on floo
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 20. "CONVERSATIONS ABOUT THE IMPORTANT"
+## 20. "CONVERSATIONS ABOUT IMPORTANT THINGS"
 
 ![](Images/En_Album_20.jpg)
 
@@ -1034,7 +1034,7 @@ Russia, Moscow. Dialogue inside apartment: landlady, neighbor, policeman.
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 25. S-300 FILLING — INDUSTRIAL STRENGTH 
+## 25. S-300: THE UNIVERSAL BOMB-SEAL
 
 ![](Images/En_Album_25.jpg)
 
@@ -1348,7 +1348,7 @@ Russian-Ukrainian front, Russian positions. Priest urges soldiers to baptize the
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 39. WANT TO BE SAINT? HANG ON CROSS
+## 39. WANNA BE A SAINT? HANG ON THE CROSS!
 
 ![](Images/En_Album_39.jpg)
 
@@ -2805,7 +2805,7 @@ Victory will be ours!
 #OrthodoxMilitaryPutinism
                               👻
 
-## 64. PUTIN’S HANDBOOK
+## 64. PUTIN’S HANDBOOK: "1984" REVISITED
 
 ![](Images/All_Album_64.jpg)
 
@@ -2881,7 +2881,6 @@ Without your cynical refusal to grant me asylum, condemning me to live in an icy
 
 ### PUBLICATION DATA
 Author: Olga Shcheglova (Boris Bidyaga)
-Written: July 15, 2025
 ISBN: 978-5-9903439-3-1
 © Olga Viktorovna Shcheglova, 2025
 18+
