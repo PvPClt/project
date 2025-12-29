@@ -31,7 +31,7 @@ The "Golden Dozen" (a selection of twelve key miniatures) is  presented below fo
 
 [2. Wanna be a Saint? Hang on the Cross!](Golden_En.md#2-Wanna-be-a-Saint-Hang-on-the-Cross)
 
-[3. One Head for Crown, the Other Rules the Country](Golden_En.md#3-One-Head-for-Crown-the-Other-Rules-the-Country)
+[3. One Head for Crown, the Other Rules the Country](Golden_En.md#3-One-Head-for-Crown--the-Other--Rules-the-Country)
 
 [4. Nobel Capers](Golden_En.md#4-Nobel-Capers)
 
