@@ -33,7 +33,7 @@ The "Golden Dozen" (a selection of twelve key miniatures) is  presented below fo
 
 [3. One Head for Crown, the Other Rules the Country](Golden_En.md#3-One-Head-for-Crown--the-Other--Rules-the-Country)
 
-[4. Nobel Capers](Golden_En.md#4-Nobel-Capers)
+[4. Nobel Capers](Golden_En.html#4-Nobel-Capers)
 
 [5. Shitty Immortality](Golden_En.md#5-Shitty-Immortality)
 
