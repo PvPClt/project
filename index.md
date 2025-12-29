@@ -5,7 +5,7 @@
 
 **CONTENTS/SOMMAIRE/ЗМІСТ/ОГЛАВЛЕНИЕ**
 
-🇬🇧 [GOLDEN DOZEN](Golden_En.md) | 🇫🇷 LA DOUZAINE D'OR — LES 12 MEILLEURES MINIATURES 
+🇬🇧 [GOLDEN DOZEN](Golden_En.md) | 🇫🇷 LA DOUZAINE D'OR 
 
 
 # 🇬🇧 ENGLISH 
