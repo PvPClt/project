@@ -31,7 +31,7 @@ The "Golden Dozen" (a selection of twelve key miniatures) is  presented below fo
 
 [2. Wanna be a Saint? Hang on the Cross!](Golden_En.md#2-wanna-be-a-saint-hang-on-the-cross)
 
-[3. One Head for Crown, the Other Rules the Country](Golden_En.md#3-one-head-for-crown--the-other--rules-the-country)
+[3. One Head for Crown, the Other Rules the Country](Golden_En.md#3-one-head-for-crown-the-other-rules-the-country)
 
 [4. Nobel Capers](Golden_En.md#4-nobel-capers)
 
@@ -96,7 +96,7 @@ Russian-Ukrainian front, Russian rear camp. Priest offers soldiers “presidenti
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 3. ONE HEAD FOR CROWN,  THE OTHER  RULES THE COUNTRY
+## 3. ONE HEAD FOR CROWN, THE OTHER RULES THE COUNTRY
 
 ![](Images/En_Album_59.jpg)
 
