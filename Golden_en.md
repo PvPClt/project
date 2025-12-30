@@ -47,7 +47,7 @@ Below you will find **The Golden Dozen**—twelve key diagnostic miniatures. The
 
 [11. "Conversations about Important Things"](Golden_En.md#11-conversations-about-important-things)
 
-[12. S-300: the Universal Bomb-Seal](Golden_En.md#12-s-300-the-universal-bomb-seal)
+[12. Blessed are the Peacemakers...](Golden_En.md#12-blessed-are-the-peacemakers)
 
 
 ## 1. THE SUPERNOVUS COVENANT
@@ -1171,23 +1171,66 @@ School, Russian town. Lesson: "Conversations About the Important".
                                 👻
                                 
 
-## 12. S-300: THE UNIVERSAL BOMB-SEAL
+## 12. BLESSED ARE THE PEACEMAKERS...
 
-![](Images/En_Album_25.jpg)
+![](Images/All_Album_65.jpg)
 
-Dental clinic, Russian town.
-Sign on office door: “No filling material available!” In hall, dentist talks to patient.
+American bar. Russian President Vladimir Putin and U.S. President Donald Trump at table, drinking beer.
 
-**Dentist:**
+**Trump**:
 
-— Did you bring the filling material? We’re out of stock. Sanctions, you know. Right now, all we’ve got is S-300 construction cement. One-month guarantee — unless you die sooner.
+— This whole Ukraine mess is a total pain in my ass. Honestly, I almost wish I’d never gotten involved in your little spat. My time’s running out, and if I don’t snag a Nobel Peace Prize by then? They’ll call me the biggest loser, the most hated president ever. Total disaster.
 
-**Patient:**
+(Pause)
 
-— You know what? I think I’ll just leave. The tooth doesn’t hurt anymore. Somehow, it just… disappeared.
+**Trump (leaning in):**
+
+— C’mon, Vova, help me out here. I put everything you wanted in the deal. Every single point. Let’s just sign this thing! It’s a fantastic deal for you. For me? It’s the win I need. The glory.
+
+**Putin (cool, detached):**
+
+— Donnie, I have my own position to think about. I need the Donbas, don't you get it? It’s in our Constitution now. Russian land. And I’ve spent a million lives on that damn place. I have to deliver it. It’s that simple. No Donbas, no victory. Then all this blood was for nothing.
+
+**Trump (lowering his voice):**
+
+— Look, nobody’s saying you can’t restart this in a few years. Just… wait till I’m out, okay? Stage something. A Ukrainian attack on your residence. Out in Tver, in the nature reserve. But make it look good. If you’re gonna cry wolf, show a real wolf. The Reichstag’s gotta burn, you know? Launch drones from their side. Burn the whole place to ashes — your favorite palace, a hundred acres of forest. Show the cameras some dead endangered animals. Give people a story they can believe. A real casus belli.
+
+**Putin (doubtful):**
+
+— But you’re giving Ukraine security guarantees. What if some journalist digs it up? NATO could invoke Article 5.
+
+(Pause)
+
+**Putin (firmly):**
+
+— I need guarantees of impunity, Donnie. Real ones.
+
+**Trump (nodding):**
+
+— You’ve got ‘em. You already have. The best guarantees aren’t on paper, Vova. They’re between us. A gentleman’s agreement.
+
+Think about it. After the USSR fell, Ukraine was given “ironclad guarantees,” right? And what happened? Did anyone lift a finger when you moved in? No. So why would new “guarantees” be any different? Me? I’m not getting into a fight with you over Ukraine. Especially if your “Reichstag” goes up in flames. Look at Obama, look at Biden — they were scared stiff of a real fight with Russia. America doesn’t go to war unless our interests are at stake.
+
+**Putin (skeptical):**
+
+— And Europe?
+
+**Trump (scoffing):**
+
+— Europe? Please. They’re not jumping into the fire. Not after you showed them your playbook: just throw more bodies at the problem. Europeans? They care way too much about casualties. As to weapons, they’ll send them  just long enough to build up their own defenses. You think they’re doing this out of charity? No way. They want Ukraine to take the hit. To guard Europe’s border with its own blood.
+
+So, you’ve got nothing to worry about. Let’s freeze the line where it is now. You need to regroup, rearm. Man, your own economy is almost dead. And in a couple years, you come back stronger.
+
+**Putin**:
+
+— And what do I tell my people?
+
+**Trump:**
+
+— What’s to tell? Mission accomplished. Denazification, demilitarization — done. The Donbas is “virtually liberated.” Don’t sweat the details. “Virtually” sounds great. Russian speakers are safe. What defeat? It’s a clear victory. Phase One. Then, after I get my Nobel and I’m gone, you go get the rest. Total victory. So, what do you say? Deal?
 
 #OrthodoxMilitaryPutinism
-                                👻
+                            👻
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
