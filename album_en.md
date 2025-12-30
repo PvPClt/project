@@ -925,7 +925,7 @@ Kindergarten, Russian town. Air raid siren wails. Children lie face down on floo
 
 ![](Images/En_Album_20.jpg)
 
-School, Russian town. Lesson: "Conversations About the Important".
+School, Russian town. Lesson: "Conversations About Important Things".
 
 **Teacher:**
 
