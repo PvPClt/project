@@ -2830,6 +2830,69 @@ En réalité, nous ne poursuivrons plus les dissidents — pour la simple et bon
 
 #PoutinismeMilitaireOrthodoxe
                                 👻                               
+
+## 65. HEUREUX LES ARTISANS DE  PAIX...
+
+![](Images/All_Album_65.jpg)
+
+Un bar américain. Le président russe Vladimir Poutine et le président américain Donald Trump attablés, bières à la main.
+
+**Trump** :
+
+— Cette histoire d'Ukraine, elle me reste sur l'estomac, je te jure. Une vraie boulette. Je commence presque à regretter de m'être fourré dans votre petite guéguerre. Mon mandat se termine, et si je n'accroche pas le Nobel de la Paix d'ici là, je deviendrai le président le plus « nul » et le plus « haï » de l'histoire des États-Unis. Le fiasco total.
+
+(Un temps)
+
+**Trump (sur le ton de la confidence)** :
+
+— Allez, Vova, fais-moi ce plaisir. J'ai mis tous tes points dans l'accord, tous sans exception. Pote, signons ce traité de paix ! C'est un deal en or pour toi. Et pour moi ? C'est la gloire, enfin. Celle que je mérite.
+
+**Poutine (froid, détaché)** :
+
+— Donnie, moi aussi j'ai une image à sauver. Il me faut le Donbass. Je l'ai déjà ficelé dans la Constitution, territoire russe légitime. Et puis, j'ai lâché un million de vies pour ce foutu Donbass. Il faut que je le serve sur un plateau à mon électorat. Le Donbass, c'est la victoire. Pas de Donbass — pas de victoire. Et tous ces morts, ce sera pour des prunes.
+
+**Trump (baissant la voix, complice)** :
+
+— Écoute, Vova, rien ne t'empêche de relancer la machine dans deux ou trois ans... mais seulement quand je serai parti ! Tu montes un coup : une attaque ukrainienne sur ta residence. Dans la région de Tver, au fin fond d'une réserve. Mais fais-le proprement. Si tu accuses, il faut des preuves solides. Le Reichstag doit vraiment flamber. Fais décoller des drones depuis leur territoire. Craque ton palais préféré, et pour faire bonne mesure, crampe cent hectares de forêt ancienne avec. Montre aux journalistes des bestioles rares du Livre Rouge, bien carbonisées. Bref, fabrique-nous un casus belli qui tienne la route.
+
+**Poutine (dubitatif)** :
+
+— Oui, mais tu donnes des garanties de sécurité à l'Ukraine. Si des journalistes un peu trop curieux grattent et découvrent la mise en scène, l'OTAN pourrait me sortir l'Article 5.
+
+(Un silence)
+
+**Poutine (d'un ton qui ne discute pas)** :
+
+— Il me faut des garanties d'impunité, Donnie. Réelles.
+
+**Trump (acquiesçant d'un hochement de tête)** :
+
+— Évidemment. Et tu les as déjà, Vova. Les garanties les plus fiables, ce ne sont pas les bouts de papier ; c'est la parole d'honneur entre deux gentlemen.
+
+Vova, repense à l'après-URSS. L'Ukraine avait des « garanties en béton », non ? Et qu'est-ce qui s'est passé ? Quelqu'un l'a protégée de toi ? Personne. Alors pourquoi des nouvelles « garanties » marcheraient différemment ? Moi, personnellement, je ne mettrai jamais les pieds dans ta baston avec l'Ukraine. Surtout si tu « brûles ton Reichstag ». Regarde Obama, regarde Biden — ils flippaient à l'idée d'un conflit ouvert avec la Russie. Les States ne se battront jamais si leurs propres intérêts ne sont pas en jeu.
+
+**Poutine (sceptique)** :
+
+— Et l'Europe ?
+
+**Trump (avec mépris)** :
+
+— L'Europe ?! Ne me fais pas rire. 
+Ils n'iront jamais se jeter dans la gueule du loup. Surtout depuis que tu as montré ta stratégie gagnante : noyer l'ennemi sous les corps de tes soldats. En Europe, ils ont une sensiblerie sur la vie humaine. Pour les armes, ils ne les enverront aux Ukrainiens que jusqu'à ce qu'ils aient rebâti leur propre défense. Tu crois qu'ils le font par bonté d'âme ? Tu déconnes ?  Ils veulent que l'Ukraine fasse écran. Qu'elle garde leurs frontières au prix de sa propre peau.
+
+Alors, t'as zéro raison de t'inquiéter. Gelons la ligne de front actuelle. Toi, tu as un besoin urgent de souffler et de moderniser ton matos. Et puis, ta propre économie tire la langue. Dans deux ans, tu reviens avec des forces neuves.
+
+**Poutine** :
+
+— Et je dis quoi à mon peuple ?
+
+**Trump** :
+
+— Quoi, tu dis ? Que les objectifs de l'opération spéciale — dénazification et démilitarisation — sont atteints. Le Donbass est « pratiquement intégralement » libéré. Ne te perds pas dans les chiffres. « Pratiquement intégralement », ça sonne triomphal. Les droits des russophones sont garantis. Quelle défaite ? De quoi tu parles ? C'est une victoire incontestable. Phase Un. Ensuite, une fois que j'aurai mon Nobel et que je serai sorti, tu pourras aller chercher la victoire totale, finale. Allez, Vova ! Fais pas ton malin, accepte le deal !
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
                                 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
