@@ -25,29 +25,29 @@ Below you will find **The Golden Dozen**—twelve key diagnostic miniatures. The
 
 ### CONTENTS
 
-[1. The Supernovus Covenant](Golden_En.md#1-the-supernovus-covenant)
+[1. The Supernovus Covenant](Golden_en.md#1-the-supernovus-covenant)
 
-[2. Updating Christianity](Golden_En.md#2-updating-christianity)
+[2. Updating Christianity](Golden_en.md#2-updating-christianity)
 
-[3. One Head for Crown, the Other Rules the Country](Golden_En.md#3-one-head-for-crown-the-other-rules-the-country)
+[3. One Head for Crown, the Other Rules the Country](Golden_en.md#3-one-head-for-crown-the-other-rules-the-country)
 
-[4. Nobel Capers](Golden_En.md#4-nobel-capers)
+[4. Nobel Capers](Golden_en.md#4-nobel-capers)
 
-[5. Shitty Immortality](Golden_En.md#5-shitty-immortality)
+[5. Shitty Immortality](Golden_en.md#5-shitty-immortality)
 
-[6. Cultural Infiltration Operation](Golden_En.md#6-cultural-infiltration-operation)
+[6. Cultural Infiltration Operation](Golden_en.md#6-cultural-infiltration-operation)
 
-[7. Putin’s Handbook: "1984" Revisited](Golden_En.md#7-putins-handbook-1984-revisited)
+[7. Putin’s Handbook: "1984" Revisited](Golden_en.md#7-putins-handbook-1984-revisited)
 
-[8. Putin in the Hall of Two Truths: Judgment of Osiris](Golden_En.md#8-putin-in-the-hall-of-two-truths-judgment-of-osiris)
+[8. Putin in the Hall of Two Truths: Judgment of Osiris](Golden_en.md#8-putin-in-the-hall-of-two-truths-judgment-of-osiris)
 
-[9. Geopolitical Sandbox](Golden_En.md#9-geopolitical-sandbox)
+[9. Geopolitical Sandbox](Golden_en.md#9-geopolitical-sandbox)
 
-[10. Propaganda Supplements](Golden_En.md#10-propaganda-supplements)
+[10. Propaganda Supplements](Golden_en.md#10-propaganda-supplements)
 
-[11. "Conversations about Important Things"](Golden_En.md#11-conversations-about-important-things)
+[11. "Conversations about Important Things"](Golden_en.md#11-conversations-about-important-things)
 
-[12. Blessed are the Peacemakers...](Golden_En.md#12-blessed-are-the-peacemakers)
+[12. Blessed are the Peacemakers...](Golden_en.md#12-blessed-are-the-peacemakers)
 
 
 ## 1. THE SUPERNOVUS COVENANT
