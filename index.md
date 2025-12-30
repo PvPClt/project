@@ -15,7 +15,7 @@ Welcome to the **Encyclopedia of Orthodox Military Putinism** — a realm of pol
 
 Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, satire, hyper-absurd — tearing off the masks of feigned piety and the veils of false spiritual values; laying bare the horrors of war, the vices and sores of an authoritarian society; exposing the inhuman mechanisms of propaganda, the transformation of religion into ideology, the criminalization of power, the degradation of public consciousness; lashing out at the "good intentions" with which the "federal highways" to Hell are paved.
 
-### **The Essence of the Project: Golden Dozen**
+### **The Heart of the Project: Golden Dozen**
 
 [**Read on the website**](Golden_en.md) 
 
@@ -46,7 +46,7 @@ Bienvenue dans **l'Encyclopédie du Poutinisme Militaire Orthodoxe** — un roya
 
 Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, satire, hyper-absurde — arrachant les masques de la piété feinte et les voiles des fausses valeurs spirituelles ; mettant à nu les horreurs de la guerre, les vices et les plaies d'une société autoritaire ; dévoilant les mécanismes inhumains de la propagande, la transformation de la religion en idéologie, la criminalisation du pouvoir, la dégradation de la conscience collective ; fustigeant les « bonnes intentions » dont sont pavées les « autoroutes fédérales » menant en Enfer.
 
-### **L'Essence du Project : une Douzaine d'Or**
+### **Le Cœur du Projet : La Douzaine d'Or**
 
 [**Read on the website**](Golden_fr.md) 
 
@@ -76,7 +76,7 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 
 Щеглова Ольга (Борис Бидяга) представляє: чорний гумор, шарж, гротеск, сатиру, гіпеабсурд — що зривають маски удаваної побожності, покрови мнимі духовних цінностей; обнажають жахіття війни, вади й виразки авторитарного суспільства; викривають безлюдні механізми пропаганди, перетворення релігії на ідеологію, криміналізацію влади, деградацію суспільної свідомості; бичують «благі наміри», якими вимощені «федеральні траси», що ведуть у Пекло.
 
-### **Топ 12 мініатюр: Золота дюжина**
+### **Серце проекту: Золота дюжина**
 
 [**Читати на сайті**](Golden_ua.md) 
 
@@ -106,7 +106,7 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 
 Щеглова Ольга (Борис Бидяга) представляет:  чёрный юмор, шарж, гротеск, сатира, гиперабсурд — срывающие маски притворного благочестия, покровы мнимых духовных ценностей; обнажающие ужасы войны, пороки и язвы авторитарного общества; разоблачающие бесчеловечные механизмы пропаганды, трансформацию религии в идеологию, криминализацию власти, деградацию общественного сознания;  бичующие "благие намерения", которыми выложены "федеральные трассы", ведущие в Ад.
 
-### **Топ 12 миниатюр: Золотая Дюжина**
+### **Сердце проекта: Золотая дюжина**
 
 [**Читать на сайте**](Golden_ru.md)
 
