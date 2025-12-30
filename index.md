@@ -5,9 +5,6 @@
 
 **CONTENTS/SOMMAIRE/ЗМІСТ/ОГЛАВЛЕНИЕ**
 
-🇬🇧 [GOLDEN DOZEN](Golden_En.md) | 🇫🇷 LA DOUZAINE D'OR 
-
-
 # 🇬🇧 ENGLISH 
 
 ## ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
@@ -18,9 +15,14 @@ Welcome to the **Encyclopedia of Orthodox Military Putinism** — a realm of pol
 
 Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, satire, hyper-absurd — tearing off the masks of feigned piety and the veils of false spiritual values; laying bare the horrors of war, the vices and sores of an authoritarian society; exposing the inhuman mechanisms of propaganda, the transformation of religion into ideology, the criminalization of power, the degradation of public consciousness; lashing out at the "good intentions" with which the "federal highways" to Hell are paved.
 
-### Album of satirical miniatures "Ward №666"
+### **The Essence of the Project: Golden Dozen**
+
+[**Read on the website**](Golden_en.md) 
+
+### Great Album of satirical miniatures "Ward №666"
 
 [**Read on the website**](album_en.md)
+
 ### Satirical mini-play "Rising Off Her Knees"
 
 [**Read on the website**](play_en.md) 
@@ -33,6 +35,7 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 [**About the Author**](en_author)
 
+
 # 🇫🇷 FRANÇAIS
 
 ## ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE
@@ -43,7 +46,12 @@ Bienvenue dans **l'Encyclopédie du Poutinisme Militaire Orthodoxe** — un roya
 
 Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, satire, hyper-absurde — arrachant les masques de la piété feinte et les voiles des fausses valeurs spirituelles ; mettant à nu les horreurs de la guerre, les vices et les plaies d'une société autoritaire ; dévoilant les mécanismes inhumains de la propagande, la transformation de la religion en idéologie, la criminalisation du pouvoir, la dégradation de la conscience collective ; fustigeant les « bonnes intentions » dont sont pavées les « autoroutes fédérales » menant en Enfer.
 
-### Album de miniatures satiriques « Chambre n°666 »
+### **L'Essence du Project : une Douzaine d'Or**
+
+[**Read on the website**](Golden_fr.md) 
+
+
+### Grand Album de miniatures satiriques « Chambre n°666 »
 
 [**Lire sur le site**](album_fr.md) 
 
@@ -67,6 +75,10 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 Ласкаво просимо до **Енциклопедії Православного воєнного путінізму** — у царство політичного божевілля, беззаконня, цинізму та жорстокості, діагностованих і розтинутих з хірургічною точністю пером письменниці та пензлем митця.
 
 Щеглова Ольга (Борис Бидяга) представляє: чорний гумор, шарж, гротеск, сатиру, гіпеабсурд — що зривають маски удаваної побожності, покрови мнимі духовних цінностей; обнажають жахіття війни, вади й виразки авторитарного суспільства; викривають безлюдні механізми пропаганди, перетворення релігії на ідеологію, криміналізацію влади, деградацію суспільної свідомості; бичують «благі наміри», якими вимощені «федеральні траси», що ведуть у Пекло.
+
+### **Топ 12 мініатюр: Золота дюжина**
+
+[**Читати на сайті**](Golden_ua.md) 
 
 ### Альбом сатиричних мініатюр «Палата №666»
 
@@ -93,6 +105,10 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 Добро пожаловать в **Энциклопедию Православного военного путинизма** — в царство политического безумия, беспредела, цинизма и жестокости, диагностированных и вскрытых с хирургической точностью пером литератора и кистью художника.
 
 Щеглова Ольга (Борис Бидяга) представляет:  чёрный юмор, шарж, гротеск, сатира, гиперабсурд — срывающие маски притворного благочестия, покровы мнимых духовных ценностей; обнажающие ужасы войны, пороки и язвы авторитарного общества; разоблачающие бесчеловечные механизмы пропаганды, трансформацию религии в идеологию, криминализацию власти, деградацию общественного сознания;  бичующие "благие намерения", которыми выложены "федеральные трассы", ведущие в Ад.
+
+### **Топ 12 миниатюр: Золотая Дюжина**
+
+[**Читать на сайте**](Golden_ru.md)
 
 ### Альбом сатирических миниатюр «Палата №666»
 
