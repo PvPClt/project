@@ -1143,7 +1143,7 @@ If accidentally ingested by an independent journalist or human rights activist, 
 
 ![](Images/En_Album_20.jpg)
 
-School, Russian town. Lesson: "Conversations About the Important".
+School, Russian town. Lesson: "Conversations About Important Things".
 
 **Teacher:**
 
