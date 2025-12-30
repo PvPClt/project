@@ -27,7 +27,7 @@ Below you will find **The Golden Dozen**—twelve key diagnostic miniatures. The
 
 [1. The Supernovus Covenant](Golden_En.md#1-the-supernovus-covenant)
 
-[2. Wanna be a Saint? Hang on the Cross!](Golden_En.md#2-wanna-be-a-saint-hang-on-the-cross)
+[2. Updating Christianity](Golden_En.md#2-updating-christianity)
 
 [3. One Head for Crown, the Other Rules the Country](Golden_En.md#3-one-head-for-crown-the-other-rules-the-country)
 
@@ -77,19 +77,21 @@ May loyalty be with you — and ye shall not perish in prison.
 #OrthodoxMilitaryPutinism
                                 👻
 
-## 2. WANNA BE A SAINT? HANG ON THE CROSS!
+## 2. UPDATING CHRISTIANITY
 
-![](Images/En_Album_39.jpg)
+![](Images/En_Album_47.jpg)
 
-Russian-Ukrainian front, Russian rear camp. Priest offers soldiers “presidential” crosses as talismans.
+Confessional in Orthodox church, Russian town.
+
+**Repentant sinner:**
+
+— Father! What happened to the commandment “Thou shalt not kill”?
 
 **Priest:**
 
-— Soldiers! Our president, protected by God's grace, orders you to wear these crosses bearing his initials. They will protect you from enemy bullets.
-
-**Soldier:**
-
-— Wait — he’s been crucified already?
+— Outdated version, my son!
+Upgrade to the latest release.
+Run the file "Ukraine_Deleted.exe".
 
 #OrthodoxMilitaryPutinism
                                 👻
