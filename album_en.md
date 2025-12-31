@@ -2875,54 +2875,54 @@ American bar. Russian President Vladimir Putin and U.S. President Donald Trump a
 
 (Pause)
 
-**Trump (leaning in):**
+**Trump (pleading):**
 
-— C’mon, Vova, help me out here. I put everything you wanted in the deal. Every single point. Let’s just sign this thing! It’s a fantastic deal for you. For me? It’s the win I need. The glory.
+— Come on, Vova, why won't you help me out? I put every single point you asked for in the deal. Buddy, let's just sign this peace treaty already! It's a hell of a deal for you. And the best part? It gets me the glory I deserve.
 
-**Putin (cool, detached):**
+**Putin (indifferently):**
 
-— Donnie, I have my own position to think about. I need the Donbas, don't you get it? It’s in our Constitution now. Russian land. And I’ve spent a million lives on that damn place. I have to deliver it. It’s that simple. No Donbas, no victory. Then all this blood was for nothing.
+— Donnie, I've got my own image to worry about. I need the Donbas, don't you get it? I already wrote it into the Constitution as legitimate Russian territory. And let's not forget: I've spilled a river of blood for that goddamn Donbas. I need to hand it to my voters on a silver platter. No Donbas, no victory. And that means every single sacrifice in this bloody war was for nothing.
 
 **Trump (lowering his voice):**
 
-— Look, nobody’s saying you can’t restart this in a few years. Just… wait till I’m out, okay? Stage something. A Ukrainian attack on your residence. Out in Tver, in the nature reserve. But make it look good. If you’re gonna cry wolf, show a real wolf. The Reichstag’s gotta burn, you know? Launch drones from their side. Burn the whole place to ashes — your favorite palace, a hundred acres of forest. Show the cameras some dead endangered animals. Give people a story they can believe. A real casus belli.
+— Listen, Vova, nothing's stopping you from picking this up again in a couple of years — just wait until I'm out, okay? Stage a Ukrainian attack on your residence. Out in Tver, in the nature reserve. But make it look good. If you’re gonna cry wolf, show a real wolf. The *Reichstag* has to burn for real. Launch the drones from their side. Burn your favorite palace to the ground, take out a hundred hectares of ancient forest while you're at it. Show the cameras some dead endangered animals. Give people a story they can believe. A top-shelf casus belli.
 
-**Putin (doubtful):**
+**Putin (doubtfully):**
 
-— But you’re giving Ukraine security guarantees. What if some journalist digs it up? NATO could invoke Article 5.
+— But you're giving Ukraine security guarantees. If some nosy journalist digs it up and finds out it's a total setup, NATO could trigger Article 5 against me.
 
-(Pause)
+(Pause.)
 
 **Putin (firmly):**
 
-— I need guarantees of impunity, Donnie. Real ones.
+— I need ironclad guarantees, Donnie. Guarantees of impunity.
 
-**Trump (nodding):**
+**Trump (nodding in agreement):**
 
-— You’ve got ‘em. You already have. The best guarantees aren’t on paper, Vova. They’re between us. A gentleman’s agreement.
+— Of course. And you've got 'em, Vova. The best guarantees aren't the ones signed on paper; the best ones are a gentleman's handshake.
+Just think back, Vova. After the USSR fell apart, Ukraine got "ironclad guarantees," right? And what happened? Did anyone lift a finger when you moved in? Hell no. So why would new "guarantees" be any different? Me? I won't get involved in your scrap with Ukraine no matter what. Especially if you put on a convincing enough show. Look at Obama, look at Biden—they were scared shitless of an open fight with Russia. America doesn’t go to war unless our interests are at stake.
 
-Think about it. After the USSR fell, Ukraine was given “ironclad guarantees,” right? And what happened? Did anyone lift a finger when you moved in? No. So why would new “guarantees” be any different? Me? I’m not getting into a fight with you over Ukraine. Especially if your “Reichstag” goes up in flames. Look at Obama, look at Biden — they were scared stiff of a real fight with Russia. America doesn’t go to war unless our interests are at stake.
-
-**Putin (skeptical):**
+**Putin (skeptically):**
 
 — And Europe?
 
-**Trump (scoffing):**
+**Trump (contemptuously):**
 
-— Europe? Please. They’re not jumping into the fire. Not after you showed them your playbook: just throw more bodies at the problem. Europeans? They care way too much about casualties. As to weapons, they’ll send them  just long enough to build up their own defenses. You think they’re doing this out of charity? No way. They want Ukraine to take the hit. To guard Europe’s border with its own blood.
+— Europe? Give me a break. They’re not jumping into the fire. Not after you showed them your playbook: just throw more bodies at the problem. Mountains of corpses. The very sight of it makes Europe shake in its boots. Over there, they care too much about human life. As for sending weapons, they'll keep feeding them to Ukraine just long enough to rebuild their own defenses. Did you think they're doing it out of the goodness of their hearts? Yeah, right. They're doing it so Ukraine takes the bullet for them. Guards Europe's border with its own blood.
 
-So, you’ve got nothing to worry about. Let’s freeze the line where it is now. You need to regroup, rearm. Man, your own economy is almost dead. And in a couple years, you come back stronger.
+So you've got zero reason to worry. Let's freeze the conflict along the current front line. For now. You take a breather and modernize your hardware. Your own economy's on its last legs! And in a couple of years, you come back with fresh troops.
 
-**Putin**:
+**Putin:**
 
 — And what do I tell my people?
 
 **Trump:**
 
-— What’s to tell? Mission accomplished. Denazification, demilitarization — done. The Donbas is “virtually liberated.” Don’t sweat the details. “Virtually” sounds great. Russian speakers are safe. What defeat? It’s a clear victory. Phase One. Then, after I get my Nobel and I’m gone, you go get the rest. Total victory. So, what do you say? Deal?
+— What’s to tell? Mission accomplished. Denazification, demilitarization — done. The Donbas is "practically fully" liberated. Don't sweat the numbers. "Practically fully" sounds like a triumph. The rights of Russian speakers? Protected. What defeat? What are you talking about? It's a clear victory. Phase one. Then, after I get my Nobel and my term's over, you can finish the job and claim your total, final victory.
+Come on, Vova! Don't be a hardass! Let's sign the damn deal and be done with it!
 
 #OrthodoxMilitaryPutinism
-                            👻                             
+                            👻                         
                               
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
