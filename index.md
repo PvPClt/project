@@ -19,7 +19,7 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 [**Read on the website**](Golden_en.md) 
 
-### Great Album of satirical miniatures "Ward №666"
+### Big Album of satirical miniatures "Ward №666"
 
 [**Read on the website**](album_en.md)
 
@@ -80,7 +80,7 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 
 [**Читати на сайті**](Golden_ua.md) 
 
-### Альбом сатиричних мініатюр «Палата №666»
+### Великий Альбом сатиричних мініатюр «Палата №666»
 
 [**Читати на сайті**](album_ua.md) 
 
@@ -110,7 +110,7 @@ Olga Shcheglova (Boris Bidyaga) présente : humour noir, caricature, grotesque, 
 
 [**Читать на сайте**](Golden_ru.md)
 
-### Альбом сатирических миниатюр «Палата №666»
+### Большой Альбом сатирических миниатюр «Палата №666»
 
 [**Читать на сайте**](album_ru.md) 
 
