@@ -1,6 +1,6 @@
 **Shcheglova Olga (Boris Bidyaga)** 
 
-# 🇫🇷 ALBUM DE MINIATURES SATIRIQUES « CHAMBRE N°666 »
+# 🇫🇷 GRAND ALBUM DE MINIATURES SATIRIQUES « CHAMBRE N°666 »
 
 **ATTENTION !**
 **NOTE IMPORTANTE !**
