@@ -17,16 +17,27 @@ Ce dossier met en lumière plusieurs dimensions critiques de la crise actuelle :
 ## TABLE DES MATIÈRES
 
 [1. Le Nouveau Testament Supernovaire](Golden_fr.md#1-le-nouveau-testament-supernovaire)
+
 [2. Mise à jour du Christianisme](Golden_fr.md#2-mise-à-jour-du-christianisme)
+
 [3. Une tête coiffée d'un chapeau, l'autre qui gouverne le pays](Golden_fr.md#3-une-tête-coiffée-dun-chapeau-lautre-qui-gouverne-le-pays)
+
 [4. Les frasques Nobel](Golden_fr.md#4-les-frasques-nobel)
+
 [5. L'immortalité merdique](Golden_fr.md#5-limmortalité-merdique)
+
 [6.Opération d'infiltration culturelle](Golden_fr.md#6-opération-dinfiltration-culturelle)
-[7. Manuel de Poutine : « 1984 » revisité](Golden_fr.md#7-manuel-de-poutine-1984-revisité)
-[8. Poutine dans la Salle des Deux Vérités : le jugement d'Osiris](Golden_fr.md#8-poutine-dans-la-salle-des-deux-vérités-le-jugement-dosiris)
+
+[7. Manuel de Poutine : « 1984 » revisité](Golden_fr.md#7-manuel-de-poutine---1984--revisité)
+
+[8. Poutine dans la Salle des Deux Vérités : le jugement d'Osiris](Golden_fr.md#8-poutine-dans-la-salle-des-deux-vérités--le-jugement-dosiris)
+
 [9. Le bac à sable géopolitique](Golden_fr.md#9-le-bac-à-sable-géopolitique)
-[10. suppléments de propagande](Golden_fr.md#10-suppléments-de-propagande)
-[11. « Conversations sur l’essentiel »](Golden_fr.md#11-conversations-sur-lessentiel)
+
+[10. Suppléments de propagande](Golden_fr.md#10-suppléments-de-propagande)
+
+[11. « Conversations sur l’essentiel »](Golden_fr.md#11--conversations-sur-lessentiel-)
+
 [12. Heureux les artisans de paix...](Golden_fr.md#12-heureux-les-artisans-de-paix)
 
 
