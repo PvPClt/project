@@ -1,5 +1,5 @@
 
-# L’Encyclopédie du Poutinisme Militaire Orthodoxe: La Douzaine d'Or dossier
+# L’Encyclopédie du Poutinisme Militaire Orthodoxe: « La Douzaine d'Or » dossier
 
 Alors que la science politique traditionnelle peine souvent à expliquer la trajectoire irrationnelle du régime russe actuel, ce projet utilise la méthode de la « Satire Clinique » pour documenter la mutation systématique de l'État. Il ne s'agit pas simplement d'un recueil de miniatures littéraires, mais d'une cartographie diagnostique d'un régime passé de l'autoritarisme à une forme de nécrophilie idéologique.
 
@@ -16,18 +16,18 @@ Ce dossier met en lumière plusieurs dimensions critiques de la crise actuelle :
 
 ## TABLE DES MATIÈRES
 
-[1. Le Nouveau Testament Supernovaire](#-1-le-nouveau-testament-supernovaire)
-[2. Mise à jour du Christianisme](#-2-mise-à-jour-du-christianisme)
-[3. Une tête coiffée d'un chapeau, l'autre qui gouverne le pays](#-3-une-tête-coiffée-dun-chapeau-lautre-qui-gouverne-le-pays)
-[4. Les frasques Nobel](#-4-les-frasques-nobel)
-[5. L'immortalité merdique](#-5-limmortalité-merdique)
-[6.Opération d'infiltration culturelle](#-6-opération-dinfiltration-culturelle)
-[7. Manuel de Poutine : « 1984 » revisité](#-7-manuel-de-poutine-1984-revisité)
-[8. Poutine dans la Salle des Deux Vérités : le jugement d'Osiris](#-8-poutine-dans-la-salle-des-deux-vérités-le-jugement-dosiris)
-[9. Le bac à sable géopolitique](#-9-le-bac-à-sable-géopolitique)
-[10. suppléments de propagande](#-10-suppléments-de-propagande)
-[11. « Conversations sur l’essentiel »](#-11-conversations-sur-lessentiel)
-[12. Heureux les artisans de paix...](#-12-heureux-les-artisans-de-paix)
+[1. Le Nouveau Testament Supernovaire](Golden_fr.md#1-le-nouveau-testament-supernovaire)
+[2. Mise à jour du Christianisme](Golden_fr.md#2-mise-à-jour-du-christianisme)
+[3. Une tête coiffée d'un chapeau, l'autre qui gouverne le pays](Golden_fr.md#3-une-tête-coiffée-dun-chapeau-lautre-qui-gouverne-le-pays)
+[4. Les frasques Nobel](Golden_fr.md#4-les-frasques-nobel)
+[5. L'immortalité merdique](Golden_fr.md#5-limmortalité-merdique)
+[6.Opération d'infiltration culturelle](Golden_fr.md#6-opération-dinfiltration-culturelle)
+[7. Manuel de Poutine : « 1984 » revisité](Golden_fr.md#7-manuel-de-poutine-1984-revisité)
+[8. Poutine dans la Salle des Deux Vérités : le jugement d'Osiris](Golden_fr.md#8-poutine-dans-la-salle-des-deux-vérités-le-jugement-dosiris)
+[9. Le bac à sable géopolitique](Golden_fr.md#9-le-bac-à-sable-géopolitique)
+[10. suppléments de propagande](Golden_fr.md#10-suppléments-de-propagande)
+[11. « Conversations sur l’essentiel »](Golden_fr.md#11-conversations-sur-lessentiel)
+[12. Heureux les artisans de paix...](Golden_fr.md#12-heureux-les-artisans-de-paix)
 
 
 ## 1. LE NOUVEAU TESTAMENT SUPERNOVAIRE
@@ -302,7 +302,7 @@ Russie, Moscou, Kremlin – bureau présidentiel. Le president russe, Vladimir P
                                 👻
 
 
-## 6.OPÉRATION D'INFILTRATION CULTURELLE
+## 6. OPÉRATION D'INFILTRATION CULTURELLE
 
 ![](Images/Fr_Album_60.jpg)
 
