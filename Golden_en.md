@@ -18,7 +18,7 @@ The “Golden Dozen” dossier presented herein dissects four core pathologies o
 3.  **The Sacrilege of Faith:** The strategic co-option and mutation of the Russian Orthodox Church into a **theological arm of the security state**, providing sacred sanction to war and repression.
 4.  **The Algorithm of Chaos:** A detailed schematic of how the Kremlin exports not just influence, but a **ready-to-install “software for autocracy”** — a package of hybrid tactics, ideological viruses, and corrupt governance models designed to destabilize and replicate.
 
-Below you will find **The Golden Dozen**—twelve key diagnostic miniatures. They serve as both an introduction and a conclusive proof of concept.
+Below you will find **The Golden Dozen** — twelve key diagnostic miniatures. They serve as both an introduction and a conclusive proof of concept.
 
 
 ### CONTENTS
