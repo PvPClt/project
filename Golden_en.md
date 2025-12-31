@@ -1234,5 +1234,8 @@ Come on, Vova! Don't be a hardass! Let's sign the damn deal and be done with it!
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
+[**List Of Charitable Foundations Assisting Ukraine**](en_funds)
+
+[**Main Page**](index.md)
 
 
