@@ -1,6 +1,6 @@
 **Shcheglova Olga (Boris Bidyaga)**
 
-# 🇬🇧 ALBUM OF SATIRICAL MINIATURES "WARD №666"
+# 🇬🇧 THE GREAT ALBUM OF SATIRICAL MINIATURES "WARD №666"
 
 **ATTENTION!**  
 **IMPORTANT NOTE!**
