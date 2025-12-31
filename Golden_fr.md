@@ -1,6 +1,8 @@
 
 # L’Encyclopédie du Poutinisme Militaire Orthodoxe: « La Douzaine d'Or » dossier
 
+**Préface Diagnostique : La satire comme méthode d'autopsie politique**
+
 Alors que la science politique traditionnelle peine souvent à expliquer la trajectoire irrationnelle du régime russe actuel, ce projet utilise la méthode de la « Satire Clinique » pour documenter la mutation systématique de l'État. Il ne s'agit pas simplement d'un recueil de miniatures littéraires, mais d'une cartographie diagnostique d'un régime passé de l'autoritarisme à une forme de nécrophilie idéologique.
 
 Ce dossier met en lumière plusieurs dimensions critiques de la crise actuelle :
@@ -13,6 +15,7 @@ Ce dossier met en lumière plusieurs dimensions critiques de la crise actuelle :
 
 • L’exportation de l'instabilité : Une analyse métaphorique de la manière dont le « modèle russe » est proposé comme une mise à jour logicielle pour d'autres autocraties potentielles.
 
+Voici ci-dessous la Douzaine d'Or — douze miniatures diagnostiques clés. Elles servent à la fois d'introduction et de preuve conceptuelle concluante.
 
 ## TABLE DES MATIÈRES
 
