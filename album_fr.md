@@ -2164,7 +2164,7 @@ Nos ennemis nous accusent soi-disant de mener une guerre hybride contre l’Occi
 Chauffeur, tableau, théâtre, chef-d’œuvre… Il y en a des milliers. On ne sait même plus : est-ce encore du russe ou déjà un dialecte du français ?
 Mais « chauffeur », ce n’est encore rien. 
 Mais ils infiltrent notre langue avec  des mots destructeurs tels que « président » et « révolution » ! Il s'agit là d'une diversion et d'une attaque flagrantes contre nos valeurs traditionnelles.
-Des mots comme « président » et « révolution » — voilà de vraies attaques contre nos valeurs traditionnelles. Quel est donc ce « président » ? Il n’y a jamais eu et il n’y aura jamais de « présidents » en Russie. Il n’y a que le tsar [il se frappe la poitrine]. Ou encore : « révolution ». Les révolutions et les guillotines pour les familles royales sont un phénomène purement français, totalement étranger à l’esprit russe. Et d’ailleurs, en Russie ces abominations n’existaient pas — jusqu’à l’apparition dans notre langue de ces mots-saboteurs.
+Quel est donc ce « président » ? Il n’y a jamais eu et il n’y aura jamais de « présidents » en Russie. Il n’y a que le tsar [il se frappe la poitrine]. Ou encore : « révolution ». Les révolutions et les guillotines pour les familles royales sont un phénomène purement français, totalement étranger à l’esprit russe. Et d’ailleurs, en Russie ces abominations n’existaient pas — jusqu’à l’apparition dans notre langue de ces mots-saboteurs.
 
 Et c’est logique, camarades. Souvenez-vous de la Bible : « Au commencement était le Verbe ». Et ensuite seulement tout le reste. Cela signifie qu’il ne peut y avoir de révolution tant que le mot n’existe pas dans la langue. Exemple. En Union soviétique, il n’y avait pas de sexe — c’est un fait bien connu. Pourquoi ? Parce qu’il n’y avait pas le mot « sexe ». Mais dès que l’opportuniste Mikhaïl Gorbatchev a ouvert les frontières à la culture de masse occidentale, les mots « sexe », « gay », « lesbienne », « LGBT » sont arrivés — et après cela, la débauche et la sodomie ont fleuri en Russie.
 
@@ -2388,7 +2388,7 @@ Tu es mon seul espoir !
 
 **CASQUETTE ROUGE :** 
 
-— Casquette Rouge : — Cesse tes balivernes ! Tu n'as plus aucune carte en main. Ce que tu n’as pas donné hier, tu es contraint de le donner aujourd’hui. Sinon, tu le donneras dans un an. Le résultat sera identique. Sauf qu'un demi-million de beaux garçons de plus finiront au cimetière.
+— Cesse tes balivernes ! Tu n'as plus aucune carte en main. Ce que tu n’as pas donné hier, tu es contraint de le donner aujourd’hui. Sinon, tu le donneras dans un an. Le résultat sera identique. Sauf qu'un demi-million de beaux garçons de plus finiront au cimetière.
 
 **JUIF :** 
 
@@ -2430,7 +2430,7 @@ Tu es mon seul espoir !
 
 — Alors, tu signes ou pas ?
 
-**LE JUIF** (accablé) : 
+**JUIF** (accablé) : 
 
 — Je signe.
  
@@ -2504,7 +2504,7 @@ Mêmes personnages
 
 — J'ai tout mis en œuvre pour réconcilier ces deux bagarreurs. J’ai tout essayé. Mais pour une raison obscure, le processus de paix est au point mort.
 
-**casquette de marine :** 
+**CASQUETTE DE MARINE :** 
 
 — Tu es le meilleur négociateur — dur mais juste. Est-ce que je peux t'appeler "Papa" ?
 
