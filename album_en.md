@@ -2922,7 +2922,94 @@ So you've got zero reason to worry. Let's freeze the conflict along the current 
 Come on, Vova! Don't be a hardass! Let's sign the damn deal and be done with it!
 
 #OrthodoxMilitaryPutinism
-                            👻                         
+                            👻  
+
+                            
+## 66. FSB PLAYBOOK: LESSON ONE
+
+Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers discuss the details of an upcoming operation.
+
+**SENKO** (cheerfully): 
+
+— Well, that’s it, brother. The old lady is done for. We’ve finally backed her into a corner.
+
+**VECHIRKO** (doubtfully): 
+
+— We’ve backed her into a corner a hundred times — so what? She’s alive and well, still riding that damn bicycle of hers. An old hag on wheels.
+
+**SENKO** (with a poisonous smirk): 
+
+— The bicycle is exactly what’s going to put her in the grave.
+
+**VECHIRKO**: 
+
+— Brakes again? Our guys in Georgia messed with her brakes a hundred times — she just fixes them.
+
+**SENKO**: 
+
+— No, you don’t get it. In Georgia, she didn't have steep descents like she does now. In Georgia, she could stop — here, she can't. As soon as she leaves her campsite and hits the highway, a hellishly steep descent begins. Without brakes, she’ll be carried down like an avalanche. A mile-long drop. The main thing is to get her to sit down and ride.
+
+**VECHIRKO**: 
+
+— And how the hell are you going to make her "sit down and ride"? Maybe she’ll fix them again!
+
+**SENKO**: 
+
+— The trick is that after the grocery store, she doesn't ride the bike; she walks it. Apparently, it’s too heavy for her to haul forty kilograms.
+
+**VECHIRKO** (contemptuously): 
+
+— Some cyclist! If you can't ride uphill, stay home.  Watch TV.
+
+**SENKO**: 
+
+— So, we sabotaged the brakes while she was in the store. She doesn’t know. She won’t notice until three days from now, when she gets on that   bike to head back down to the city.
+
+**VECHIRKO**: 
+
+— Broken brakes aren't enough. There’s only one turn on that highway where you can jump out and stage an accident.
+
+**SENKO**: 
+
+— Listen closely, rookie. And learn. We’ve already set the stage. We’re faking road repairs. Look at this.
+
+(Senko brings up several photos on the computer screen.)
+
+**SENKO**: 
+
+— We put two signs across the road: "To City Center — Detour." There’s a road branching off to the right here, but the turn is nearly 120 degrees.
+
+![](Images/All_Album_66_1.jpg)
+
+**SENKO**: 
+
+— If she tries to make that turn at speed, she’ll miss it and fly off the cliff. A hundred-meter drop. Death guaranteed. But most likely, she’ll try to push through, down the highway. That’s where the big surprise awaits. Look.
+
+(Senko brings up the next photo.)
+
+![](Images/All_Album_66_2.jpg)
+
+**SENKO**: 
+
+— Ten meters further, a massive piece of construction machinery is blocking her path. She’ll try to bypass it on the left, of course. But a few meters later, on the left side, there's an excavator and a large truck that she won't see behind the first machine. Plus, another heavy vehicle will be coming toward her through the remaining narrow corridor.
+
+![](Images/All_Album_66_3.jpg)
+
+**SENKO**: 
+
+— It’s a death trap, kid. Avoiding a collision in that setup is simply impossible. And don’t forget: her brakes have "failed",  and she’s barreling down at forty kilometers per hour. She won’t even have time to process what’s happening before she’s turned into a pancake. Her and her bike.
+
+**VECHIRKO** (with relief): 
+
+— Well, God willing. God willing. High time she was in the ground. I mean, look: everyone else is normal — they die submissively, without a sound. But this one, for some reason, kicks, defends herself, tries to survive. How many times does the world need to be told: if the secret services decide to kill you, you’ll be killed. Don’t resist, it’s pointless — you’re only prolonging the agony.
+
+**SENKO** (rubbing his hands): 
+
+— Yeah, bro, we’ll finally get our million. We’ve been struggling with this bitch for ten years; I think we’re already working at a loss.
+
+#OrthodoxMilitaryPutinism
+                            👻
+                          
                               
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
