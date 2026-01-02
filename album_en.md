@@ -2739,8 +2739,9 @@ And we are filing a counterclaim against Ukraine in the International Tribunal f
 
 #OrthodoxMilitaryPutinism
                               👻
+                              
 
- ## 63. SCIENTIFIC FOUNDATIONS OF PROPAGANDA
+## 63. SCIENTIFIC FOUNDATIONS OF PROPAGANDA
 
 ![](Images/En_Album_63.jpg)
 
