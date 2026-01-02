@@ -2993,7 +2993,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 
 — Ten meters further, a massive piece of construction machinery is blocking her path. She’ll try to bypass it on the left, of course. But a few meters later, on the left side, there's an excavator and a large truck that she won't see behind the first machine. Plus, another heavy vehicle will be coming toward her through the remaining narrow corridor.
 
-![](Images/All_Album_66_3.jpg)
+![](Images/All_Albun_66_3.jpg)
 
 **SENKO**: 
 
