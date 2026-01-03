@@ -382,7 +382,7 @@ The defendant is acquitted.
 
 **Putin** (nodding):
 
-— I thank you. This is our shared victory. A special thanks to my faithful dog, Anubis. He's a good boy.
+— I thank you. This is our shared victory. Special thanks to my faithful dog, Anubis. He's a good boy.
 
 (Anubis wags his tail, embarrassed.)
 
@@ -486,7 +486,7 @@ Take before evening news broadcasts, V. Solovyov’s and M. Simonyan’s prime-t
 **Caution:**
 
 Hyperloyalty syndrome, sapio-deficiency.
-In case of acute outbreaks of common sense, doubts about the righteousness of state policy, or other forms of resistance to propaganda, "FORTE” version is recommended.
+In case of acute outbreaks of common sense, doubts about the righteousness of state policy, or other forms of resistance to propaganda, "FORTE” formulation is recommended.
 
 **Vital signs monitoring:**
 
@@ -2307,7 +2307,7 @@ The Boys in the Sandbox
 
 **HAT**:
 
-— Hang in there, little guy! We’ll pass a Resolution right now. First. We fully condemn this aggression!
+— Hang in there, little guy! We’ll pass a Resolution right now. First. We fully condemn this aggression! And we call on all parties to exercise restraint.
 
 **BUCKET HAT:**
 
@@ -2339,7 +2339,7 @@ The Boys in the Sandbox
 
 **BULLY**:
 
-— Exactly! I’ll bring my bulldozer and smash this whole Sandbox to splinters!
+— Spot on! I’ll bring my bulldozer and smash this whole Sandbox to splinters!
 
 (He hits the Jew again.)
 
@@ -2349,7 +2349,7 @@ The Boys in the Sandbox
 
 **HAT**:
 
-— My concern has multiplied many times over.
+— My concern has increased many times over.
 
 **PEAKED CAP**:
 
@@ -2515,7 +2515,7 @@ The Same Characters
 
 **JEW**:
 
-— I can’t. Society is against voluntarily ceding territory.
+— I can’t. Society is against voluntary cession of territory.
 
 **RED CAP:**
 
@@ -2570,7 +2570,7 @@ The Same Characters
 
 **RED CAP:**
 
-— What’s so funny? Your trousers are just as vulnerable to him as mine are! So I advise you to think long and hard before giving weapons to the Jew. Personally, I wash my hands of it.
+— What’s so funny? Your pants are just as vulnerable to him as mine are! So I advise you to think long and hard before giving weapons to the Jew. Personally, I wash my hands of it.
 
 **PEAKED CAP:**
 
@@ -2584,7 +2584,7 @@ The Same Characters
 
 **RED CAP:**
 
-— As for you three — I have major grievances with you! Do you think I’ll save you when the Bully attacks you? Don’t even hope. Enough of freeloading off me! You’re big boys and must learn to defend yourselves. You need to increase your defense spending to 5 percent of your GDP. That’s an order!
+— As for you three — I have major grievances with you! Do you think I’ll come to your rescue when the Bully attacks you? Don’t even hope. Enough of freeloading off me! You’re big boys and must learn to defend yourselves. You need to increase your defense spending to 5 percent of your GDP. That’s an order!
 And stop this idiotic immigration! Just look at yourselves in the mirror, see what you’ve become. Where has all your aristocratic bearing, your moral values, your faith gone? You’re destroying your own identity with your own hands. If things continue like this — our friendship will be over!
 
 
@@ -2882,15 +2882,15 @@ American bar. Russian President Vladimir Putin and U.S. President Donald Trump a
 
 **Putin (indifferently):**
 
-— Donnie, I've got my own image to worry about. I need the Donbas, don't you get it? I already wrote it into the Constitution as legitimate Russian territory. And let's not forget: I've spilled a river of blood for that goddamn Donbas. I need to hand it to my voters on a silver platter. No Donbas, no victory. And that means every single sacrifice in this bloody war was for nothing.
+— Donnie, I've got my own image to worry about. I need the Donbas, don't you get it? I’ve already enshrined it in the Constitution as legitimate Russian territory. And let's not forget: I've spilled a river of blood for that goddamn Donbas. I need to hand it to my voters on a silver platter. No Donbas, no victory. And that means every single sacrifice in this bloody war was for nothing.
 
 **Trump (lowering his voice):**
 
-— Listen, Vova, nothing's stopping you from picking this up again in a couple of years — just wait until I'm out, okay? Stage a Ukrainian attack on your residence. Out in Tver, in the nature reserve. But make it look good. If you’re gonna cry wolf, show a real wolf. The *Reichstag* has to burn for real. Launch the drones from their side. Burn your favorite palace to the ground, take out a hundred hectares of ancient forest while you're at it. Show the cameras some dead endangered animals. Give people a story they can believe. A top-shelf casus belli.
+— Listen, Vova, nothing's stopping you from picking this up again in a couple of years — just wait until I'm out, okay? Stage a Ukrainian attack on your residence. Out in Tver, in the nature reserve. But make it look good. If you’re gonna cry wolf, show a real wolf. The *Reichstag’s* gotta burn for real. Launch the drones from their side. Burn your favorite palace to the ground, take out a hundred hectares of ancient forest while you're at it. Show the cameras some dead endangered animals. Give people a story they can believe. A top-shelf casus belli.
 
 **Putin (doubtfully):**
 
-— But you're giving Ukraine security guarantees. If some nosy journalist digs it up and finds out it's a total setup, NATO could trigger Article 5 against me.
+— But you're giving Ukraine security guarantees. If some nosy journalist digs it up and finds out it's a total setup, NATO could invoke Article 5 against me.
 
 (Pause.)
 
@@ -2909,7 +2909,7 @@ Just think back, Vova. After the USSR fell apart, Ukraine got "ironclad guarante
 
 **Trump (contemptuously):**
 
-— Europe? Give me a break. They’re not jumping into the fire. Not after you showed them your playbook: just throw more bodies at the problem. Mountains of corpses. The very sight of it makes Europe shake in its boots. Over there, they care too much about human life. As for sending weapons, they'll keep feeding them to Ukraine just long enough to rebuild their own defenses. Did you think they're doing it out of the goodness of their hearts? Yeah, right. They're doing it so Ukraine takes the bullet for them. Guards Europe's border with its own blood.
+— Europe? Give me a break. They’re not jumping into the fire. Not after you showed them your playbook: just throw more bodies at the problem. Mountains of corpses. The very sight of it makes Europe shake in its boots. Over there, they’re obsessed with human life. As for sending weapons, they'll keep feeding them to Ukraine just long enough to rebuild their own defenses. Did you think they're doing it out of the goodness of their hearts? Yeah, right. They're doing it so Ukraine takes the bullet for them. Guards Europe's border with its own blood.
 
 So you've got zero reason to worry. Let's freeze the conflict along the current front line. For now. You take a breather and modernize your hardware. Your own economy's on its last legs! And in a couple of years, you come back with fresh troops.
 
@@ -2920,7 +2920,7 @@ So you've got zero reason to worry. Let's freeze the conflict along the current 
 **Trump:**
 
 — What’s to tell? Mission accomplished. Denazification, demilitarization — done. The Donbas is "practically fully" liberated. Don't sweat the numbers. "Practically fully" sounds like a triumph. The rights of Russian speakers? Protected. What defeat? What are you talking about? It's a clear victory. Phase one. Then, after I get my Nobel and my term's over, you can finish the job and claim your total, final victory.
-Come on, Vova! Don't be a hardass! Let's sign the damn deal and be done with it!
+Come on, Vova! Don't be a stubborn prick! Let's sign the damn deal and be done with it!
 
 #OrthodoxMilitaryPutinism
                             👻  
