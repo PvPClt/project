@@ -9,12 +9,12 @@
 
 Conventional political analysis often fails when confronted with the **performative absurdity** and **metaphysical cynicism** of the contemporary Russian regime. Where rational discourse reaches its limit, **clinical satire** becomes the essential diagnostic tool.
 
-This project is not a literary exercise. It is a **systematic cartography of a political necrosis**— a regime that has evolved from post-Soviet authoritarianism into a unique hybrid: **Orthodox Military Putinism**. This ideology synthesizes imperial nostalgia, perverted religious symbolism, and hyper-modern surveillance into a doctrine of perpetual war — against its own citizens, against historical truth, and against the very concept of objective reality.
+This project is not a literary exercise. It is a **systematic cartography of a political necrosis** — a regime that has evolved from post-Soviet authoritarianism into a unique hybrid: **Orthodox Military Putinism**. This ideology synthesizes imperial nostalgia, perverted religious symbolism, and hyper-modern surveillance into a doctrine of perpetual war — against its own citizens, against historical truth, and against the very concept of objective reality.
 
 The “Golden Dozen” dossier presented herein dissects four core pathologies of this system:
 
 1.  **The Biopolitics of Expendability:** The conceptual reduction of the population—especially its youth — from citizens to **consumable “bio-resources”**, valued only for their utility in sustaining power and fueling conflict.
-2.  **The Engineering of Unreality:** The regime’s primary operational technology is not merely propaganda, but **institutionalized gaslighting**—the systematic weaponization of absurdity to collapse critical thought and moral judgment.
+2.  **The Engineering of Unreality:** The regime’s primary operational technology is not merely propaganda, but **institutionalized gaslighting** — the systematic weaponization of absurdity to collapse critical thought and moral judgment.
 3.  **The Sacrilege of Faith:** The strategic co-option and mutation of the Russian Orthodox Church into a **theological arm of the security state**, providing sacred sanction to war and repression.
 4.  **The Algorithm of Chaos:** A detailed schematic of how the Kremlin exports not just influence, but a **ready-to-install “software for autocracy”** — a package of hybrid tactics, ideological viruses, and corrupt governance models designed to destabilize and replicate.
 
