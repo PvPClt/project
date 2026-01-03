@@ -45,6 +45,8 @@ Voici ci-dessous la Douzaine d'Or — douze miniatures diagnostiques clés. Elle
 
 [12. Heureux les artisans de paix...](Golden_fr.md#12-heureux-les-artisans-de-paix)
 
+[Hors-série : miniature probatoire](Golden_fr.md#hors-série--miniature-probatoire)
+
 
 ## 1. LE NOUVEAU TESTAMENT SUPERNOVAIRE
 
@@ -1243,7 +1245,95 @@ Alors, t'as zéro raison de t'inquiéter. Gelons la ligne de front actuelle. Toi
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
-                                
+
+### Hors-série : miniature probatoire
+
+**Cette treizième pièce est hors numérotation. Ici, la littérature côtoie le protocole : chaque mot est confirmé par une expérience réelle de survie. La satire n'est que la monture. L'essentiel est le témoignage**. 
+
+## PROTOCOLE DU FSB : PREMIÈRE LEÇON 
+
+Russie, Moscou. Un appartement douillet dans un immeuble cossu. Confortablement installés dans des fauteuils, deux agents des services secrets russes discutent des détails de l’opération à venir.
+
+**SENKO** (joyeusement) : 
+
+— Bon, ça y est, frangin, la vieille est foutue. On l’a enfin coincée.
+
+**VETCHIRKO** (dubitatif) : 
+
+— On l’a déjà coincée cent fois, et alors ? Elle est toujours bon pied bon œil, à pédaler sur son foutu vélo. Une vieille sur roues, quoi.
+
+**SENKO** (avec un rictus sardonique) : 
+
+— C’est justement son vélo qui va l’expédier au cimetière.
+
+**VETCHIRKO** : 
+
+— Encore les freins ? En Géorgie, nos gars les lui ont bousillés un paquet de fois — elle les répare à chaque coup.
+
+**SENKO** : 
+
+— Non, tu piges pas. En Géorgie, elle n’avait pas des descentes aussi raides qu’ici. Là-bas, elle pouvait encore s’arrêter — ici, c'est mort. Dès qu’elle quitte son camp pour rejoindre la route, ça plonge direct. Sans freins, elle va dévaler comme une avalanche. Un kilomètre et demi de descente. Le tout, c’est qu’elle se mette en selle.
+
+**VETCHIRKO** : 
+
+— Et comment tu vas la forcer à se mettre en selle ? Elle va peut-être encore les réparer !
+
+**SENKO** : 
+
+— Toute l'astuce, c'est qu'après avoir fait ses courses, elle ne remonte pas sur son vélo, elle rentre à pied. Madame trouve ça trop lourd de trimballer quarante kilos de provisions.
+
+**VETCHIRKO** (avec mépris) : 
+
+— Tu parles d’une cycliste ! Si t'arrives pas à monter une côte, reste chez toi à regarder la télé.
+
+**SENKO** : 
+
+— Du coup, on lui a flingué les freins pendant qu’elle était au magasin. Elle n'en sait rien. Elle ne s'en rendra compte que dans trois jours, quand elle reprendra son vélo pour redescendre en ville.
+
+**VETCHIRKO** : 
+
+— Les freins bousillés, ça suffit pas. Sur cette route, il n'y a qu'un seul virage où on peut surgir pour lui causer un accident.
+
+**SENKO** : 
+
+— Écoute bien, bleu-bite. Et prends des notes. Le décor de la « scène » est déjà en place. On simule des travaux routiers. Regarde.
+
+(Senko affiche plusieurs photos sur l’écran de l’ordinateur.)
+
+**SENKO** : 
+
+— On a posé deux panneaux en travers de la route : « Centre-ville — Déviation ». Ici, il y a une petite route qui part sur la droite, mais le virage est presque à 120 degrés.
+
+![](Images/All_Album_66_1.jpg)
+
+
+**SENKO** : 
+
+— Si elle essaie de tourner avec sa vitesse, elle ne prendra jamais le virage et elle volera dans le ravin. Cent mètres de précipice. Mort garantie. Mais le plus probable, c'est qu’elle tente de forcer le passage vers le bas, sur la chaussée. Et là, une grosse surprise l'attend. Regarde.
+
+(Senko affiche la photo suivante.)
+
+![](Images/All_Album_66_2.jpg)
+
+**SENKO** : 
+
+— Dix mètres plus loin, un énorme engin de chantier lui barre la route. Elle va essayer de le contourner par la gauche, évidemment, mais quelques mètres après, sur la gauche, il y a une pelleteuse et un gros camion qu’elle ne verra pas, cachés par la première machine. Et pour couronner le tout, dans le petit couloir qui reste, un autre poids lourd arrivera face à elle. 
+
+![](Images/All_Albun_66_3.jpg)
+
+**SENKO** : 
+
+— C’est un piège mortel, mon gars. Impossible d’éviter l'impact avec une configuration pareille. Et n’oublie pas : elle n'a plus de freins et elle fonce à quarante à l'heure. Elle n'aura même pas le temps de comprendre qu'elle sera déjà changée en crêpe. Avec son vélo.
+
+**VETCHIRKO** (soulagé) : 
+
+— Bon, Dieu soit loué. Dieu soit loué. Il était temps qu’elle y passe. Parce que bon : les gens normaux meurent sagement, sans faire de vagues ; mais celle-là, il faut qu’elle se débatte, qu’elle se défende, qu’elle essaie de survivre. On l'a pourtant dit et répété : si les services ont décidé de te buter, on te butera. Ne résiste pas, ça sert à rien, ça ne fait que prolonger l'agonie.
+
+**SENKO** (se frottant les mains) : 
+
+— Ouais, frangin, on va enfin toucher notre million. Ça fait dix ans qu’on s'acharne sur cette pute, je crois bien qu’on travaille à perte, maintenant.
+
+#PoutinismeMilitaireOrthodoxe                             
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
