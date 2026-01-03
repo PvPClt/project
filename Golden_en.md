@@ -1,4 +1,4 @@
-[**Full Version of the Project**](Index.md)
+[**Full Version of the Project**](https://pvpclt.github.io/project)
 
 
 **Shcheglova Olga (Boris Bidyaga)**
