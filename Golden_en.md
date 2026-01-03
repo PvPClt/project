@@ -968,7 +968,7 @@ The Same Characters
 
 **RED CAP:**
 
-— As for you three — I have major grievances with you! Do you think I’ll come to your rescue you when the Bully attacks you? Don’t even hope. Enough of freeloading off me! You’re big boys and must learn to defend yourselves. You need to increase your defense spending to 5 percent of your GDP. That’s an order!
+— As for you three — I have major grievances with you! Do you think I’ll come to your rescue when the Bully attacks you? Don’t even hope. Enough of freeloading off me! You’re big boys and must learn to defend yourselves. You need to increase your defense spending to 5 percent of your GDP. That’s an order!
 And stop this idiotic immigration! Just look at yourselves in the mirror, see what you’ve become. Where has all your aristocratic bearing, your moral values, your faith gone? You’re destroying your own identity with your own hands. If things continue like this — our friendship will be over!
 
 
@@ -1191,7 +1191,7 @@ American bar. Russian President Vladimir Putin and U.S. President Donald Trump a
 
 **Putin (indifferently):**
 
-— Donnie, I've got my own image to worry about. I need the Donbas, don't you get it? I already enshrined it in the Constitution as legitimate Russian territory. And let's not forget: I've spilled a river of blood for that goddamn Donbas. I need to hand it to my voters on a silver platter. No Donbas, no victory. And that means every single sacrifice in this bloody war was for nothing.
+— Donnie, I've got my own image to worry about. I need the Donbas, don't you get it? I've already enshrined it in the Constitution as legitimate Russian territory. And let's not forget: I've spilled a river of blood for that goddamn Donbas. I need to hand it to my voters on a silver platter. No Donbas, no victory. And that means every single sacrifice in this bloody war was for nothing.
 
 **Trump (lowering his voice):**
 
