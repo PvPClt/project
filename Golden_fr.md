@@ -1,3 +1,4 @@
+[**Version complète du projet**](index.md) 
 
 # L’Encyclopédie du Poutinisme Militaire Orthodoxe: « La Douzaine d'Or » dossier
 
