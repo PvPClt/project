@@ -3002,7 +3002,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 
 **VECHIRKO** (with relief): 
 
-— Well, God willing. God willing. High time she was in the ground. I mean, look: everyone else is normal — they die submissively, without a sound. But this one, for some reason, kicks, defends herself, tries to survive. How many times does the world need to be told: if the secret services decide to kill you, you’ll be killed. Don’t resist, it’s pointless — you’re only prolonging the agony.
+— Well, God willing. About time she’s six feet under. Look, everyone else is normal — they die quiet, no fuss. But this one? She kicks, she fights, she tries to crawl out of it. How many times do we have to say it: if the Service wants you dead, you’re dead. Don’t resist, it’s a waste of time — you’re just dragging it out.
 
 **SENKO** (rubbing his hands): 
 
