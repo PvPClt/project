@@ -1304,17 +1304,17 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 
 **SENKO**: 
 
-— Ten meters further, a heavy dump truck is blocking her path. She’ll try to bypass it on the left, of course. But a few meters in, there’s an excavator and another large truck hidden behind the first one. Plus, one more heavy vehicle will be coming toward her through the remaining narrow corridor.
+— Ten meters further, parked on the inner radius of a sharp bend, a heavy dump truck completely blocks her view.  Since the road drops away right there, everything beyond the truck is a total blind spot. She’ll try to bypass it on the left, but she won't see the excavator and the second truck hidden on that downhill slope until she’s already committed to the maneuver. And the final touch — in that narrow free corridor, a massive semi-truck is coming straight at her. And here’s the beauty of it: her brakes have "failed", and she’s barreling down at forty kilometers per hour.
+
+With no brakes, she’s a passenger. Even if she spots the trap at the last second, what’s she going to do? Lay the bike down at full speed? She’s headed straight into the steel, and there's not a damn thing she can do about it. She won’t even have time to process what’s happening before she’s turned into a pancake. Her and her bike.
+It’s a hell of a death trap, kid. Get it?
 
 ![](Images/All_Albun_66_3.jpg)
 
-**SENKO**: 
-
-— It’s a death trap, kid. Avoiding a collision in that setup is simply impossible. And don’t forget: her brakes have "failed",  and she’s barreling down at forty kilometers per hour. She won’t even have time to process what’s happening before she’s turned into a pancake. Her and her bike.
-
 **VECHIRKO** (with relief): 
 
-— Well, God willing. About time she’s six feet under. Look, everyone else is normal — they die quiet, no fuss. But this one? She kicks, she fights, she tries to crawl out of it. How many times do we have to say it: if the Service wants you dead, you’re dead. Don’t resist, it’s a waste of time — you’re just dragging it out.
+— Well, God willing. About time she’s six feet under. Look, everyone else is normal — they die
+quiet, no fuss. But this one? She kicks, she fights, she tries to crawl out of it. How many times do we have to say it: if the Service wants you dead, you’re dead. Don’t resist, it’s a waste of time — you’re just dragging it out.
 
 **SENKO** (rubbing his hands): 
 
