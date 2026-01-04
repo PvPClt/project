@@ -1307,7 +1307,6 @@ Russie, Moscou. Un appartement douillet dans un immeuble cossu. Confortablement 
 
 ![](Images/All_Album_66_1.jpg)
 
-
 **SENKO** : 
 
 — Si elle essaie de tourner avec sa vitesse, elle ne prendra jamais le virage et elle volera dans le ravin. Cent mètres de précipice. Mort garantie. Mais le plus probable, c'est qu’elle tente de forcer le passage vers le bas, sur la chaussée. Et là, une grosse surprise l'attend. Regarde.
@@ -1318,23 +1317,23 @@ Russie, Moscou. Un appartement douillet dans un immeuble cossu. Confortablement 
 
 **SENKO** : 
 
-— Dix mètres plus loin, un énorme engin de chantier lui barre la route. Elle va essayer de le contourner par la gauche, évidemment, mais quelques mètres après, sur la gauche, il y a une pelleteuse et un gros camion qu’elle ne verra pas, cachés par la première machine. Et pour couronner le tout, dans le petit couloir qui reste, un autre poids lourd arrivera face à elle. 
+— Dix mètres plus loin, garé dans le rayon intérieur d’un virage serré, un gros camion-benne lui bouche complètement la vue. Comme la route part en pente juste là, tout ce qui se trouve derrière le camion est un angle mort total. Elle va essayer de le contourner par la gauche, bien sûr, mais elle ne verra pas la pelleteuse et le deuxième camion cachés dans la descente avant d'être déjà engagée dans sa manœuvre. Et la touche finale : dans ce couloir étroit, un énorme semi-remorque arrive droit sur elle. Et c’est là toute la beauté du truc : ses freins ont « lâché », et elle dévale la pente à quarante à l’heure. 
+
+Sans freins, elle n’est plus qu’une passagère. Même si elle capte le piège au dernier moment, qu’est-ce qu’elle va faire ? Coucher le vélo à pleine vitesse ? Elle fonce droit dans la tôle, et elle ne peut absolument rien y faire. Elle n’aura même pas le temps de réaliser ce qui lui arrive qu’elle sera déjà changée en crêpe. Elle и son vélo. C’est un sacré piège à rats, gamin. T’as pigé ?
 
 ![](Images/All_Albun_66_3.jpg)
 
-**SENKO** : 
+**VETCHIRKO** (avec soulagement) : 
 
-— C’est un piège mortel, mon gars. Impossible d’éviter l'impact avec une configuration pareille. Et n’oublie pas : elle n'a plus de freins et elle fonce à quarante à l'heure. Elle n'aura même pas le temps de comprendre qu'elle sera déjà changée en crêpe. Avec son vélo.
-
-**VETCHIRKO** (soulagé) : 
-
-— Bon, Dieu soit loué. Dieu soit loué. Il était temps qu’elle y passe. Parce que bon : les gens normaux meurent sagement, sans faire de vagues ; mais celle-là, il faut qu’elle se débatte, qu’elle se défende, qu’elle essaie de survivre. On l'a pourtant dit et répété : si les services ont décidé de te buter, on te butera. Ne résiste pas, ça sert à rien, ça ne fait que prolonger l'agonie.
+— Enfin, si Dieu le veut. Il serait temps qu’elle soit entre quatre planches. Regarde, tous les autres sont normaux : ils claquent sans faire d'histoires, en silence. Mais celle-là ? Elle rue dans les brancards, elle se débat, elle essaie de s’en sortir. Combien de fois faudra-t-il le dire : si la Boîte veut ta peau, t'es mort. Ne résiste pas, c’est une perte de temps — tu ne fais que faire durer le plaisir.
 
 **SENKO** (se frottant les mains) : 
 
 — Ouais, frangin, on va enfin toucher notre million. Ça fait dix ans qu’on s'acharne sur cette pute, je crois bien qu’on travaille à perte, maintenant.
 
-#PoutinismeMilitaireOrthodoxe                             
+#PoutinismeMilitaireOrthodoxe
+                                👻
+  
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
