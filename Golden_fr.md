@@ -6,7 +6,7 @@
 
 L'analyse politique conventionnelle échoue souvent face à l'absurdité performative et au cynisme métaphysique du régime russe contemporain. Là où le discours rationnel atteint ses limites, la satire clinique devient l'outil de diagnostic essentiel.
 
-Ce projet n’est pas un exercice littéraire. Il s’agit d’une cartographie systématique d’une nécrose politique — un régime qui a évolué d’un autoritarisme post-soviétique vers un hybride unique : le **putinisme militaire orthodoxe**. Cette idéologie synthétise la nostalgie impériale,  un code perverti  de morale religieuse  et de symboles de foi, ainsi qu'un mépris total des droits et libertés en une doctrine de guerre perpétuelle — contre ses propres citoyens, contre la vérité historique et contre le concept même de réalité objective.
+Ce projet n’est pas un exercice littéraire. Il s’agit d’une cartographie systématique d’une nécrose politique — un régime qui a évolué d’un autoritarisme post-soviétique vers un hybride unique : le **putinisme militaire orthodoxe**. Cette idéologie synthétise la nostalgie impériale,  un code perverti  de morale religieuse, des technologies hypermodernes, ainsi qu'un mépris total des droits et libertés — en une doctrine de guerre perpétuelle, une guerre contre ses propres citoyens, contre la vérité historique et contre le concept même de réalité objective.
 
 Le dossier de la « Douzaine d’Or » présenté ici dissèque quatre pathologies fondamentales de ce système :
 
