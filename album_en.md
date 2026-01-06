@@ -3001,7 +3001,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 With no brakes, she’s a passenger. Even if she spots the trap at the last second, what’s she going to do? Lay the bike down at full speed? She’s headed straight into the steel, and there's not a damn thing she can do about it. She won’t even have time to process what’s happening before she’s turned into a pancake. Her and her bike.
 It’s a hell of a death trap, kid. Get it?
 
-![](Images/All_Album_66_3.jpg)
+![](Images/All_Albun_66_3.jpg)
 
 **VECHIRKO** (with relief): 
 
