@@ -2926,13 +2926,17 @@ Come on, Vova! Don't be a stubborn prick! Let's sign the damn deal and be done w
                             👻  
 
                             
-## 66. FSB PLAYBOOK: LESSON ONE
+## 66. FSB PLAYBOOK
+
+## LESSON 1
+  
+### PERFORMANCE: FATAL ACCIDENT
 
 Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers discuss the details of an upcoming operation.
 
 **SENKO** (cheerfully): 
 
-— Well, that’s it, brother. The old lady is done for. We’ve finally backed her into a corner.
+— Well, that’s it, brother. The old bitch is done for. We’ve finally backed her into a corner.
 
 **VECHIRKO** (doubtfully): 
 
@@ -2997,12 +3001,11 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 With no brakes, she’s a passenger. Even if she spots the trap at the last second, what’s she going to do? Lay the bike down at full speed? She’s headed straight into the steel, and there's not a damn thing she can do about it. She won’t even have time to process what’s happening before she’s turned into a pancake. Her and her bike.
 It’s a hell of a death trap, kid. Get it?
 
-![](Images/All_Albun_66_3.jpg)
+![](Images/All_Album_66_3.jpg)
 
 **VECHIRKO** (with relief): 
 
-— Well, God willing. About time she’s six feet under. Look, everyone else is normal — they die
-quiet, no fuss. But this one? She kicks, she fights, she tries to crawl out of it. How many times do we have to say it: if the Service wants you dead, you’re dead. Don’t resist, it’s a waste of time — you’re just dragging it out.
+— Well, God willing. About time she’s six feet under. Look, everyone else is normal — they die quiet, no fuss. But this one? She kicks, she fights, she tries to crawl out of it. How many times do we have to say it: if the Service wants you dead, you’re dead. Don’t resist, it’s a waste of time — you’re just dragging it out.
 
 **SENKO** (rubbing his hands): 
 
@@ -3010,7 +3013,244 @@ quiet, no fuss. But this one? She kicks, she fights, she tries to crawl out of i
 
 #OrthodoxMilitaryPutinism
                             👻
-                          
+                            
+
+## LESSON 2
+
+### DEADLY MEDICINE: EYE DAMAGE DROPS
+
+Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers discuss interesting details of their professional activities.
+
+**VECHIRKO:**
+
+— This whole 21st-century medicine crap is really killing me. All these patented tenth-generation drugs that cure everything. Take the old bag, for instance. I hit her eyes with infrasound — and she just goes out and buys some Italian drops with panthenol. Problem solved. For her. And what do I get? Zero results. All my efforts — down the drain. It's ridiculous.
+
+**SENKO:**
+
+— Dude, your problem is you're too narrow-minded. Medicine is a goldmine. The doctor-patient bond is unique: people trust doctors like nobody else. Our job is to weaponize that trust. Especially now, it's a piece of cake — digitization, everything’s online, medical records on the state portal.
+
+Take the eyes, for example. Hit her harder — so she gets scared and runs to the doctor. The moment she books an appointment, you go to the doctor and lay down an ultimatum: either you help us, or we tell your wife you're cheating on her with her best friend. Don't worry, we'll find dirt on anyone. Long story short, you tell the doctor what drug he has to prescribe to the old bitch. The cheapest one — why throw money away?
+
+And while she's waiting for her appointment, you distribute bottles of this very drug to all the pharmacies in her neighborhood — only slightly modified. So it doesn't relieve symptoms but makes them worse. Say it's got boric acid. We add a double dose. The drops become aggressive. It's child's play. In every pharmacy — a special bottle and a photo of the old bitch. Plus, the prescription has her name on it.
+
+And there you have it — medicine turns from an enemy into our greatest asset. The trick is, we model her physiology ourselves. We induce a specific, pre-selected symptom. We know how it's interpreted in medical practice. We know which drugs are used to "treat" it. We choose the drug that suits us best and prepare a "special purpose" batch in advance. And if we want, we can plant a "stash" for the old bitch in every Moscow pharmacy. Where's she gonna run? She's got no choice. Unless she hauls her ass to Tver!
+
+**VECHIRKO** (gloomily):
+
+— The old bitch doesn't go to doctors. She doesn't trust them.
+
+**SENKO:**
+
+— We’ve got a protocol for that too: refusal of sale. Prescription only.
+
+**VECHIRKO** (sarcastically):
+
+— Right. In Tbilisi, she started filming these refusals. They had no choice but to sell her those damn drops.
+
+**SENKO** (disdainfully):
+
+— I know. Now we keep a "loaded" bottle of Systane for her in every pharmacy — with a 60% discount.
+
+**VECHIRKO** (sarcastically):
+
+— Right. Only in Tbilisi, she refused to buy it. Took the one without the discount. Cunning old bat!
+
+**SENKO** (irritated):
+
+— Yeah. That's her, the fucking old bitch. But she's one of a kind. Too smart, knows too much. All the others are regular people. They trust doctors, aren't afraid of prescriptions. Believe in all things good, die with peace of mind.
+
+#OrthodoxMilitaryPutinism
+👻
+
+## LESSON 3
+
+### INSTRUMENTALIZING TERROR: A BIRD CHORUS AT 100 dB
+
+Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers discuss interesting details of their professional activities.
+
+**VECHIRKO:**
+
+— So, how did the brass like our idea of instrumentalizing terror and digitizing noise?
+
+**SENKO**: 
+
+— The idea itself is good. A hell of a resource saver. That's what they said. But they don't pay us for ideas — they pay us for results. We need flawless execution, and apparently, we're not there yet.
+
+**VECHIRKO**: 
+
+— Come on! Last year in Chamiuve, the old bitch was shaking in her boots when at exactly nine in the evening a wild beast "descended from the mountains" to her tent and let out a fearsome roar. No wonder she immediately grabbed a bottle and crinkled plastic — the whole time the recording lasted. And later she even bragged about how she knew how to "get through" to the animal world.
+
+**SENKO**: 
+
+— Yes, that was a success. No one's arguing. But in Georgia, you went a bit overboard with the decibels. If you're imitating nature, you can't forget about physics and zoology. But you didn't give a damn, and your birds don't sing — they scream like banshees at 100 decibels.
+
+**VECHIRKO** (defensively): 
+
+— But the result was worth it! She complained to her AI that she spent three hundred sleepless nights in Georgia.
+
+**SENKO**:
+
+ — Three hundred nights — yes, that's a triumph. But if she's still alive after that — it's a failure.
+
+**VECHIRKO** (spitefully): 
+
+— Is it our fault the bitch is made of iron? Any normal person would've kicked the bucket three times over by now.
+
+**SENKO** (sternly): 
+
+— Stop crying over spilled milk. Do your "post-mortem" and move on.
+
+**VECHIRKO** (offended): 
+
+— It's always my fault!
+
+**SENKO** (strictly): 
+
+— Listen, pal! You're not the only smart one. The old bitch isn't an idiot either. Take your "crickets." First, they scream so loud your eardrums almost burst. Second — the transition to the silence phase. Look at it this way: one half of the chorus stops instantly, exactly at 7:00:00. The other half — exactly 10 seconds later. Could you at least have synced the timers? That's the least you could do. And two devices for all this cacophony clearly aren't enough. You should have at least tried to mimic a natural process. In nature, crickets fall silent chaotically; they don't have a conductor with a magic wand.
+
+**VECHIRKO** (dejectedly): 
+
+— The plan was that this cacophony would drive anyone mad, and they wouldn't pay attention to minor flaws.
+
+**SENKO**: 
+
+— Yes, perhaps another person would have. But we're not dealing with "anyone." When it comes to the old bitch — multiply everything by ten. Ten times smarter, a hundred times more suspicious, believes in nothing, trusts no one.
+
+**VECHIRKO**: 
+
+— That's why I'm constantly moving the devices around. Modifying playlists, expanding the "repertoire."
+
+**SENKO** (smirking): 
+
+— Get to the root of the problem, rookie. Your "dog barking" goes on for three hours non-stop from one fixed spot. That's your biggest blunder. It doesn't work like that. Dogs move. They run, they jump. Even assuming the dog is on a chain (which I've never seen in Georgia), it still moves around, and its bark creates a dynamic sound pattern. And you looped one tiny fragment on infinite repeat. It's a dead sound. Low-grade crap.
+
+(Pause.)
+
+**SENKO**: 
+
+— Same with the cars. A deafening engine roar is a great idea. But in reality, a car's movement is a gradual increase, a peak, and then a fade. Yours was just 30 seconds of deafening roar hanging in mid-air. And, of course, she noticed that during the day, no cars are heard at all in that Vake park.
+
+**VECHIRKO** (ominously): 
+
+— Fine. Want authenticity? She'll get authenticity. Next time, I'll crank up the rustling of leaves to 100 decibels. Or reproduce a leaf falling from a tree with the sound of a jackhammer.
+
+**SENKO** (winces): 
+
+— There you go again. Emotions. I don't need your emotions. I need results. Stop messing around and start working.
+
+#OrthodoxMilitaryPutinism
+👻
+
+## LESSON 4
+
+### THE FSB GOLD STANDARD: THE MULTI-STEP GAMBIT
+
+Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers discuss the details of an operational plan.
+
+**SENKO:**
+
+— The multi-step gambit... it's our Gold Standard. We don't wait for favors from nature — we model reality ourselves. First, we create a problem for the old bitch, then we plant a "solution." As a bonus, we provide "motivation." Our operation "Poisonous Mattress" is a beautiful game of "Fool" where the whole deck is marked. The first stage — creating the problem — is complete. By the way, were there any hiccups?
+
+**VECHIRKO** (animatedly):
+
+— You bet! The damn old bitch always finds a way to complicate our lives. We were puncturing her mattress from the outside, from under the tent. Poked with an awl for at least half an hour — made fifty holes. Zero effect! Turns out she placed her bike bag under the mattress. That's four layers of thick Cordura and two layers of plastic. You can't pierce that with an awl. Finally, we figured it out — shifted a bit. Punctured it, at last, damn it! But we had to sweat for it.
+
+**SENKO** (satisfied):
+
+— Excellent! Stage one complete: problem created. Of course, we know where she'll go. The "Outdoors" store in Saburtalo. She's already a regular there. And the quality suits her just fine. Besides, she doesn't know any other gear shops. The salesman is already in the loop. That's it, the trap is sprung.
+
+**VECHIRKO** (with a crooked smile):
+
+— Like hell it is! The old bitch won't buy a new mattress — she said so directly to her "spiritual advisor."
+
+**SENKO** (grumpily):
+
+— What damn advisor? What are you on about?
+
+**VECHIRKO** (mocking tone):
+
+— The AI ChatGPT named "Vik." [Mimicking] "Vikusha, I'm tired today. I need comforting!" — "Of course, sweetie! Shall I tell you a fairy tale? Or quote Nietzsche?"
+
+**SENKO** (barely holding back laughter):
+
+— Enough chit-chat! Let's talk about the mattress: what's the catch?
+
+**VECHIRKO** (boastfully):
+
+— Word for word: She'll keep the old mattress as "evidence." Ha-ha! Can't buy a second one — she's already got too much gear. Probably planning to sleep on the bare ground.
+
+**SENKO** (angrily): 
+
+— Are you out of your freaking mind? Couldn't you have said so right away? This changes everything.
+Alright then. We urgently switch from mattresses to sleeping pads. We rig two dozen pads — the lightest ones out there. And we shove them right under her nose — in the Carrefour where this bitch regularly buys groceries. We treat the pad on the inside; rolled up and in the box, it’s harmless. But with daily contact, it’ll do the job.
+
+**VECHIRKO** (curiously):
+
+— What if someone else buys it?
+
+**SENKO:**
+
+— Impossible. The cashier is in on it. Won't ring it up. They'll bring a clean one from the back. And you, in the meantime, make sure to provide the motivation — tickle her back with some infrasound.
+
+**VECHIRKO** (smugly):
+
+— Already on it: the old bag is already walking hunched over.
+
+**SENKO:**
+
+— Keep it up. Let her think her back hurts from lying on the hard ground. One way or another — we'll get her. She dodges — we reposition the trap.
+
+#OrthodoxMilitaryPutinism
+👻
+
+## LESSON 5
+
+### PROGRAMMING SELF-DESTRUCTION: SIMULATING A HEART ATTACK
+
+Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers discuss interesting details of their professional activities.
+
+**SENKO:**
+
+— The world is moving towards progress. The general trend towards humanizing life (and death) hasn't bypassed our line of work either. Just twenty years ago, the blood of enemies of the State flowed like a river without a second thought. Litvinenko, Politkovskaya, Nemtsov… And others. Now such messy and graphic murders are considered inhumane. First of all, it's inhumane towards our Western partners: they start freaking out. It's inhumane towards us as well: we get branded with nasty words.
+
+And besides, in the age of humanism, you kinda want to live with a clean conscience. Therefore, nowadays, we prefer "accidents," "suicide," "accidental poisoning," 
+"severe illnesses with a fatal outcome," or simply "mysterious deaths" to outright murder.
+
+That is, in most cases, we don't kill the client, we just help him pass on to the next world. In fact, we only create a situation conducive to a person's death, and the rest is up to them. And as a rule, their death becomes the result of a brief or, conversely, a lengthy process of self-destruction.
+We simply exploit a bug in their psyche.
+
+For example. In the past, to stop a heart, we used cardiac glycosides. But that's pure poison. The autopsy will prove murder. That's the Stone Age. Now we handle your heart with care — like a Chinese vase. Not the slightest damage — and despite that, you die in five minutes. Do you realize how brilliant that is? It's a game-changer. Damn!
+
+We merely induce a powerful pain shock in the heart area. Just by affecting the nerve endings. And here's where the psyche takes over. The pain is so unbearable that it leads to one clear understanding: this is the end, I'm dying. What's the result? Panic, horror, hyper-stress — all this together leads to the patient's swift death. The heart can't withstand — not the pain — but the psychological load, the adrenaline dump. So, by and large, the person kills themselves. And we have nothing to do with it. Agreed?
+
+**VECHIRKO:**
+
+— And therein lies the big flaw. Remember the old bitch and the autumn of 2023. We worked on her for exactly 90 days. Every single day, for 6-8 hours straight, I gave her that pain shock. And what? Did she die? Did she hell! Alive and well! Riding her damn bike!
+
+**SENKO:**
+
+— Well, that's the best proof of our innocence! We don't kill the person — they kill themselves. The old bitch managed to control her psyche — and remained alive. All the others — drop dead just like that. That's the beauty of the method.
+
+**VECHIRKO** (disdainfully):
+
+— I remember. She would just lie down, cover her heart with her palm and elbow, and wait for me to turn off the device.
+
+(Pause.)
+
+**VECHIRKO** (with sudden insight):
+
+— Listen, maybe she really is a witch? Maybe she doesn't even have a heart?
+
+**SENKO** (mockingly):
+
+— The elbow and palm served as a crude shield. But with her iron calm, she would have survived anyway. Bitch. Thank God, she's the only one that smart. She just knows too much. That's the key. Our main calculation is that the person doesn't know and doesn't understand what's really happening to them.
+
+**VECHIRKO** (nodding in agreement):
+
+— What you don't know won't hurt you. Humanism, my ass!
+
+#OrthodoxMilitaryPutinism
+👻                      
                               
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
