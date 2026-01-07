@@ -1528,7 +1528,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 And besides, in the age of humanism, you kinda want to live with a clean conscience. Therefore, nowadays, we prefer "accidents," "suicide," "accidental poisoning," 
 "severe illnesses with a fatal outcome," or simply "mysterious deaths" to outright murder.
 
-That is, in most cases, we don't kill the client, we just help him pass on to the next world. In fact, we only create a situation conducive to a person's death, and the rest is up to them. And as a rule, their death becomes the result of a brief or, conversely, a lengthy process of self-destruction.
+That is, in most cases, we don't kill the client, we just help him pass on to the "better" world. In fact, we only create a situation that facilitates this transition, and the rest is up to them. And as a rule, their death becomes the result of a brief or, conversely, a lengthy process of self-destruction.
 We simply exploit a bug in their psyche.
 
 For example. In the past, to stop a heart, we used cardiac glycosides. But that's pure poison. The autopsy will prove murder. That's the Stone Age. Now we handle your heart with care — like a Chinese vase. Not the slightest damage — and despite that, you die in five minutes. Do you realize how brilliant that is? It's a game-changer. Damn!
