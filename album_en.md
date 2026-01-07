@@ -3219,13 +3219,21 @@ And besides, in the age of humanism, you kinda want to live with a clean conscie
 That is, in most cases, we don't kill the client, we just help him pass on to the "better" world. In fact, we only create a situation that facilitates this transition, and the rest is up to them. And as a rule, their death becomes the result of a brief or, conversely, a lengthy process of self-destruction.
 We simply exploit a bug in their psyche.
 
-For example. In the past, to stop a heart, we used cardiac glycosides. But that's pure poison. The autopsy will prove murder. That's the Stone Age. Now we handle your heart with care — like a Chinese vase. Not the slightest damage — and despite that, you die in five minutes. Do you realize how brilliant that is? It's a game-changer. Damn!
+For example. In the past, to stop a heart, we used cardiac glycosides. But that's pure poison. The autopsy will prove murder. That's the Stone Age. 
 
-We merely induce a powerful pain shock in the heart area. Just by affecting the nerve endings. And here's where the psyche takes over. The pain is so unbearable that it leads to one clear understanding: this is the end, I'm dying. What's the result? Panic, horror, hyper-stress — all this together leads to the patient's swift death. The heart can't withstand — not the pain — but the psychological load, the adrenaline dump. So, by and large, the person kills themselves. And we have nothing to do with it. Agreed?
+Nowadays, everything is done under the banner of humanism. We’re treating your heart with care — like a fine Ming vase. Not a single lesion, not a scratch on the myocardium — and yet, you burn out in five minutes. Do you realize how brilliant that is? It’s a breakthrough of truly cosmic proportions. Dammit!
+
+We simply create a localized flash of unbearable pain near the heart. Just by stimulating the nerve endings. But that’s when your worst enemy steps in — your psyche. The pain is so excruciating that the brain instantly delivers a verdict: "This is the end, I’m dying."
+
+At that moment, the body turns into a self-destruction machine. A cocktail is dumped into the bloodstream that makes any lab-made chemical look like child's play. Adrenaline flows in buckets, followed by cortisol, norepinephrine... The body tries to save itself, constricting vessels until they’re like steel guitar strings. Blood pressure skyrockets, the blood thickens, and the brain, in a panic, keeps screaming: "More!"
+
+In the end, the heart doesn't fail because of the pain — it just can't handle the frantic electrical storm and the chemical surge. It starts fluttering like a trapped bird — that’s called fibrillation — and then it just stops, "burnt out" by its own hormones. 
+
+See the trick? We don’t destroy anything ourselves. We just light a tiny spark — and the person panics and pours a gallon of gasoline on it, burning alive in the flames. It’s as simple as pie. We just hold the match, but you do the rest of the work of destroying yourself. With your own fear. Pure biology.
 
 **VECHIRKO:**
 
-— And therein lies the big flaw. Remember the old bitch and the autumn of 2023. We worked on her for exactly 90 days. Every single day, for 6-8 hours straight, I gave her that pain shock. And what? Did she die? Did she hell! Alive and well! Riding her damn bike!
+— There's another side to the coin. Remember the old bitch and the autumn of 2023. We worked on her for exactly 90 days. Every single day, for 6-8 hours straight, I gave her that pain shock. And what? Did she die? Did she hell! Alive and well! Riding her damn bike!
 
 **SENKO:**
 
