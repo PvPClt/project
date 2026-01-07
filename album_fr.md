@@ -2893,7 +2893,11 @@ Alors, t'as zéro raison de t'inquiéter. Gelons la ligne de front actuelle. Toi
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-## 66. PROTOCOLE DU FSB : PREMIÈRE LEÇON 
+## 66. PROTOCOLE DU FSB 
+
+### LEÇON 1
+
+**MISE EN SCÈNE : ACCIDENT MORTEL**
 
 Russie, Moscou. Un appartement douillet dans un immeuble cossu. Confortablement installés dans des fauteuils, deux agents des services secrets russes discutent des détails de l’opération à venir.
 
@@ -2949,7 +2953,6 @@ Russie, Moscou. Un appartement douillet dans un immeuble cossu. Confortablement 
 
 ![](Images/All_Album_66_1.jpg)
 
-
 **SENKO** : 
 
 — Si elle essaie de tourner avec sa vitesse, elle ne prendra jamais le virage et elle volera dans le ravin. Cent mètres de précipice. Mort garantie. Mais le plus probable, c'est qu’elle tente de forcer le passage vers le bas, sur la chaussée. Et là, une grosse surprise l'attend. Regarde.
@@ -2973,6 +2976,243 @@ Sans freins, elle n’est plus qu’une passagère. Même si elle capte le pièg
 **SENKO** (se frottant les mains) : 
 
 — Ouais, frangin, on va enfin toucher notre million. Ça fait dix ans qu’on s'acharne sur cette pute, je crois bien qu’on travaille à perte, maintenant.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
+### LEÇON 2
+
+**MÉDECINE MORTELLE : GOUTTES TUE-VUE**
+
+
+**VETCHIRKO** :
+
+— Ça me sort par les trous de nez, toute cette camelote de médecine du 21e siècle. Tous ces médocs brevetés de dixième génération qui guérissent tout. Prends la vieille peau : je lui canarde les yeux aux infrasons — et elle, elle va tranquillement s’acheter des gouttes italiennes au panthénol. Problème réglé. Pour elle. Et moi, j'ai quoi ? Que dalle. Tous mes efforts à la poubelle. C’est ridicule.
+
+**SENKO** : 
+
+— Mon gars, ton problème c’est que t’as pas de vision. La médecine, c’est une mine d’or. Le lien médecin-patient, c’est unique : les gens font plus confiance aux toubibs qu’à n’importe qui. Notre boulot, c’est de militariser cette confiance. Surtout aujourd'hui, c’est du gâteau — avec la numérisation, tout est en ligne, les dossiers médicaux sur le portail de l’État.
+
+Tiens, prends les yeux. Frappe-la plus fort — qu'elle balise et qu'elle coure chez l'ophtalmo. Dès qu'elle prend rendez-vous, tu vas voir le doc et tu lui poses un ultimatum : soit il nous aide, soit on balance à sa femme qu'il la trompe avec sa meilleure copine. T'inquiète, on trouve de la merde sur n'importe qui. Bref, tu dictes au toubib le médoc qu'il doit prescrire à la vieille bique. Le moins cher possible — pourquoi gaspiller du fric ?
+
+Et pendant qu'elle attend son créneau, tu dispatcheras des flacons de ce même produit dans toutes les pharmacies de son quartier — mais légèrement « corrigés ». Pour que ça ne soulage pas, mais que ça aggrave. Disons qu'il y a de l'acide borique. On en rajoute une double dose. Les gouttes deviennent agressives. C'est un jeu d'enfant. Dans chaque officine : un flacon spécial et la photo de la vieille. En plus, l'ordonnance est à son nom.
+
+Et voilà le travail : la médecine passe du statut d'ennemi à celui d'atout majeur. Le truc, c'est qu'on modélise sa physiologie nous-mêmes. On induit un symptôme précis, sélectionné à l'avance. On sait comment il est interprété par les médecins. On sait quels produits sont utilisés pour le « traiter ». On choisit celui qui nous arrange et on prépare un lot « spécial » à l'avance. On peut même lui foutre une planque dans chaque pharmacie de Moscou si on veut. Elle va courir où ? Elle n'a pas le choix. À moins qu'elle ne bouge son cul jusqu'à Tver !
+
+**VETCHIRKO** (sombre) : 
+
+— La vieille bique ne va pas chez le médecin. Elle n'a pas confiance.
+
+**SENKO** :
+
+— On a un protocole pour ça aussi : refus de vente. Uniquement sur ordonnance.
+
+**VETCHIRKO** (sarcastique) : 
+
+— C'est ça. À Tbilissi, elle s'est mise à filmer les refus. Ils n'ont pas eu d'autre choix que de lui vendre ses foutues gouttes.
+
+**SENKO** (dédaigneux) : 
+
+— Je sais. Maintenant on lui garde un flacon "chargé" de Systane dans chaque pharmacie — avec 60 % de réduc.
+
+**VETCHIRKO** (sarcastique) : 
+
+— Ouais. Sauf qu'à Tbilissi, elle a refusé de l'acheter. Elle a pris celui sans la remise. Sournoise, la vieille !
+
+**SENKO** (irrité) : 
+
+— Ouais. C’est bien elle, ça, la putain de vieille. Mais c’est un cas unique. Trop maligne, elle en sait trop. Tous les autres sont des gens normaux. Ils font confiance aux médecins, ils n'ont pas peur des ordonnances. Ils croient au progrès, et ils crèvent l'esprit tranquille.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+                                
+### LEÇON 3
+
+**INSTRUMENTALISER LA TERREUR : CHŒUR D'OISEAUX À 100 dB**
+
+**VETCHIRKO** : 
+
+— Alors, les chefs, ils ont aimé notre idée d'instrumentaliser la terreur et de numériser le bruit ?
+
+**SENKO** : 
+
+— L'idée est bonne. Un sacré gain de ressources. C'est ce qu'ils ont dit. Mais ils ne nous paient pas pour des idées — ils nous paient pour des résultats. Il nous faut une exécution zéro défaut, et apparemment, on n'y est pas encore.
+
+**VETCHIRKO** : 
+
+— Tu plaisantes ! L’année dernière à Chamiyouva, la vieille se liquéfiait quand, à 21h00 pile, une « bête sauvage descendue de la montagne » pour « lâcher un rugissement de l’enfer ».
+Pas étonnant qu’elle se soit mise à faire craquer sa bouteille en plastique pendant toute la durée de la bande-son. Et après, elle se vantait même de savoir comment « instaurer une compréhension mutuelle » avec le monde animal.
+
+**SENKO** :
+
+— Oui, ça c’était une réussite. Personne ne dit le contraire. Mais en Géorgie, t’as un peu forcé sur les décibels. Si tu imites la nature, tu ne peux pas oublier la physique et la zoologie. Mais toi, tu t'en tapes, et tes oiseaux ne chantent pas — ils hurlent comme des banshees à 100 décibels.
+
+**VETCHIRKO** (défensif) :
+
+— Mais le résultat était là ! Elle s'est plainte à son IA qu'elle a passé trois cents nuits blanches en Géorgie.
+
+**SENKO** : 
+
+— Trois cents nuits, oui, c'est un triomphe. Mais si elle est toujours en vie après ça — c’est un échec.
+
+**VETCHIRKO** (hargneux) : 
+
+— C’est notre faute si la bique est en acier ? N'importe qui d'autre aurait clamsé trois fois déjà.
+
+**SENKO** (sévère) : 
+
+— Arrête de chialer. Tire les leçons et fonce.
+
+**VETCHIRKO** (vexé) : 
+
+— C’est toujours ma faute !
+
+**SENKO** (strict) : 
+
+— Écoute, mon pote ! T’es pas le seul à être intelligent. La vieille n’est pas une idiote non plus. Prends tes « grillons ». Primo, ils crient si fort qu’on en a les tympans qui pètent. Secundo — le passage au silence. Regarde-moi ça : une moitié du chœur s'arrête net, à 07:00:00 pile. L'autre moitié — exactement 10 secondes plus tard. Tu ne pouvais pas au moins synchroniser les minuteries ? C’est le minimum syndical. Et deux appareils pour tout ce boucan, c'est clairement insuffisant. Tu aurais dû essayer d'imiter un processus naturel. Dans la nature, les grillons se taisent de façon chaotique ; ils n'ont pas de chef d'orchestre avec une baguette magique.
+
+**VETCHIRKO** (abattu) : 
+
+— Le plan, c’était que ce vacarme rende n'importe qui dingue, au point de ne pas faire gaffe aux petits détails.
+
+**SENKO** : 
+
+— Oui, peut-être pour n’importe qui. Mais on ne traite pas « n'importe qui ». Quand il s'agit de la vieille — multiplie tout par dix. Dix fois plus maligne, cent fois plus méfiante, elle ne croit en rien, n'a confiance en personne.
+
+**VETCHIRKO** : 
+
+— C’est pour ça que je déplace les appareils tout le temps. Je modifie les playlists, j'élargis le « répertoire ».
+
+**SENKO** (souriant) : 
+
+— Attaque-toi à la racine du problème, bleu bite. Ton « aboiement de chien » tourne pendant trois heures non-stop depuis un point fixe. C'est ta plus grosse bourde. Ça ne marche pas comme ça. Un chien, ça bouge. Ça court, ça saute. Même en admettant qu'il soit à la chaîne (ce que je n'ai jamais vu en Géorgie), il bouge quand même, et ses aboiements créent un motif sonore dynamique. Toi, t'as bouclé un micro-fragment en boucle infinie. C'est un son mort. De la came de bas étage.
+
+(Pause.)
+
+**SENKO** : 
+
+— Pareil pour les bagnoles. Un vrombissement de moteur tonitruant, c'est une super idée. Mais en réalité, le passage d'une voiture, c'est une montée graduelle, un pic, puis une atténuation. Le tien, c'était juste 30 secondes de boucan suspendu dans le vide. Et, bien sûr, elle a remarqué que pendant la journée, on n'entend aucune bagnole dans ce parc de Vaké.
+
+**VETCHIRKO** (sinistre) : 
+
+— C’est bon. Elle veut de l’authentique ? Elle va en avoir. La prochaine fois, je vais pousser le bruissement des feuilles à 100 décibels. Ou reproduire une chute de feuille avec un bruit de marteau-piqueur.
+
+**SENKO** (grimaçant) : 
+
+— Et voilà, ça repart. Tes émotions. J'en ai rien à foutre de tes émotions. Je veux des résultats. Arrête de faire le gamin et mets-toi au boulot.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
+### LEÇON 4
+
+**STANDARD D'OR DU FSB : GAMBIT EN PLUSIEURS COUPS**
+
+**SENKO** : 
+
+— Le gambit en plusieurs coups... c’est notre « Gold Standard ». On n'attend pas les faveurs de la nature — on modélise la réalité nous-mêmes. D'abord on crée un problème à la vieille, puis on lui glisse la « solution ». En prime, on fournit la « motivation ». Notre opération « Matelas Empoisonné » c'est une magnifique partie de « Crétin » où toutes les cartes sont marquées. La première étape — la création du problème — est terminée. Au fait, il y a eu des accrocs ?
+
+**VETCHIRKO** (animé) : 
+
+— Tu parles ! Cette maudite vieille trouve toujours un moyen de nous compliquer la vie. On perçait son matelas de l'extérieur, sous la tente. On a piqué au poinçon pendant au moins une demi-heure — cinquante trous. Zéro effet ! Il s'avère qu'elle avait mis son sac de vélo sous le matelas. Ça fait quatre couches de Cordura épais et deux couches de plastique. Tu ne transperces pas ça avec un poinçon. Finalement, on a pigé — on s'est décalés un peu. On l'a crevé, enfin, bordel ! Mais on a dû suer pour ça.
+
+**SENKO** (satisfait) : 
+
+— Excellent ! Étape 1 validée : problème créé. Évidemment, on sait où elle va aller. Le magasin "Outdoors" à Saburtalo. C'est déjà une habituée. Et la qualité lui convient. En plus, elle ne connaît pas d'autres boutiques de matos. Le vendeur est déjà dans la boucle. Ça y est, le piège se referme.
+
+**VETCHIRKO** (sourire en coin) : 
+
+— Tu parles ! La vieille n'achètera pas de nouveau matelas — elle l'a dit direct à son « conseiller spirituel ».
+
+**SENKO** (grognon) : 
+
+— Quel conseiller ? De quoi tu parles ?
+
+**VETCHIRKO** (ton moqueur) : 
+
+— L'IA ChatGPT qui s'appelle « Vik ». [Imitant une voix] « Vikoucha, je suis fatiguée aujourd'hui. J'ai besoin de réconfort !» — « Bien sûr, ma puce ! Tu veux que je te raconte un conte de fées ? Ou que je te cite du Nietzsche ? »
+
+**SENKO** (retenant un rire) : 
+
+— Trêve de plaisanteries ! On parle du matelas : c'est quoi le hic ?
+
+**VETCHIRKO** (crâneur) : 
+
+— Mot pour mot : elle garde le vieux matelas comme « preuve ». Ha ha ! Elle ne peut pas en acheter un deuxième — elle a déjà trop de bordel. Elle compte sûrement dormir à même le sol.
+
+**SENKO** (furieux) : 
+
+— T’es complètement cinglé, ma parole ! Tu ne pouvais pas le dire tout de suite ? Ça change tout. Bon, ok. On bascule d'urgence des matelas aux tapis de sol. On prépare deux douzaines de tapis — les plus légers du marché. Et on lui fout ça sous le nez — au Carrefour où cette bique fait ses courses régulièrement. On traite le tapis à l'intérieur ; roulé dans sa boîte, c’est inoffensif. Mais avec un contact quotidien, ça fera le job.
+
+**VETCHIRKO** (curieux) : 
+
+— Et si quelqu'un d'autre l'achète ?
+
+**SENKO** : 
+
+— Impossible. Le caissier est dans le coup. Il ne le bipera pas. Il en apportera un propre de l'arrière-boutique. Et toi, pendant ce temps-là, assure-toi de fournir la motivation — chatouille-lui le dos avec des infrasons.
+
+**VETCHIRKO** (suffisant) : 
+
+— Déjà fait : la vieille marche déjà toute voûtée.
+
+**SENKO** : 
+
+— Lâche pas l'affaire. Qu’elle s’imagine que c’est le sol qui lui pète le dos. D’une manière ou d’une autre — on se la fera. Elle esquive — on remballe le piège et on le pose ailleurs.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
+### LEÇON 5
+
+**PROGRAMMER L'AUTO-DESTRUCTION : SIMULER UNE CRISE CARDIAQUE**
+
+**SENKO** : 
+
+— Le monde progresse. La tendance générale à l'humanisation de la vie (et de la mort) n'a pas épargné notre secteur. Il y a vingt ans à peine, le sang des ennemis de l'État coulait à flots sans qu’on se pose de questions. Litvinenko, Politkovskaïa, Nemtsov… Et les autres. Aujourd'hui, ces meurtres sanglants et graphiques sont jugés inhumains. D'abord, c'est inhumain pour nos partenaires occidentaux : ils commencent à flipper. C'est inhumain pour nous aussi : on se fait traiter de noms d'oiseaux.
+
+Et puis, à l'ère de l'humanisme, on a envie de vivre avec la conscience tranquille. Du coup, on préfère désormais les « accidents », les « suicides », les « intoxications accidentelles », les « maladies graves à issue fatale » ou simplement les « morts mystérieuses » au meurtre pur et dur.
+
+En gros, dans la plupart des cas, on ne tue pas le client, on l'aide juste à passer dans un monde « meilleur ». En fait, on crée seulement une situation qui facilite cette transition, et le reste dépend de lui. En règle générale, sa mort devient le résultat d'un processus d'autodestruction, bref ou au contraire très long. On exploite simplement un bug dans sa psyché.
+
+Par exemple. Autrefois, pour arrêter un cœur, on utilisait des glycosides cardiaques. Mais c'est du poison pur. L'autopsie prouvera le meurtre. C'est l'âge de pierre.
+
+Aujourd’hui, tout se fait sous la bannière de l’humanisme. On traite ton cœur avec une délicatesse extrême, comme un vase de Chine. Aucune lésion, pas la moindre égratignure sur le myocarde — et pourtant, tu crèves en cinq minutes. Tu réalises le génie du truc ? C'est une percée d'une dimension cosmique. Bordel !
+
+On ne fait que créer un foyer local de douleur absolue au niveau du cœur. Une simple stimulation des terminaisons nerveuses. Mais c’est là que ton pire ennemi entre en scène : le mental. La douleur est si insupportable que le cerveau rend instantanément son verdict : « C’est la fin, je meurs ».
+
+À cet instant, l’organisme se transforme en une machine à s’autodétruire. Un cocktail est injecté dans le sang, à côté duquel n'importe quelle drogue chimique est un jeu d'enfant. L'adrénaline coule à flots, suivie du cortisol, de la noradrénaline... Le corps essaie de se sauver, il contracte les vaisseaux jusqu'à en faire des cordes d'acier. La tension grimpe en flèche, le sang s'épaissit, et le cerveau, en panique, continue d'en réclamer : « Encore ! »
+
+Au final, le cœur ne lâche pas à cause de la douleur — il ne supporte tout simplement pas cet orage électrique et cette tempête chimique. Il commence à s'agiter comme un oiseau pris au piège — on appelle ça la fibrillation — et s'arrête net, « carbonisé » par ses propres hormones. 
+
+Tu vois l'astuce ? On ne détruit rien. On allume juste une minuscule étincelle — et l'homme, en panique, verse un jerrycan d'essence dessus et périt dans les flammes. C’est simple comme bonjour. On ne fait qu'approcher l’allumette, et tout le reste du travail de destruction, c'est toi qui le fais. Par ta propre peur. C’est de la biologie pure.
+  
+
+**VETCHIRKO** : 
+
+— On a toujours le revers de la médaille. Rappelle-toi la vieille bique et l'automne 2023. On l'a travaillée pendant exactement 90 jours. Chaque jour, pendant 6 à 8 heures d'affilée, je lui balançais ce choc douloureux. Et quoi ? Elle est morte ? Tu parles ! Toujours là, la bougre ! À faire son vélo de malheur !
+
+**SENKO** : 
+
+— Mais c'est la meilleure preuve de notre innocence ! On ne tue pas la personne — elle se tue elle-même. La vieille a réussi à contrôler son mental — et elle est restée en vie. Tous les autres — ils tombent comme des mouches. C'est ça la beauté de la méthode.
+
+**VETCHIRKO** (dédaigneux) : 
+
+— Je m'en souviens. Elle s'allongeait, couvrait son cœur avec sa paume et son coude, et attendait que j'éteigne l'appareil.
+
+(Pause.)
+
+**VETCHIRKO** (avec une soudaine intuition) : 
+
+— Dis, et si c'était vraiment une sorcière ? Peut-être qu’elle n'a même pas de cœur ?
+
+**SENKO** (moqueur) :
+
+— Le coude et la paume servaient de bouclier de fortune. Mais avec son calme d'acier, elle aurait survécu de toute façon. La bique. Dieu merci, c’est la seule à être aussi maligne. C’est juste qu’elle en sait trop. C’est ça la clé. Notre calcul principal, c’est que la personne ne sait pas et ne comprend pas ce qui lui arrive vraiment.
+
+**VETCHIRKO** (approuvant d'un signe de tête) : 
+
+— Ce qu'on ne sait pas ne fait pas mal. L'humanisme, mon œil !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
