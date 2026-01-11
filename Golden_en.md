@@ -1238,7 +1238,7 @@ Come on, Vova! Don't be a stubborn prick! Let's sign the damn deal and be done w
 
 **This thirteenth play stands outside the numbering. Here, literature borders on the protocol: every word is confirmed by the real experience of survival. Satire is merely the setting. The essence is the testimony**.
                             
-## 66. FSB PLAYBOOK
+## FSB PLAYBOOK
 
 ### FSB PLAYBOOK, LESSON 1
 
