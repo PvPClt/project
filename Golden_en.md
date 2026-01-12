@@ -1839,6 +1839,108 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 
 #OrthodoxMilitaryPutinism 👻
 
+### FSB HANDBOOK, LESSON 8
+
+**OFF-DUTY ENTERTAINMENT**
+
+Moscow, Russia. A cozy high-rise apartment. Two glasses and a bottle of top-shelf cognac on the table. Kicking back in their leather armchairs, two Russian intelligence officers are shooting the breeze.
+
+**VECHIRKO**:
+
+— I gotta tell you, Senko, I miss her body. Damn shame she bolted. Harder to get to her now that she’s across the border.
+
+**SENKO**: 
+
+— Tell me about it.
+
+**VECHIRKO**: 
+
+— So, come on — what was your favorite sweet spot? Your go-to pain point?
+
+**SENKO**: 
+
+— A "point"? You gotta be kidding me. I loved the whole damn package, from her toes to the top of her skull. Torturing her. Systematically breaking her. I loved every second of agonizing her, pushing her to the edge of a goddamn nervous breakdown until she lost her mind. I wanted to drive her to the point of suicide, just to watch her pull the trigger on herself. Honestly? Inflicting that kind of pain gave me a bigger rush than my wife ever did in bed.
+
+(Pause.)
+
+**SENKO**: 
+
+— This is the ultimate way to own a woman, Vechirko. Sex is a joke. Pumping some friction into a hole — you call that "possession"? The priests say, "Adam knew Eve." The hell did he know? He stuck it in, that’s it. But I knew her every nerve ending. I owned her body. I became the master of that flesh. That’s the peak of dominance, Vechirko. Patriarchy in its purest goddamn form.
+
+**VECHIRKO**: 
+
+— Yeah, but there had to be one favorite. Don’t lie to me, I won't buy it.
+
+**SENKO** (thinks for a second): 
+
+— The hip joint. Calling it a "point" doesn't do it justice. The hip is the heavy hitter. It’s not just the agony; it’s the inevitable surgery — getting that bone swapped for a piece of hardware. Three or four months of steady infrasound, and she’s done.
+
+**VECHIRKO**: 
+
+— I don’t recall the old hag going under the knife, though.
+
+**SENKO** (bitterly): 
+
+— She dodged the surgery, somehow. But I still got my kicks. I loved watching her drop like a stone when the beam clipped her hip. Pure gold. If the bitch hadn't bolted every time she felt a hit coming, she’d be full of scrap metal by now.
+
+**VECHIRKO**: 
+
+— True. The visuals are everything. When Oksana dumped me, I walked it off pretty easy. I’d spend hours lighting the old bitch up with infrasound, and — get this — watching her suffer actually took the edge off my own pain. You’re right, it’s better than sex. If you just need to get off, you can jerk it. But as far as a man’s relationship with a woman in society goes? I prefer her as an "object," not a person.
+
+**SENKO**: 
+
+— Remember what Lenin said? "Cinema is our most important tool for the soul." With that hag, I had a private screening every night. Better than any action flick.
+
+**VECHIRKO**: 
+
+— Hell yeah. And it’s interactive. I remember one time I paralyzed her fingers just as she was yanking on a heavy iron door. Her grip just vanished, and she went head-first onto the asphalt. Gravity and momentum did the rest. She dropped like a ragdoll. Man, in moments like that... you get this jolt. Like a goddamn orgasm.
+
+**SENKO**: 
+
+— What about you? What was your favorite spot?
+
+**VECHIRKO** (dreamily): 
+
+— The feet. From the tips of the toes to the ankles. False immune response — man, I love that little routine. It’s pure magic, Senko. She’s not allergic to a thing, but I give her a reaction that doesn't even exist in nature. Instant. Brutal. You just trigger the mast cells to dump everything at once. From there, it’s a landslide. In fifteen minutes, her feet swell up like two massive loaves of bread, glowing neon red with inflammation. She spends all night tossing and turning, moaning, kicking her legs, can't sleep a wink. And the next morning? She can’t even stand. I’m dying laughing watching her crawl around the apartment on all fours.
+
+**SENKO**: 
+
+— Tell me about how you raped her for six months straight.
+
+**VECHIRKO** (grinning): 
+
+— Total cakewalk. Just dialed the beam right into the crotch. I bet girls getting the real thing don’t feel half that much pain. Especially for six months straight.
+
+**SENKO**: 
+
+— And she took it for half a year? Never saw a doctor?
+
+**VECHIRKO**: 
+
+— Nope. She knew it was me. She even tried sewing herself some lead-lined panties. Fat lot of good that did her.
+
+**SENKO**: 
+
+— Give me another funny one.
+
+**VECHIRKO**: 
+
+— Right before she left for Turkey, she started sewing a cover for her bike. That night, I gave her fingers a little zap. Right hand. Her arm didn’t even hurt, but when she tried to grab her coffee, the mug just hit the floor. You should've seen her face when she couldn't even hold a sewing needle between her thumb and forefinger. Priceless. The best part is that look of pure, dumbfounded shock.
+
+**SENKO**: 
+
+— Yeah, brother. Those were the days.
+
+**VECHIRKO**: 
+
+— Honestly, once we finally put her in the ground... I’m gonna miss her.
+
+**SENKO**: 
+
+— Me too. Well, a million bucks is a million bucks. You gotta choose: the hobby or the villa in Dubai. You can’t have your cake and eat it too.
+
+#OrthodoxMilitaryPutinism 👻
+
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
