@@ -1,9 +1,6 @@
 [**Full Version of the Project**](index.md)
 
-
-**Shcheglova Olga (Boris Bidyaga)**
-
-# Encyclopedia of Orthodox Military Putinism: The “Golden Dozen” Dossier
+# The “Golden Dozen”: 12 Top Miniatures 
 
 #### **Diagnostic Foreword: Satire as a Method of Political Autopsy**
 
