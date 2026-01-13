@@ -27,7 +27,7 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 **CONTENTS**:
 
-[**Golden Dozen: 12 Top Miniatures**](Golden_en.md) 
+[**"Golden Dozen": 12 Top Miniatures**](Golden_en.md) 
 
 [**Big Album of satirical miniatures "Ward №666"**](album_en.md)
 
@@ -52,7 +52,7 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 **SOMMAIRE** :
 
-[**La Douzaine d'Or : 12 Top miniatures**](Golden_fr.md) 
+[**« La Douzaine d'Or » : 12 Top miniatures**](Golden_fr.md) 
 
 [**Grand Album de miniatures satiriques « Chambre n°666 »**](album_fr.md) 
 
@@ -77,7 +77,7 @@ ________________________________________________________________________________
 
 **ЗМІСТ**:
 
-[**Золота Дюжина: 12 вибраних мініатюр**](Golden_ua.md) 
+[**"Золота Дюжина": 12 вибраних мініатюр**](Golden_ua.md) 
 
 [**Великий Альбом сатиричних мініатюр «Палата №666»**](album_ua.md) 
 
@@ -102,7 +102,7 @@ ________________________________________________________________________________
 
 **ОГЛАВЛЕНИЕ**:
 
-[**Золотая дюжина: 12 избранных миниатюр**](Golden_ru.md)
+[**"Золотая дюжина": 12 избранных миниатюр**](Golden_ru.md)
 
 [**Большой Альбом сатирических миниатюр «Палата №666»**](album_ru.md) 
 
