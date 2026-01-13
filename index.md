@@ -1,6 +1,6 @@
 ![](Images/Cover_Project.jpg)
 
-## 🇬🇧 ENGLISH 
+## 🇬🇧 ENGLISH
 
 [**ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM**](#encyclopedia-of-orthodox-military-putinism)
 
