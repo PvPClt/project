@@ -6,7 +6,7 @@
 
 ## 🇫🇷 FRANÇAIS
 
-[**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#l'encyclopédie-du-poutinisme-militaire-orthodoxe)
+[**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#lencyclopédie-du-poutinisme-militaire-orthodoxe)
 
 ## 🇷🇺 РУССКИЙ 
 
@@ -14,8 +14,10 @@
 
 ## 🇺🇦 УКРАЇНСЬКА
 
-[**ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#энциклопедия-православного-воєнного-путiнiзму)
-____________________________________________________
+[**ЕНЦИКЛОПЕДІЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#енциклопедия-православного-воєнного-путiнiзму)
+
+____________________________________________________________________________________________________________________
+
 
 ## ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 
@@ -31,13 +33,15 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 [**Satirical mini-play "Rising Off Her Knees"**](play_en.md) 
 
-[** Documentary thriller ”FSB Playbook"**](fsb_en.md) 
+[**Documentary thriller ”FSB Playbook"**](fsb_en.md) 
 
 [**The Anatomy of Putin's "Traditional Values", analytical article**](values_en.md) 
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**About the Author**](en_author)
+
+____________________________________________________________________________________________________________________
 
 
 ## L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE
@@ -62,6 +66,8 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 [**À propos de l'Auteure**](fr_author)
 
+____________________________________________________________________________________________________________________
+
 
 ## ЕНЦИКЛОПЕДІЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТІНІЗМУ
 
@@ -84,6 +90,8 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 [**Перелік благодійних фондів на допомогу Україні**](ua_funds)
 
 [**Про Автора**](ua_author)
+
+____________________________________________________________________________________________________________________
 
 
 ## ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЕННОГО ПУТИНИЗМА 
