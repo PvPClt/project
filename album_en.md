@@ -1,4 +1,4 @@
-**Shcheglova Olga (Boris Bidyaga)**
+[**Main page**](index.md)
 
 # 🇬🇧 BIG ALBUM OF SATIRICAL MINIATURES "WARD №666"
 
