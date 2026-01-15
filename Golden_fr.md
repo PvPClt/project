@@ -28,7 +28,7 @@ Voici ci-dessous la Douzaine d'Or — douze miniatures diagnostiques clés. Elle
 
 [3. Une tête coiffée d'un chapeau, l'autre qui gouverne le pays](Golden_fr.md#3-une-tête-coiffée-dun-chapeau-lautre-qui-gouverne-le-pays)
 
-[4. Les frasques Nobel](Golden_fr.md#4-les-frasques-nobel)
+[4. Certificat de maturité sexuelle](Golden_fr.md#4-certificat-de-maturité-sexuelle)
 
 [5. L'immortalité merdique](Golden_fr.md#5-limmortalité-merdique)
 
@@ -44,7 +44,7 @@ Voici ci-dessous la Douzaine d'Or — douze miniatures diagnostiques clés. Elle
 
 [11. « Conversations sur l’essentiel »](Golden_fr.md#11--conversations-sur-lessentiel-)
 
-[12. Heureux les artisans de paix...](Golden_fr.md#12-heureux-les-artisans-de-paix)
+[12. Sur un cabanon, c’est écrit aussi...](Golden_fr.md#12-sur-un-cabanon-cest-écrit-aussi)
 
 
 ## 1. LE NOUVEAU TESTAMENT SUPERNOVAIRE
@@ -128,94 +128,25 @@ Nous allons ressusciter notre grande puissance et notre grande « deuxième arm�
                                 👻
                                 
 
-## 4. LES FRASQUES NOBEL
+## 4. CERTIFICAT DE MATURITÉ SEXUELLE
 
-![](Images/Fr_Album_001.jpg)
+![](Images/Fr_Album_49.jpg)
 
-Bar américain. Le président russe Vladimir Poutine et le président américain Donald Trump, attablés, bière à la main.
+École, ville russe.
+Cours : « Éducation familiale ».
+Au tableau : la courbe de natalité en Russie.
 
-**Trump** :
+**Élève** :
 
-— Vova, depuis que t'as réglé le cas Navalny, ton prétoire politique est tranquille comme Baptiste. Du billard. Que du bonheur.
+— Je ne me souviens pas…
 
-**Poutine** :
+**Professeure** :
 
-— Arrête ton charre. Navalny ? Un moins que rien. Du vent. Un bateleur.
-
-**Trump** :
-
-— Alors pourquoi t'as démantelé toute son organisation ? Pour un moins que rien ?
-
-**Poutine** :
-
-— Écoute-moi bien, Donny. Navalny, il n'avait aucun programme. Il se contentait de rassembler des gamins dans la rue pour qu'ils braillent des insultes à mon encontre. Tu appelles ça un projet de société ?
-Prends Lénine, lui : les usines aux ouvriers, la terre aux paysans. Ça, c'était un vrai programme. Lui ? Que des crachats. C'est d'un vulgaire.
-
-**Trump** :
-
-— Ouais, c'est con. Un vrai petit arriviste.
-
-**Poutine** :
-
-— Exact. De toute ma carrière, un seul homme m'a vraiment donné des sueurs froides : Boris Nemtsov. Un vrai politicien. Qui savait ce qu'il faisait.
-
-**Trump** :
-
-— Et du coup, tu l'as buté pour qu'il ne se présente pas ?
-
-**Poutine** (ricanement) :
-
-— Non. On ne l'aurait de toute façon pas laissé se présenter — la commission électorale s'en serait occupée. Et pour info, ce n'est pas moi qui ai donné cet ordre.
-
-**Trump** :
-
-— Mais enfin, Vova. Tout le monde sait que c'étaient tes services.
-
-**Poutine** :
-
-— On ne fait plus dans le spectacle sanglant. C’est d’un autre temps. À quoi bon les scandales et les flaques de sang quand on peut faire disparaître n'importe qui… proprement. En silence. N'importe qui. Même un président américain.
-
-**Trump** (se tortille sur sa chaise) :
-
-— Hé, doucement, Vova, cette guerre, c’est pas la mienne ! C’est du Biden, tout ça. Et moi, tu le sais, je suis ton pote. Ton pote.
-
-**Poutine** (avec un sourire narquois) :
-
-— Oui, oui. Je sais. Je te vois serpenter, jouer double jeu.
-
-**Trump** (se justifiant) :
-
-— Vova, je te jure, j’ai rien contre toi, perso. Franchement, je te comprends même. C’est juste que… je veux le Nobel !
-
-**Poutine** (réfléchit à voix haute) :
-
-— Un désir des plus légitimes. Je pense aussi… Pourquoi pas moi ?
-Pourquoi ne prendrais-je pas le Nobel ? L’année prochaine, par exemple.
-
-**Trump** (les yeux exorbités de surprise) :
-
-— Toi ?!
-
-**Poutine** (avec condescendance) :
-
-— Donny, tout le monde a son prix. Certains coûtent moins cher que d’autres. Et quand ce n’est pas le cas… il y a d’autres méthodes. Menaces, kompromat, chantage… La machine est bien huilée.
-
-(Un lourd silence s’installe.) 
-
-**Poutine** (avec un sourire ironique et froid) :
-
-—  Tu sais, le Nobel irait encore mieux sur ma poitrine que sur la tienne. Imagine les gros titres : « Poutine, criminel de guerre et lauréat Nobel ». C'est la preuve ultime de mon pouvoir sans limites sur le monde. C'est même plus cool que mon armée aux portes de Paris ! Voilà comment mettre cette Europe lâche à genoux et la baiser à fond !
-
-**Trump** (prudemment) :
-
-— Vova, et si… je prenais le Nobel d’abord... Et après tu peux faire ce que tu veux de cette Europe lâche. D’accord ?
-
-**Poutine** (geste las de la main) :
-
-— D'accord, soit. Toi d’abord, Donny. D’ailleurs, avant le Nobel, il faut déjà que je sois arrivé à Kiev…
+— Tu n’as pas révisé la leçon ? Ce n’est pas grave. Va, ma chérie, fais un enfant, et tu auras 20/20 ! Si tu as des jumeaux, on comptera cela comme un TP d’anatomie. Avec des triplés, tu recevras ton diplôme de fin d’études par anticipation. Tu n’auras même plus besoin de venir à l’école.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
+
 
 ## 5. L'IMMORTALITÉ MERDIQUE  
 
@@ -1183,68 +1114,24 @@ Cours spécial : « Conversations sur l’essentiel »
                                 👻
                                 
 
-## 12. HEUREUX LES ARTISANS DE PAIX...
+## 12. SUR UN CABANON, C’EST ÉCRIT AUSSI...
 
-![](Images/All_Album_65.jpg)
+![](Images/Fr_Album_34.jpg)
 
-Un bar américain. Le président russe Vladimir Poutine et le président américain Donald Trump attablés, bières à la main.
+Aérodrome militaire russe.
+Dialogue entre un pilote russe et un journaliste ukrainien.
 
-**Trump** :
+**Ukrainien** :
 
-— Cette histoire d'Ukraine, elle me reste sur l'estomac, je te jure. Une vraie boulette. Je commence presque à regretter de m'être fourré dans votre petite guéguerre. Mon mandat se termine, et si je n'accroche pas le Nobel de la Paix d'ici là, je deviendrai le président le plus « nul » et le plus « haï » de l'histoire des États-Unis. Le fiasco total.
+— Pourquoi avoir bombardé le théâtre dramatique de Marioupol ? Il y avait écrit en grand : « ENFANTS ! »
 
-(Un temps)
+**Pilote** :
 
-**Trump (sur le ton de la confidence)** :
-
-— Allez, Vova, fais-moi ce plaisir. J'ai mis tous tes points dans l'accord, tous sans exception. Pote, signons ce traité de paix ! C'est un deal en or pour toi. Et pour moi ? C'est la gloire, enfin. Celle que je mérite.
-
-**Poutine (froid, détaché)** :
-
-— Donnie, moi aussi j'ai une image à sauver. Il me faut le Donbass. Je l'ai déjà ficelé dans la Constitution, territoire russe légitime. Et puis, j'ai lâché un million de vies pour ce foutu Donbass. Il faut que je le serve sur un plateau à mon électorat. Le Donbass, c'est la victoire. Pas de Donbass — pas de victoire. Et tous ces morts, ce sera pour des prunes.
-
-**Trump (baissant la voix, complice)** :
-
-— Écoute, Vova, rien ne t'empêche de relancer la machine dans deux ou trois ans... mais seulement quand je serai parti ! Tu montes un coup : une attaque ukrainienne sur ta residence. Dans la région de Tver, au fin fond d'une réserve. Mais fais-le proprement. Si tu accuses, il faut des preuves solides. Le Reichstag doit vraiment flamber. Fais décoller des drones depuis leur territoire. Craque ton palais préféré, et pour faire bonne mesure, crampe cent hectares de forêt ancienne avec. Montre aux journalistes des bestioles rares du Livre Rouge, bien carbonisées. Bref, fabrique-nous un casus belli qui tienne la route.
-
-**Poutine (dubitatif)** :
-
-— Oui, mais tu donnes des garanties de sécurité à l'Ukraine. Si des journalistes un peu trop curieux grattent et découvrent la mise en scène, l'OTAN pourrait me sortir l'Article 5.
-
-(Un silence)
-
-**Poutine (d'un ton qui ne discute pas)** :
-
-— Il me faut des garanties d'impunité, Donnie. Réelles.
-
-**Trump (acquiesçant d'un hochement de tête)** :
-
-— Évidemment. Et tu les as déjà, Vova. Les garanties les plus fiables, ce ne sont pas les bouts de papier ; c'est la parole d'honneur entre deux gentlemen.
-
-Vova, repense à l'après-URSS. L'Ukraine avait des « garanties en béton », non ? Et qu'est-ce qui s'est passé ? Quelqu'un l'a protégée de toi ? Personne. Alors pourquoi des nouvelles « garanties » marcheraient différemment ? Moi, personnellement, je ne mettrai jamais les pieds dans ta baston avec l'Ukraine. Surtout si tu « brûles ton Reichstag ». Regarde Obama, regarde Biden — ils flippaient à l'idée d'un conflit ouvert avec la Russie. Les States ne se battront jamais si leurs propres intérêts ne sont pas en jeu.
-
-**Poutine (sceptique)** :
-
-— Et l'Europe ?
-
-**Trump (avec mépris)** :
-
-— L'Europe ?! Ne me fais pas rire. 
-Ils n'iront jamais se jeter dans la gueule du loup. Surtout depuis que tu as montré ta stratégie gagnante : noyer l'ennemi sous les corps de tes soldats. En Europe, ils ont une sensiblerie sur la vie humaine. Pour les armes, ils ne les enverront aux Ukrainiens que jusqu'à ce qu'ils aient rebâti leur propre défense. Tu crois qu'ils le font par bonté d'âme ? Tu déconnes ?  Ils veulent que l'Ukraine fasse écran. Qu'elle garde leurs frontières au prix de sa propre peau.
-
-Alors, t'as zéro raison de t'inquiéter. Gelons la ligne de front actuelle. Toi, tu as un besoin urgent de souffler et de moderniser ton matos. Et puis, ta propre économie tire la langue. Dans deux ans, tu reviens avec des forces neuves.
-
-**Poutine** :
-
-— Et je dis quoi à mon peuple ?
-
-**Trump** :
-
-— Quoi, tu dis ? Que les objectifs de l'opération spéciale — dénazification et démilitarisation — sont atteints. Le Donbass est « pratiquement intégralement » libéré. Ne te perds pas dans les chiffres. « Pratiquement intégralement », ça sonne triomphal. Les droits des russophones sont garantis. Quelle défaite ? De quoi tu parles ? C'est une victoire incontestable. Phase Un. Ensuite, une fois que j'aurai mon Nobel et que je serai sorti, tu pourras aller chercher la victoire totale, finale. Allez, Vova ! Fais pas ton malin, accepte le deal !
+— Sur un cabanon, c’est écrit aussi « Bite » — et dedans, il n’y a que du bois de chauffage !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
-  
+
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
