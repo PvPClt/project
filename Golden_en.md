@@ -1,6 +1,6 @@
 [**Full Version of the Project**](index.md)
 
-# The “Golden Dozen”: 12 Top Miniatures 
+# The “Golden Dozen”: 12 Top Miniatures
 
 #### **Diagnostic Foreword: Satire as a Method of Political Autopsy**
 
