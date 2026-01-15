@@ -1,6 +1,6 @@
 [**Version complète du projet**](index.md) 
 
-# La Douzaine d'Or : 12 Top miniatures
+# La Douzaine d'Or : 12 Top miniatures 
 
 #### **Préface Diagnostique : La satire comme méthode d'autopsie politique**
 
