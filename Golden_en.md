@@ -26,7 +26,7 @@ Below you will find **The Golden Dozen** — twelve key diagnostic miniatures. T
 
 [3. One Head for Crown, the Other Rules the Country](Golden_en.md#3-one-head-for-crown-the-other-rules-the-country)
 
-[4. Nobel Capers](Golden_en.md#4-nobel-capers)
+[4. Diploma of Puberty](Golden_en.md#4-diploma-of-puberty)
 
 [5. Shitty Immortality](Golden_en.md#5-shitty-immortality)
 
@@ -42,7 +42,7 @@ Below you will find **The Golden Dozen** — twelve key diagnostic miniatures. T
 
 [11. "Conversations about Important Things"](Golden_en.md#11-conversations-about-important-things)
 
-[12. Blessed are the Peacemakers...](Golden_en.md#12-blessed-are-the-peacemakers)
+[12. Barn has Writings Too...](Golden_en.md#12-barn-has-writings-too)
 
 
 ## 1. THE SUPERNOVUS COVENANT
@@ -125,94 +125,23 @@ We will revive our great country and our great "second army of the world." Moreo
                               👻
 
 
-## 4. NOBEL CAPERS
+## 4. DIPLOMA OF PUBERTY
 
-![](Images/En_Album_001.jpg)
+![](Images/En_Album_49.jpg)
 
-American bar.
-Russian President Vladimir Putin and US President Donald Trump at table, drinking beer.
+School in Russia, Family studies class. Diagram of Russia’s birth rate on blackboard.
 
-**Trump**:
+**Student:**
 
-— Vova, after you took care of Navalny, your political scene is a total cakewalk. Smooth sailing. God's in his heaven, all's right with the world.
+— I don’t remember the lesson...
 
-**Putin**:
+**Teacher:**
 
-— Don't be naive. Navalny was a nobody. All talk, no action. A glorified blogger.
-
-**Trump**:
-
-— Then why'd you have to wipe his whole organization off the map? For a nobody?
-
-**Putin**:
-
-— Donny, use your head. The man had no platform. Just a bunch of kids in the streets chanting curses at me. Is that a policy? Look at Lenin — now *that* was an agenda: factories for the workers, land for the peasants. This clown? Just insults. It's... tasteless.
-
-**Trump**:
-
-— Yeah, stupid. A real amateur.
-
-**Putin**:
-
-— Precisely. In my entire career, only one man ever truly worried me — Boris Nemtsov. A real politician. Knew what he was doing.
-
-**Trump**:
-
-— So you had him whacked so he wouldn't run?
-
-**Putin** (scoffs):
-
-—  No. We wouldn't have let him run anyway — the election commission would've seen to that. And for the record, I didn't give that order.
-
-**Trump**:
-
-— But come on, Vova. Everyone knows it was your security guys.
-
-**Putin**:
-
-— We don't do messy public spectacles anymore. That's last century's playbook. Why the drama and the headlines when you can make anyone... disappear? Quietly. Neatly. Anyone. Even a U.S. President.
-
-**Trump** (shifting uncomfortably):
-
-— Whoa, Vova, that's not my war! That's all on Biden. And you know I'm your friend. You know that.
-
-**Putin** (in a mocking tone):
-
-— I know. I see you twisting in the wind, playing both sides.
-
-**Trump** (defensively):
-
-— Vova, I swear on my life, I got nothing against you personally. Hell, I even get where you're coming from. I just... I want that Nobel!
-
-**Putin** (musing aloud):
-
-— A perfectly understandable ambition. I've been thinking... why shouldn't I have one? Next year, perhaps.
-
-**Trump** (eyes popping):
-
-— You?!
-
-**Putin** (condescendingly):
-
-—  Donny, everyone has a price. Some are just cheaper than others. And if that doesn't work... well, there are other levers. Threats, kompromat, blackmail... The machine is very, very efficient.
-
-(A heavy pause hangs in the air)
-
-**Putin** (with an ironic smile):
-
-— You know, a Nobel would look even better on my chest than on yours. Just think of the headline: "War Criminal Putin, Nobel Laureate." That is the ultimate  proof of my power over the world. It's even cooler than my army at the gates of Paris! That's how you bend this cowardly Europe over and fuck it good and proper!
-
-**Trump** (nervously):
-
-— Hey, Vova, how about... I get the Nobel first, then you can do whatever you want with this cowardly Europe. Deal?
-
-**Putin** (waves a dismissive hand):
-
-— Fine. You first, Donny. Besides, I've got to get to Kyiv before I start collecting prizes...
+— Didn’t study for the test? Don’t worry! Go have a baby, dear — you’ll get an A! If you have twins, we’ll call it your anatomy practicum. Triplets — and you can graduate on the spot. No more school for you.
 
 #OrthodoxMilitaryPutinism
-                              👻
-
+                                👻
+                                
 ## 5. SHITTY IMMORTALITY
 
 ![](Images/En_Album_57.jpg)
@@ -1168,72 +1097,27 @@ School, Russian town. Lesson: "Conversations About Important Things".
                                 👻
                                 
 
-## 12. BLESSED ARE THE PEACEMAKERS...
+## 12. BARN HAS WRITINGS TOO...
 
-![](Images/All_Album_65.jpg)
+![](Images/En_Album_34.jpg)
 
-American bar. Russian President Vladimir Putin and U.S. President Donald Trump at table, drinking beer.
+Russian military airfield.
+Dialogue between Russian pilot and Ukrainian journalist.
 
-**Trump**:
+**Ukrainian:**
 
-— This whole Ukraine mess is a total pain in my ass. Honestly, I almost wish I’d never gotten involved in your little spat. My time’s running out, and if I don’t snag a Nobel Peace Prize by then? They’ll call me the biggest loser, the most hated president ever. Total disaster.
+— Why did you bomb the Mariupol Drama Theater? It was written loud and clear: “CHILDREN!”
 
-(Pause)
+**Pilot:**
 
-**Trump (pleading):**
-
-— Come on, Vova, why won't you help me out? I put every single point you asked for in the deal. Buddy, let's just sign this peace treaty already! It's a hell of a deal for you. And the best part? It gets me the glory I deserve.
-
-**Putin (indifferently):**
-
-— Donnie, I've got my own image to worry about. I need the Donbas, don't you get it? I've already enshrined it in the Constitution as legitimate Russian territory. And let's not forget: I've spilled a river of blood for that goddamn Donbas. I need to hand it to my voters on a silver platter. No Donbas, no victory. And that means every single sacrifice in this bloody war was for nothing.
-
-**Trump (lowering his voice):**
-
-— Listen, Vova, nothing's stopping you from picking this up again in a couple of years — just wait until I'm out, okay? Stage a Ukrainian attack on your residence. Out in Tver, in the nature reserve. But make it look good. If you’re gonna cry wolf, show a real wolf. The *Reichstag’s* gotta burn for real. Launch the drones from their side. Burn your favorite palace to the ground, take out a hundred hectares of ancient forest while you're at it. Show the cameras some dead endangered animals. Give people a story they can believe. A top-shelf casus belli.
-
-**Putin (doubtfully):**
-
-— But you're giving Ukraine security guarantees. If some nosy journalist digs it up and finds out it's a total setup, NATO could invoke Article 5 against me.
-
-(Pause.)
-
-**Putin (firmly):**
-
-— I need ironclad guarantees, Donnie. Guarantees of impunity.
-
-**Trump (nodding in agreement):**
-
-— Of course. And you've got 'em, Vova. The best guarantees aren't the ones signed on paper; the best ones are a gentleman's handshake.
-Just think back, Vova. After the USSR fell apart, Ukraine got "ironclad guarantees," right? And what happened? Did anyone lift a finger when you moved in? Hell no. So why would new "guarantees" be any different? Me? I won't get involved in your scrap with Ukraine no matter what. Especially if you put on a convincing enough show. Look at Obama, look at Biden — they were scared shitless of an open fight with Russia. America doesn’t go to war unless our interests are at stake.
-
-**Putin (skeptically):**
-
-— And Europe?
-
-**Trump (contemptuously):**
-
-— Europe? Give me a break. They’re not jumping into the fire. Not after you showed them your playbook: just throw more bodies at the problem. Mountains of corpses. The very sight of it makes Europe shake in its boots. Over there, they’re obsessed with human life. As for sending weapons, they'll keep feeding them to Ukraine just long enough to rebuild their own defenses. Did you think they're doing it out of the goodness of their hearts? Yeah, right. They're doing it so Ukraine takes the bullet for them. Guards Europe's border with its own blood.
-
-So you've got zero reason to worry. Let's freeze the conflict along the current front line. For now. You take a breather and modernize your hardware. Your own economy's on its last legs! And in a couple of years, you come back with fresh troops.
-
-**Putin:**
-
-— And what do I tell my people?
-
-**Trump:**
-
-— What’s to tell? Mission accomplished. Denazification, demilitarization — done. The Donbas is "practically fully" liberated. Don't sweat the numbers. "Practically fully" sounds like a triumph. The rights of Russian speakers? Protected. What defeat? What are you talking about? It's a clear victory. Phase one. Then, after I get my Nobel and my term's over, you can finish the job and claim your total, final victory.
-Come on, Vova! Don't be a stubborn prick! Let's sign the damn deal and be done with it!
+— A barn can also have “Cock” scrawled on it, but inside — it’s just firewood.
 
 #OrthodoxMilitaryPutinism
-                            👻
-
-
+                                👻
+                                
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**Main Page**](index.md)
-
 
