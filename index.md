@@ -1,22 +1,21 @@
 ![](Images/Cover_Project.jpg)
 
-## 🇬🇧 ENGLISH
+## 🇬🇧 ENGLISH 
 
 [**ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM**](#encyclopedia-of-orthodox-military-putinism)
 
 ## 🇫🇷 FRANÇAIS
 
-[**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#lencyclopédie-du-poutinisme-militaire-orthodoxe)
+[**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#l'encyclopédie-du-poutinisme-militaire-orthodoxe)
 
 ## 🇷🇺 РУССКИЙ 
 
 [**ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЕННОГО ПУТИНИЗМА**](#энциклопедия-православного-военного-путинизма)
 
-## 🇺🇦 УКРАЇНСЬКА 
+## 🇺🇦 УКРАЇНСЬКА
 
-[**ЕНЦИКЛОПЕДІЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#енциклопедія-православного-воєнного-путінізму)
-____________________________________________________________________________________________________________________
-
+[**ЕНЦИКЛОПЕДIЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#енциклопедiя-православного-воєнного-путiнiзму)
+____________________________________________________
 
 ## ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 
@@ -26,21 +25,21 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 **CONTENTS**:
 
-[**"Golden Dozen": 12 Top Miniatures**](Golden_en.md) 
+[**The Golden Dozen: Top 12 Satirical Miniatures**](Golden_en.md) 
 
-[**Big Album of satirical miniatures "Ward №666"**](album_en.md)
+[**The Grand Album of satirical miniatures "Ward №666"**](album_en.md)
+
+[**Putin’s LOGOS: Keynote Speeches, Dialogues Off the Record**](pivo_en.md)
 
 [**Satirical mini-play "Rising Off Her Knees"**](play_en.md) 
 
-[**Documentary thriller ”FSB Playbook"**](fsb_en.md) 
+[**The Persecution Chronicles ”FSB Playbook"**](fsb_en.md) 
 
 [**The Anatomy of Putin's "Traditional Values", analytical article**](values_en.md) 
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**About the Author**](en_author)
-
-____________________________________________________________________________________________________________________
 
 
 ## L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE
@@ -51,21 +50,21 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 **SOMMAIRE** :
 
-[**« La Douzaine d'Or » : 12 Top miniatures**](Golden_fr.md) 
+[**La Douzaine d’Or : Top 12 des miniatures satiriques**](Golden_fr.md) 
 
-[**Grand Album de miniatures satiriques « Chambre n°666 »**](album_fr.md) 
+[**Le Grand Album de miniatures satiriques « Chambre n°666 »**](album_fr.md) 
+
+[**Le LOGOS de Poutine : discours programmatiques, dialogues sans protocole**](pivo_fr.md)
 
 [**Mini-pièce satirique « Se relevant de ses genoux »**](play_fr.md) 
 
-[**Thriller documentaire « Guide pratique du FSB »**](fsb_fr.md) 
+[**Les Chroniques de la persécution « Guide pratique du FSB »**](fsb_fr.md) 
 
 [**Anatomie des « valeurs traditionnelles » poutiniennes, article analytique**](values_fr.md) 
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
 [**À propos de l'Auteure**](fr_author)
-
-____________________________________________________________________________________________________________________
 
 
 ## ЕНЦИКЛОПЕДІЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТІНІЗМУ
@@ -76,21 +75,21 @@ ________________________________________________________________________________
 
 **ЗМІСТ**:
 
-[**"Золота Дюжина": 12 вибраних мініатюр**](Golden_ua.md) 
+[**Золота дюжина: Топ-12 сатиричних мініатюр**](Golden_ua.md) 
 
 [**Великий Альбом сатиричних мініатюр «Палата №666»**](album_ua.md) 
 
+[**Путінський ЛОГОС: програмні промови, діалоги без протоколу**](pivo_ua.md)
+
 [**Сатирична мініп’єса «Встаюча з колін»**](play_ua.md)
 
-[**Документальний трилер «Методичка ФСБ»**](fsb_ua.md) 
+[**Хроніки переслідування «Методичка ФСБ»**](fsb_ua.md) 
 
 [**Анатомія путінських „традиційних цінностей“, аналітична стаття**](values_ua.md)
 
 [**Перелік благодійних фондів на допомогу Україні**](ua_funds)
 
 [**Про Автора**](ua_author)
-
-____________________________________________________________________________________________________________________
 
 
 ## ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЕННОГО ПУТИНИЗМА 
@@ -101,13 +100,15 @@ ________________________________________________________________________________
 
 **ОГЛАВЛЕНИЕ**:
 
-[**"Золотая дюжина": 12 избранных миниатюр**](Golden_ru.md)
+[**Золотая дюжина: Топ-12 сатирических миниатюр**](Golden_ru.md)
 
 [**Большой Альбом сатирических миниатюр «Палата №666»**](album_ru.md) 
 
+[**Путинский ЛОГОС: программные речи, диалоги без протокола**](pivo_ru.md)
+
 [**Сатирическая мини-пьеса «Встающая с колен»**](play_ru.md) 
 
-[**Документальный триллер «Методичка ФСБ»**](fsb_ru.md) 
+[**Хроники преследования «Методичка ФСБ»**](fsb_ru.md) 
 
 [**Анатомия путинских „традиционных ценностей“, аналитическая статья**](values_ru.md) 
 
