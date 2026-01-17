@@ -1,6 +1,4 @@
-## GUIDE PRATIQUE DU FSB
-
-(*Thriller documentaire*)
+##  Les Chroniques de la persécution : Guide Pratique du FSB
 
 **GUIDE PRATIQUE DU FSB, LEÇON 1**
 
