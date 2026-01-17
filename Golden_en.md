@@ -26,7 +26,6 @@ Below you will find **The Golden Dozen** — twelve key diagnostic miniatures. T
 
 [3. Dreams of the Dnieper](Golden_en.md#3-dreams-of-the-dnieper)
 
-
 [4. Tunguska Special Effect: we can do it Again!](Golden_en.md#4-tunguska-special-effect-we-can-do-it-again)
 
 [5. Propaganda Supplements](Golden_en.md#5-propaganda-supplements)
@@ -41,7 +40,7 @@ Below you will find **The Golden Dozen** — twelve key diagnostic miniatures. T
 
 [10. Diploma of Puberty](Golden_en.md#10-diploma-of-puberty)
 
-[11. summit in anchorage, alaska](Golden_en.md#11-summit-in-anchorage-alaska)
+[11. Summit in Anchorage, Alaska](Golden_en.md#11-summit-in-anchorage-alaska)
 
 [12. Geopolitical Sandbox](Golden_en.md#12-geopolitical-sandbox)
 
