@@ -3,7 +3,7 @@
 # DANS LA SALLE DES MILLE VÉRITÉS 
 ### Bière, Marchandages, Sémantique de la Décomposition et Biochimie du Pouvoir
 
-**SOMMAIRE**:
+**SOMMAIRE** :
 
 [1. Poutine dans la Salle des Deux Vérités : le jugement d'Osiris](pivo_fr.md#1-poutine-dans-la-salle-des-deux-vérités--le-jugement-dosiris)
 
@@ -1046,4 +1046,5 @@ Imagine que tu te tiens devant le globe comme devant une dinde d'Action de Grâc
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
 [**Page d'accueil**](index.md)
+
 
