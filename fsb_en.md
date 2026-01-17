@@ -1,6 +1,4 @@
-## FSB PLAYBOOK
-
-(*Documentary thriller*)
+## The Persecution Chronicles: FSB Playbook
 
 ### FSB PLAYBOOK, LESSON 1
 
