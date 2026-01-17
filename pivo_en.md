@@ -46,7 +46,7 @@
 >
 > • Russian president, Vladimir Putin (defendant)
 >
-> Hall illuminated by TV screens broadcasting court proceedings. Putin stands by gigantic apothecary scales; on one scale pan lies a red paper heart with a gilded engraving: "Putin: 86%". The other pan is empty, yet the scales balance each other.
+> Hall illuminated by TV screens broadcasting court proceedings. Putin stands by gigantic apothecary scales; on one scale pan lies a red paper heart with a gilded engraving: "Putin: 86%". The other pan is empty, yet the scale pans balance each other.
 
 **Osiris**:
 
@@ -194,7 +194,7 @@ The defendant is acquitted.
 
 **Putin** (nodding):
 
-— I thank you. This is our shared victory. Special thanks to my faithful dog, Anubis. He's a good boy.
+— Thank you. This is our shared victory. Special thanks to my faithful dog, Anubis. He's a good boy.
 
 (Anubis wags his tail, embarrassed.)
 
@@ -1038,3 +1038,4 @@ Imagine you’re standing before the globe as if it were a fat, fragrant Thanksg
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**Main Page**](index.md)
+
