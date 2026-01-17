@@ -31,7 +31,6 @@ Voici ci-dessous la Douzaine d'Or — douze miniatures diagnostiques clés. Elle
 
 [4. L’effet spécial de Tunguska : on peut le recommencer !](Golden_fr.md#4-leffet-spécial-de-tunguska--on-peut-le-recommencer-)
 
-
 [5. Suppléments de propagande](Golden_fr.md#5-suppléments-de-propagande)
 
 [6. « Conversations sur l’essentiel »](Golden_fr.md#6--conversations-sur-lessentiel-)
@@ -334,7 +333,7 @@ Et après neuf mois, le système procédera automatiquement à une évaluation d
                                 👻
 
 
-## 10 . CERTIFICAT DE MATURITÉ SEXUELLE
+## 10. CERTIFICAT DE MATURITÉ SEXUELLE
 
 ![](Images/Fr_Album_49.jpg)
 
