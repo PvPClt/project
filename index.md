@@ -6,7 +6,7 @@
 
 ## 🇫🇷 FRANÇAIS
 
-[**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#l'encyclopédie-du-poutinisme-militaire-orthodoxe)
+[**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#lencyclopédie-du-poutinisme-militaire-orthodoxe)
 
 ## 🇷🇺 РУССКИЙ 
 
@@ -14,7 +14,7 @@
 
 ## 🇺🇦 УКРАЇНСЬКА
 
-[**ЕНЦИКЛОПЕДIЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#енциклопедiя-православного-воєнного-путiнiзму)
+[**ЕНЦИКЛОПЕДIЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#енциклопедія-православного-воєнного-путінізму)
 
 _________________________________________________________________________________________________________________________
 
@@ -34,7 +34,7 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 [**Satirical mini-play "Rising Off Her Knees"**](play_en.md) 
 
-[**The Persecution Chronicles ”FSB Playbook"**](fsb_en.md) 
+[**The Persecution Chronicles: ”FSB Playbook"**](fsb_en.md) 
 
 [**The Anatomy of Putin's "Traditional Values", analytical article**](values_en.md) 
 
@@ -60,7 +60,7 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 [**Mini-pièce satirique « Se relevant de ses genoux »**](play_fr.md) 
 
-[**Les Chroniques de la persécution « Guide pratique du FSB »**](fsb_fr.md) 
+[**Les Chroniques de la persécution : « Guide pratique du FSB »**](fsb_fr.md) 
 
 [**Anatomie des « valeurs traditionnelles » poutiniennes, article analytique**](values_fr.md) 
 
@@ -86,7 +86,7 @@ ________________________________________________________________________________
 
 [**Сатирична мініп’єса «Встаюча з колін»**](play_ua.md)
 
-[**Хроніки переслідування «Методичка ФСБ»**](fsb_ua.md) 
+[**Хроніки переслідування: «Методичка ФСБ»**](fsb_ua.md) 
 
 [**Анатомія путінських „традиційних цінностей“, аналітична стаття**](values_ua.md)
 
@@ -112,7 +112,7 @@ ________________________________________________________________________________
 
 [**Сатирическая мини-пьеса «Встающая с колен»**](play_ru.md) 
 
-[**Хроники преследования «Методичка ФСБ»**](fsb_ru.md) 
+[**Хроники преследования: «Методичка ФСБ»**](fsb_ru.md) 
 
 [**Анатомия путинских „традиционных ценностей“, аналитическая статья**](values_ru.md) 
 
