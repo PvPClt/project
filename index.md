@@ -30,7 +30,7 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 [**The Grand Album of satirical miniatures "Ward №666"**](album_en.md)
 
-[**Putin’s LOGOS: Keynote Speeches, Dialogues Off the Record**](pivo_en.md)
+[**In the Hall of a Thousand Truths: Beer, Deals, Semantics of Decay, and the Biochemistry of Power**](pivo_en.md)
 
 [**Satirical mini-play "Rising Off Her Knees"**](play_en.md) 
 
@@ -56,7 +56,7 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 [**Le Grand Album de miniatures satiriques « Chambre n°666 »**](album_fr.md) 
 
-[**Le LOGOS de Poutine : discours programmatiques, dialogues sans protocole**](pivo_fr.md)
+[**Dans la Salle des Mille Vérités : Bière, Marchandages, Sémantique de la Décomposition et Biochimie du Pouvoir**](pivo_fr.md)
 
 [**Mini-pièce satirique « Se relevant de ses genoux »**](play_fr.md) 
 
@@ -82,7 +82,7 @@ ________________________________________________________________________________
 
 [**Великий Альбом сатиричних мініатюр «Палата №666»**](album_ua.md) 
 
-[**Путінський ЛОГОС: програмні промови, діалоги без протоколу**](pivo_ua.md)
+[**У Чертозі Тисячі Істин: Пиво, угоди, семантика розпаду та біохімія влади**](pivo_ua.md)
 
 [**Сатирична мініп’єса «Встаюча з колін»**](play_ua.md)
 
@@ -108,7 +108,7 @@ ________________________________________________________________________________
 
 [**Большой Альбом сатирических миниатюр «Палата №666»**](album_ru.md) 
 
-[**Путинский ЛОГОС: программные речи, диалоги без протокола**](pivo_ru.md)
+[**В Чертоге Тысячи Истин: Пиво, сделки, семантика распада и биохимия власти**](pivo_ru.md)
 
 [**Сатирическая мини-пьеса «Встающая с колен»**](play_ru.md) 
 
