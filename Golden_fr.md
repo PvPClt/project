@@ -1,8 +1,8 @@
 [**Version complète du projet**](index.md) 
 
-# La Douzaine d'Or : 12 Top miniatures 
+# La Douzaine d'Or : Top 12 des miniatures satiriques
 
-#### **Préface Diagnostique : La satire comme méthode d'autopsie politique**
+**Préface Diagnostique : La satire comme méthode d'autopsie politique**
 
 L'analyse politique conventionnelle échoue souvent face à l'absurdité performative et au cynisme métaphysique du régime russe contemporain. Là où le discours rationnel atteint ses limites, la satire clinique devient l'outil de diagnostic essentiel.
 
@@ -20,31 +20,33 @@ Le dossier de la « Douzaine d’Or » présenté ici dissèque quatre pathologi
 
 Voici ci-dessous la Douzaine d'Or — douze miniatures diagnostiques clés. Elles servent à la fois d'introduction et de preuve conceptuelle concluante.
 
-## TABLE DES MATIÈRES
+**TABLE DES MATIÈRES**
+:
 
 [1. Le Nouveau Testament Supernovaire](Golden_fr.md#1-le-nouveau-testament-supernovaire)
 
 [2. Mise à jour du Christianisme](Golden_fr.md#2-mise-à-jour-du-christianisme)
 
-[3. Une tête coiffée d'un chapeau, l'autre qui gouverne le pays](Golden_fr.md#3-une-tête-coiffée-dun-chapeau-lautre-qui-gouverne-le-pays)
+[3. Rêves du Dniepr](Golden_fr.md#3-rêves-du-dniepr)
 
-[4. Certificat de maturité sexuelle](Golden_fr.md#4-certificat-de-maturité-sexuelle)
+[4. L’effet spécial de Tunguska : on peut le recommencer !](Golden_fr.md#4-leffet-spécial-de-tunguska--on-peut-le-recommencer-)
 
-[5. L'immortalité merdique](Golden_fr.md#5-limmortalité-merdique)
 
-[6.Opération d'infiltration culturelle](Golden_fr.md#6-opération-dinfiltration-culturelle)
+[5. Suppléments de propagande](Golden_fr.md#5-suppléments-de-propagande)
 
-[7. Manuel de Poutine : « 1984 » revisité](Golden_fr.md#7-manuel-de-poutine---1984--revisité)
+[6. « Conversations sur l’essentiel »](Golden_fr.md#6--conversations-sur-lessentiel-)
 
-[8. Poutine dans la Salle des Deux Vérités : le jugement d'Osiris](Golden_fr.md#8-poutine-dans-la-salle-des-deux-vérités--le-jugement-dosiris)
+[7. Sur un cabanon, c’est écrit aussi...](Golden_fr.md#7-sur-un-cabanon-cest-écrit-aussi)
 
-[9. Le bac à sable géopolitique](Golden_fr.md#9-le-bac-à-sable-géopolitique)
+[8. Baptême express en enfer](Golden_fr.md#8-baptême-express-en-enfer)
 
-[10. Suppléments de propagande](Golden_fr.md#10-suppléments-de-propagande)
+[9. Bienheureux les accouplés...](Golden_fr.md#9-bienheureux-les-accouplés)
 
-[11. « Conversations sur l’essentiel »](Golden_fr.md#11--conversations-sur-lessentiel-)
+[10. Certificat de maturité sexuelle](Golden_fr.md#10-certificat-de-maturité-sexuelle)
 
-[12. Sur un cabanon, c’est écrit aussi...](Golden_fr.md#12-sur-un-cabanon-cest-écrit-aussi)
+[11. Sommet d'Anchorage, Alaska](Golden_fr.md#11-sommet-danchorage-alaska)
+
+[12. Le bac à sable géopolitique](Golden_fr.md#12-le-bac-à-sable-géopolitique)
 
 
 ## 1. LE NOUVEAU TESTAMENT SUPERNOVAIRE
@@ -91,44 +93,248 @@ Le confessionnal.
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
-                                
+           
+## 3. RÊVES DU DNIEPR
 
-## 3. UNE TÊTE COIFFÉE D'UN CHAPEAU, L'AUTRE QUI GOUVERNE LE PAYS
+![](Images/Fr_Album_15.jpg)
 
-![](Images/Fr_Album_59.jpg)
+Rêve du président russe Vladimir Poutine.
+Il pêche sur le Dniepr, en Ukraine, en compagnie de son ministre de la Défense, Sergueï Choïgou.
 
-**Note : Illustration bloquée par la censure*.
+**Choïgou** :
 
-Grand hall de conférence. Officiels en rangées.
-Sur la scène, allongé, un homme politique mondialement connu. Nu.
-Son pénis en érection est surmonté d’une réplique miniature de sa propre tête.
-La petite tête prend la parole, d’une voix forte et pompeuse :
+— Ici, la pêche est excellente… depuis toujours… Notre rivière, de la vieille Rus’… La Volga-mère et le Dniepr-père — c’est d’eux que vient toute l’eau de la Rus’… Comme l’a dit le grand poète russe : « Qu’il est beau, le Dniepr par temps calme… »
 
-— Le taux de natalité dans le pays chute de manière catastrophique. Comme une pierre qui tombe dans un abîme. Je l'ai toujours dit et je le répète : les préservatifs et les avortements sont responsables de tout ! Et les LGBT. Et les Childfree. Nous devons combattre, combattre et encore combattre toute cette hérésie. Jusqu'à présent, les résultats sont médiocres.
+**Poutine** :
 
-Nous avons interdit les avortements. Et que s'est-il passé ? Maintenant, ils vont se faire avorter en Chine. Ou ils accouchent en Argentine et y restent vivre. Les préservatifs sont un mal universel. Les préservatifs sont une insulte personnelle à mon égard. Ils violent le droit fondamental de l'individu — le droit de procréer et de se multiplier. Garanti par la Constitution, soit dit en passant.
+— Oui… D’ailleurs, il y a mille ans, à cet endroit précis, le Prince Vladimir a pêché  une perche géante de près de cent kilos ! C’est écrit dans la Chronique des temps révolus !
 
-Nous avons interdit les préservatifs, les reconnaissant comme « symbolisme extrémiste ». Et alors ? Le marché noir des préservatifs prospère. Les manufactures clandestines d'articles en caoutchouc poussent comme des champignons après la pluie. Partout dans le pays. La propagande LGBT suinte de toutes les fissures. Que se passe-t-il ? C'est un échec complet dans la mise en œuvre de mes décrets. Je ne tolérerai pas cela.
-Si l'appareil d'État ne peut pas forcer la population à faire des enfants — je forcerai l'appareil d'État à en faire.
+(Poutine se réveille : bruine, brouillard grisâtre sur la Moskova. Il compose le numéro de Medinski).
 
-Allumez enfin vos cerveaux. Et mettez-vous au travail.
-N'avons-nous pas une banque de sperme ? N'avons-nous pas une banque d'ovocytes ?
-Achetez les ovocytes de la population à un prix fixe. Pour finir, instaurez une taxe en nature — un ovocyte par mois au profit de l'État.
+**Poutine** :
 
-Mettez l'Académie des sciences à contribution — qu'ils créent un Incubateur militaire d'État. Nous élèverons de vrais patriotes de notre pays. Qui, dès leurs langes, auront appris par cœur le règlement militaire et les 10 commandements du Poutinisme. Nous les protégerons de l'influence néfaste des parents libéraux. Ce sera le bastion de notre future prospérité et de notre triomphe.
-Deuxièmement. Mettez les généticiens à contribution. Le pays n'a pas besoin de femmes au foyer oisives et de toutes sortes de penseurs. Les gènes des générations futures doivent être les bons : patriotiques, mâles, guerriers.
-Est-ce vraiment si difficile ? Agissez.
+— Vladimir Rostislavovitch ? Inscrivez d’urgence la Perche dans le nouveau manuel d’histoire ! Oui, celle-là… Comme symbole… de la… grandeur impériale russe. Et avec illustration !
 
-Nous allons ressusciter notre grande puissance et notre grande « deuxième armée mondiale ». Plus encore — nous la rendrons première !
-À n’importe quel prix. Sur les cadavres des ennemis, à travers les larmes des mères, sur des terres réduites en cendres — nous avancerons sans faiblesse ni pitié. Nous écraserons toute résistance, nous broierons sous nos pas ceux qui oseront se dresser contre nous. Même s’il faut pour cela mettre le pays tout entier à genoux, nous le ferons. Que chacun sache : la volonté de l’État est de fer, et rien ni personne ne saura l’arrêter.
+*V.R. Medinski est un «faiseur d'histoire» sur commande du Kremlin, y compris pour l'éducation scolaire.*
 
-(Vifs et longs applaudissements.)
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
+## 4. L’EFFET SPÉCIAL DE TUNGUSKA : ON PEUT LE RECOMMENCER !
+
+![](Images/Fr_Album_05.jpg)
+
+Moscou, Russie. Studio du propagandiste Vladimir Solovyov. Il discute avec une autre célébrité du genre, Margarita Simonyan.
+
+**Solovyov** :
+
+— Les Ricains deviennent complètement insolents ! Ils ont arrêté d’avoir peur de nous ! C’est insensé !
+
+**Simonyan** :
+
+— Alors il faut leur faire peur. Voilà ce qu’on va faire : un essai nucléaire spectaculaire en direct à la télé ! On fait exploser quelques bombes à neutrons sympas, de puissance moyenne. Juste deux jolis champignons jumeaux au-dessus de la Toungouska. On fera des économies sur les feux d'artifice pour le 9 Mai. Qu’ils voient bien qu'ici, on est tous cinglés !
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
                                 
 
-## 4. CERTIFICAT DE MATURITÉ SEXUELLE
+## 5. SUPPLÉMENTS DE PROPAGANDE
+
+![](Images/Fr_Album_004.jpg)
+
+Additifs biologiquement actifs informationnels.
+Augmentent la biodisponibilité de la propagande étatique jusqu’à 100 %.
+Les composants actifs franchissent efficacement la barrière hémato‑encéphalique (du pensée critique).
+
+**Gamme de produits** :
+
+• RT-Fake-Hallucinate, comprimés de 100-500 mg à libération prolongée. Ne pas mâcher !
+
+• Mixture-info-surrogate “Le Kremlin”, formule normalisée.
+
+• Baume “Simulacres du christianisme”, parfum de haine, usage externe. Conditionnellement toxique.
+
+• Sputnik-Data-Moulage, comprimés de 100-500 mg
+
+• Teinture alcoolique “Valeurs traditionnelles”, multi‑composants. Suspension trouble à l’arôme cadavérique. Teneur : 40 %.
+
+• RuMedia-Fact-Twister, poudre pour suspension. Hallucinogène, goût d’agression.
+
+• Kremlin-Histoires-ersatz, kit d’injections intramusculaires, 100-500 mg. Versions 1.0 à 10.0.
+
+• "Télévision-Grande-Illusion", suppositoires ultra-doux avec effet de démangeaison récto‑informationnelle. 100-500  mg.
+
+• Bifilac-Info, 100-500  mg. Préparation enzymatique (bifido‑lacto‑info‑bactéries) pour digérer efficacement la désinformation, prévenir les indigestions et la constipation.
+
+**Action pharmacologique** :
+
+✓ Stimulants de Loyauté : excitent les centres de soumission et renforcent l'instinct grégaire aveugle.
+
+✓ Agonistes de la Haine : stimulent l’amygdale (centre de la peur et de l’agression). Potentialisent la production de noradrénaline, orientant l’agressivité vers l’ennemi externe, ce qui soulage constructivement la tension sociale interne.
+
+✓ Inhibiteurs d’Analyse : suppriment l’activité du cortex préfrontal, responsable de la pensée critique et de la logique.
+
+✓ Bloqueurs d’Empathie : désactivent l’insula et le cortex cingulaire  antérieur, supprimant toutes formes d’empathie et de compassion.
+
+Ne sont pas des médicaments officiels.
+
+**Composition standardisée** :
+
+Fakes – 50 %
+
+Hallucinations – 20 %
+
+Rêves vides – 10 %
+
+Auto‑tromperie – 5 %
+
+**Substances auxiliaires** :
+
+La vie personnelle du président des États‑Unis, potins de célébrités, météo en Afrique, OVNI.
+
+**Arômes (au choix)** :
+
+Chauvinisme impérial, nationalisme d’extrême droite, patriotisme tapageur, fascisme ordinaire, haine aveugle, « Obama un crétin », « l’Occident pourri », « guerre sacrée ».
+
+**Colorants / (re)hausseurs** :
+
+"Valeurs traditionnelles" (triées), “liens spirituels” (renforcés), « la vie est devenue meilleure et plus joyeuse », « cendres radioactives », « nous vaincrons ».
+
+**Mode d'emploi et posologie :**
+
+La dose quotidienne est calculée selon la formule :
+QI * 10 (mg). La dose quotidienne maximale est de 1300 mg.
+
+À prendre avant le journal du soir, les émissions de V. Solovyov et M. Simonyan, l’émission finale de D. Kiselyov «Les nouvelles de la semaine », la « ligne directe » de Poutine, les briefings de D. Peskov et du ministère de la Défense.
+
+ **À utiliser avec précaution** :
+ 
+Syndrome d’hyper‑loyauté, sapio‑insuffisance.
+En cas de poussée aiguë de bon sens, doutes sur la pureté de la ligne de l’État ou autres formes de résistance à la propagande : forme “Forte” recommandée.
+
+**Contrôle des signes vitaux** :
+
+Les niveaux de dopamine doivent rester dans la plage approuvée par l'État.
+Une amplitude émotionnelle excessive peut provoquer le syndrome de loyauté euphorique.
+
+**Effets secondaires** :
+
+Délire patriotique, diarrhée élogieuse, vomissements incontrôlables avec insertions de slogans.
+Dans de rares cas : thrombose idéologique, avec insuffisance cognitive aiguë.
+Un résidu transitoire est possible (dans l’âme).
+Pour éviter les effets secondaires, augmenter la dose progressivement ! Ne pas dépasser la posologie !
+
+**Indications particulières** :
+
+Préparation de la suspension :
+prendre ½ verre d’une source trouble, ajouter 1 cuillère à café de poudre et mélanger.
+Agitation soigneuse nécessaire (tant du liquide que de l'esprit) !
+La biodisponibilité maximale est atteinte dans un état de stupeur contrôlée.
+
+Ne sont pas des nootropiques –
+N’améliorent pas les fonctions cognitives, mais les alignent avec l’idéologie d’État.
+Si accidentellement ingérés par un journaliste indépendant ou un défenseur des droits humains, peuvent provoquer une réaction allergique aiguë.
+
+**Durée de conservation** : illimitée.
+
+#PoutinismeMilitaireOrthodoxe
+                             👻   
+
+## 6. « CONVERSATIONS SUR L’ESSENTIEL »
+
+![](Images/Fr_Album_20.jpg)
+
+École, ville russe.
+Cours spécial : « Conversations sur l’essentiel »
+
+**L’institutrice** :
+
+— Alors, les enfants, dites-nous ce que vous voulez faire quand vous serez grands.
+
+**Tolya** :
+
+— Moi, je serai pilote et je bombarderai les villes ennemies.
+
+**Macha** :
+
+— Moi, je serai infirmière et j’évacuerai les blessés du champ de bataille.
+
+**Guena** :
+
+— Moi, je serai général, je resterai au quartier général et je donnerai des ordres.
+
+**L’institutrice** :
+
+— Et toi, pourquoi tu te tais, Vanya ? Dis-nous ce que tu veux devenir.
+
+**Vanya** (en soupirant) :
+
+— Moi, Madame Elena, je serai en hôpital psychiatrique. Bien loin de toute cette folie.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+                                
+
+## 7. SUR UN CABANON, C’EST ÉCRIT AUSSI...
+
+![](Images/Fr_Album_34.jpg)
+
+Aérodrome militaire russe.
+Dialogue entre un pilote russe et un journaliste ukrainien.
+
+**Ukrainien** :
+
+— Pourquoi avoir bombardé le théâtre dramatique de Marioupol ? Il y avait écrit en grand : « ENFANTS ! »
+
+**Pilote** :
+
+— Sur un cabanon, c’est écrit aussi « Bite » — et dedans, il n’y a que du bois de chauffage !
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+                                
+                                
+## 8. BAPTÊME EXPRESS EN ENFER
+
+![](Images/Fr_Album_38.jpg)
+
+Front russo-ukrainien – côté russe.
+Un prêtre orthodoxe exhorte des soldats à se faire baptiser dans une piscine gonflable.
+
+**Prêtre** :
+
+— Soldats ! Faites-vous baptiser pendant que vous êtes encore en vie! Sinon, c’est l’enfer !
+
+**Premier soldat** :
+
+— On est déjà en enfer.
+
+**Deuxième soldat** :
+
+— Allez ! Fais-le ! Au moins, nous nous laverons de la boue !
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
+
+## 9. BIENHEUREUX LES ACCOUPLÉS...
+
+![](Images/Fr_Album_58.jpg)
+
+Russie, Moscou. Salle des séances de la Douma d'État. La députée Valentina Bebienko prend la parole à la tribune :
+
+– Chers collègues députés ! Le Président nous a fixé pour tâche de ressusciter la grande Russie – en triplant le taux de natalité. Je ne le cache pas – la tâche n'est pas aisée. C'est une tâche difficile. Super difficile. Mais nous devons la remplir. Parce que notre président le veut. Je propose d'aborder le problème de manière créative. Bien entendu, notre public cible est la jeunesse. Les moins de 30 ans. Après 30 ans, influencer les consciences devient moins facile. Les schémas mentaux sont déjà formés, et une résistance au narratif d'État est observée.
+
+Maintenant, souvenons-nous de notre triste enfance. Comment répondions-nous à ces… besoins, ces pulsions parfaitement légitimes de la puberté ? En cachette, furtivement, dans des cages d'escalier sombres sur des appuis de fenêtre sales, dans des caves humides, sur des greniers poussiéreux, ou tout simplement, que Dieu me pardonne, dans le parc derrière un buisson. Et toujours dans la tension : et si on nous voyait ? Et si les voisins se plaignaient ? Et si, Dieu nous en préserve, on se faisait surprendre – on vous embarque au poste, on dresse un procès-verbal, on appelle vos parents. En un mot, la honte pour le restant de vos jours. C’est une aberration, camarades. Cela va à l'encontre de la politique démographique de l'État. Corrigeons cette distorsion. Offrons à nos enfants et petits-enfants une enfance saine, digne et pleinement épanouie. Comme il y avait autrefois une cabine téléphonique à chaque coin de rue – qu'à sa place se dresse désormais un « pavillon de la reproduction » beau et bien entretenu. Avec des caméras de surveillance pour reconnaissance faciale – nous accorderons aux participants des bonus sociaux sur le Portail des services publics. À l'intérieur – une pièce spacieuse avec 4 lits doubles, une grande télévision au mur. Une vidéothèque avec des films et séries inspirants. Une armoire avec du Viagra et des accessoires. Dans l'ensemble, tout est très soigné, propre et attrayant, du papier peint joyeux au linge de lit aux motifs sexy. Et sur les marches, au lieu d'un portier – un pope, aspergeant d'eau bénite les entrants, avec cette bénédiction :
+« Bienheureux les accouplés... au nom du Père et du Fils, et du Saint-Esprit... et conformément au Décret présidentiel numéro six-cent-soixante-six...»
+
+Et après neuf mois, le système procédera automatiquement à une évaluation de l’efficacité. En cas de confirmation de la naissance d’un enfant, une prime unique sera versée aux parents. En cas de naissance d’un garçon, le montant sera doublé — conformément au programme national de militarisation de la politique démographique.
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
+
+## 10 . CERTIFICAT DE MATURITÉ SEXUELLE
 
 ![](Images/Fr_Album_49.jpg)
 
@@ -147,419 +353,108 @@ Au tableau : la courbe de natalité en Russie.
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
+## 11. SOMMET D'ANCHORAGE, ALASKA
 
-## 5. L'IMMORTALITÉ MERDIQUE  
+![](Images/Fr_Album_53.jpg)
 
-![](Images/Fr_Album_57.jpg)
+Hôpital psychiatrique. Bureau de consultation. Conseil médical : trois éminents professeurs sont attablés.
 
-Russie, Moscou, Kremlin – bureau présidentiel. Le president russe, Vladimir Poutine avec son ami et conseiller scientifique, Mikhaïl Kovaltchouk. Sujet : les recherches sur l'immortalité.
+**Premier Professeur** :
 
-**Poutine** (presque affectueusement) :
+— Le patient prétend être le Messie.
 
-– Alors, professeur, raconte : où en est-on avec mon immortalité ?
+**Deuxième Professeur** :
 
-**Kovaltchouk** (avec enthousiasme) :
+— Quoi ?! Le Messie ?! Hier il se prenait pour Hitler !
 
-– Il y a du progrès. Significatif. Nous travaillons actuellement sur un projet de conservation de tes... substrats bio-organiques.
+**Troisième Professeur** :
 
-**Poutine** (étonné) :
+— Aujourd’hui, il a une nouvelle mission : « Sauver le peuple frère ukrainien. »
 
-– Quoi ? Mes crottes viennent faire quoi dans cette histoire ?
+**Premier Professeur** :
 
-**Kovaltchouk** (précipitamment) :
+— Et comment compte-t-il s’y prendre ?
 
-– Attends. Ne t'emballe pas. Écoute d'abord.
+**Deuxième Professeur** :
 
-**Poutine** (avec condescendance) :
+— Comme d’habitude : bombardements, meurtres, enlèvements.
 
-– Parle.
+**Troisième Professeur** :
 
-**Kovaltchouk** :
+— Délire géopolitique paranoïaque avec complexe messianique…
 
-– La science a prouvé que la sublimation préserve l'ADN intact dans les excréments. Nous allons sublimer et conserver tes excréments et les compléter avec une pile de photos et un recueil de tes discours. Dans un futur lointain, une copie exacte de Vladimir Poutine sera recréée à partir de ton ADN en s'appuyant sur tes photos et tes prises de parole. Probablement imprimée en 3D. Hein ? Qu'est-ce que tu en dis ?
+**Premier Professeur** :
 
-**Poutine** (pensif) :
+— De la pure folie, rien de plus.
 
-– Une immortalité merdique. Une idée merdique. Bon, admettons, tu m'imprimes. Mais qui suis-je ? Personne. C'est un autre qui sera sur le trône. On me reprochera la guerre, les incendies, les explosions, les câbles, et tout le reste.
+**Deuxième Professeur** :
 
-**Kovaltchouk** :
+— Collègues, évitons le lyrisme. Il s’agit d’un trouble de la personnalité spécifique.
 
-– Pour ça, je ne sais pas. Quel sera le régime politique en Russie à ce moment-là, impossible de le prévoir.
+**Troisième Professeur** :
 
-**Poutine** (avec conviction) :
+— Le patient pleure en disant : « L’Ukraine est notre douleur et notre tragédie. »
 
-– Voilà tout le problème. Il me faut une autre immortalité. Je veux que ce corps, mon corps actuel, me serve éternellement. Est-ce vraiment si compliqué à faire ?! Le cœur est usé – transplantation. Foie, reins – transplantation...  C'est simple comme bonjour !
+**Premier Professeur** :
 
-**Kovaltchouk** (prudemment) :
+— Et il radote sans cesse sur je ne sais quelles « causes profondes du conflit » qu’il « faut éliminer ».
 
-– Mais chaque organe a une durée de vie – quatre-vingts ans maximum...
+**Deuxième Professeur** :
 
-**Poutine** :
+— Et toutes les cinq minutes, il hurle hystériquement : « Je veux tout le Donbass ! »
 
-– Et bien prends le cœur d'un lycéen – frais émoulu. Quoi ? Un gamin, c'est trop précieux pour moi ?
+**Troisième Professeur** :
 
-**Kovaltchouk** (avec fougue) :
+— Pour le reste — gai, alerte, actif, il a récemment rencontré ce... personnage... à la casquette rouge…
 
-– Mais non ! Je suis prêt à te donner le mien...
+**Premier Professeur** :
 
-**Poutine** (avec dégoût) :
+— Ah, le fameux « pompier », capable d’arrêter les conflits armés d’un simple regard ?
 
-– Le tien, non. J'ai que faire de ta ferraille rouillée ? Donne-moi un cœur jeune, avec tout son potentiel. Et dans 60 ans, tu m'en mettras un nouveau. Où est la difficulté ?
+**Deuxième Professeur** :
 
-**Kovaltchouk** :
+— C’est bien lui. Onze secondes entières à se serrer la main, puis ils ont défilé sur le tapis rouge, flirtant éhontément et se lançant des clins d’œil.
 
-– À l'heure actuelle, la médecine ne garantit pas qu'un organe prenne. Les risques de complications sont élevés. Donc soit tu attends encore 20 ans, soit on conserve les excréments.
+**Troisième Professeur** :
 
-**Poutine** (grogne) :
+— Deux bottes d’une même paire, Seigneur pardonne-moi ! L’un délire sur le Donbass, l’autre sur le Nobel.
 
-– D'accord, soit, va pour la merde. Mais uniquement en solution de secours. Au pire, après ma... mort [il fait une grimace, comme s'il avait mal] ils se vendront aux enchères pour des millions. 
+**Premier Professeur** :
 
-**Kovaltchouk** (souriant) :
+— Oui, messieurs. La vanité est une chose dangereuse. Elle peut finir en trouble psycho-politique.
 
-– Oui. En Occident, la merde des puissants est très prisée. Un artiste italien, je crois qu'il s'appelait Mandzoni, vendait sa merde au prix de l'or. Et aujourd'hui, un petit pot de 30 grammes vaut des centaines de milliers d'euros.
+**Deuxième Professeur** :
 
-**Poutine** (avec mépris) :
+— Collègues ! Je pense que nous voyons clairement un conflit d’intérêts. Il ne peut rien sortir de bon de tout ça.
 
-– Bah, si un misérable Italien chiait des lingots d'or – ma merde partira pour dix millions !
+**Troisième Professeur** :
 
-**Kovaltchouk** (flatteur) :
+— Pour l’Ukraine — absolument rien.
 
-– Peut-être même plus !
+**Premier Professeur** :
 
-**Poutine** :
+— Vous avez raison. Il faut prendre des mesures.
 
-– Mais attention ! Pas d’avarice ! 30 grammes ?! Mais c’est risible ! Je suis un pigeon, peut-être ?
+**Deuxième Professeur** :
 
-**Kovaltchouk** (avec conviction) :
+— Je suggère d’augmenter drastiquement les doses d’halopéridol. Voie orale et intramusculaire.
 
-– Toi ? Non. T’es un faucon. Un aigle. Un milan. Un ptérodactyle.
+**Troisième Professeur** :
 
-**Poutine** (avec arrogance) :
+— Il serait aussi judicieux de prescrire des bains calmants de boue ukrainienne, accompagnés d’enregistrements de la chorale « Crimée est à nous ! ».
 
-– Exactement. Et ma merde doit être de la plus haute qualité. Raffinée. Désodorisée. Et qu'elle soit de couleur bleue. Sang bleu – merde bleue.
+**Premier Professeur** :
 
-**Kovaltchouk** :
+— Et pourquoi ne pas essayer l’électrochoc ? C’est merveilleux pour les troubles spécifiques. Le Ministère de la Santé y a déjà donné son feu vert.
 
-– Bien sûr, bien sûr. Première pression. Virgin Putin shit. Ou Putin virgin shit ? C'est lequel, le correct ?
+**Deuxième Professeur** (solennellement) :
 
-**Poutine** (avec haine) :
-
-– Libéré !
-
+— Le Ministère de la Santé met en garde… Si vous faites le  malin, vous prendrez trois mille volts dans le cul.
 #PoutinismeMilitaireOrthodoxe
                                 👻
 
-
-## 6. OPÉRATION D'INFILTRATION CULTURELLE
-
-![](Images/Fr_Album_60.jpg)
-
-Russie. Moscou. Salle des séances de la Douma d’État.
-Le président russe, Vladimir Poutine, s’adresse aux députés.
-
-— Chers députés ! Amis ! Camarades !
-La situation géopolitique est montée à son paroxysme. Les ennemis de la Russie ne restent pas les bras croisés. L’Occident fait tout pour nous détruire. Surtout l’Europe. Surtout la France. La France a de tout temps été — et reste — notre principal adversaire. La France n’a cessé de porter atteinte à nos valeurs traditionnelles, cherchant à détruire notre patrimoine culturel, notre langue. Rappelons le XIXᵉ siècle, lorsque, à la suite d’une opération d’influence française, toute l’élite russe a parlé exclusivement français pendant des décennies. La langue russe s'est retrouvée au bord de l'oubli total et de l'extinction. Et si ce n’était le peuple russe profond, qui haïssait — à juste titre — tout ce qui était français, nous parlerions aujourd’hui français !
-
-Oui, au XIXᵉ siècle les services secrets français ont échoué, mais aujourd’hui ils cherchent à prendre leur revanche.
-Nos ennemis nous accusent soi-disant de mener une guerre hybride contre l’Occident. Mensonge éhonté ! Nous sommes un peuple pacifique. Mais les Français, eux, attaquent sans cesse notre culture, nos valeurs traditionnelles, notre langue. Ils ont infiltré la langue russe avec un véritable commando ennemi. Regardez combien de mots français nous avons — si habilement camouflés que les gens ne se doutent même pas que leur discours est truffé de mots-espions français.
-
-Chauffeur, tableau, théâtre, chef-d’œuvre… Il y en a des milliers. On ne sait même plus : est-ce encore du russe ou déjà un dialecte du français ?
-Mais « chauffeur », ce n’est encore rien. 
-Mais ils infiltrent notre langue avec  des mots destructeurs tels que « président » et « révolution » ! Il s'agit là d'une diversion et d'une attaque flagrantes contre nos valeurs traditionnelles.
-Quel est donc ce « président » ? Il n’y a jamais eu et il n’y aura jamais de « présidents » en Russie. Il n’y a que le tsar [il se frappe la poitrine]. Ou encore : « révolution ». Les révolutions et les guillotines pour les familles royales sont un phénomène purement français, totalement étranger à l’esprit russe. Et d’ailleurs, en Russie ces abominations n’existaient pas — jusqu’à l’apparition dans notre langue de ces mots-saboteurs.
-
-Et c’est logique, camarades. Souvenez-vous de la Bible : « Au commencement était le Verbe ». Et ensuite seulement tout le reste. Cela signifie qu’il ne peut y avoir de révolution tant que le mot n’existe pas dans la langue. Exemple. En Union soviétique, il n’y avait pas de sexe — c’est un fait bien connu. Pourquoi ? Parce qu’il n’y avait pas le mot « sexe ». Mais dès que l’opportuniste Mikhaïl Gorbatchev a ouvert les frontières à la culture de masse occidentale, les mots « sexe », « gay », « lesbienne », « LGBT » sont arrivés — et après cela, la débauche et la sodomie ont fleuri en Russie.
-
-La conclusion, camarades : si nous voulons éradiquer un phénomène étranger à notre culture, nous devons effacer de la langue le mot même qui le désigne. L’interdire par la loi, réécrire les dictionnaires, brûler tous les livres où ce mot apparaît. Tous les contrevenants doivent être poursuivis.
-
-Et nos soi-disant « linguistes », qui qualifient timidement ces mots-espions d’« emprunts » ? C’est du sabotage, camarades, et nous devons y mettre fin. Ces mots-saboteurs s’assimilent d’abord, puis se multiplient et, finalement, évinceraient les mots russes originels. C’est une agression linguistique. Un génocide linguistique.
-La justification des emprunts français dans la langue russe doit être assimilée à l’apologie du terrorisme. Juridiquement. De cinq ans à la perpétuité, selon le mot concerné.
-
-Pour les mots neutres (chauffeur, revanche, chef-d’œuvre, théâtre) — cinq ans.
-Pour « révolution » (atteinte à l’ordre constitutionnel) — dix ans.
-Pour « président » (discrédit du dirigeant national) — quinze ans.
-
-Mais le mot-saboteur français le plus perfide est « préservatif ». Nous avons vu de nos propres yeux comment, à la suite de l’expansion linguistique, notre marché a été littéralement inondé par ces articles diaboliques en caoutchouc. Français, d’ailleurs. Cette attaque sans précédent vise ce que nous avons de plus précieux — notre patrimoine génétique. C’est une bombe atomique démographique, camarades. Détruire les Russes avant même leur naissance. C’est l’arme de destruction massive la plus sacrilège et la plus raffinée.
-
-Le mot « préservatif » doit être effacé de la langue russe. Nous devons l’arracher de notre vie. Son usage sous quelque forme que ce soit constitue un acte de haute trahison. À son plus haut degré. L’image d’un préservatif doit être assimilée à la démonstration de symboles extrémistes.
-
-Et pour l’avenir.
-Camarades ! Nous devons protéger strictement notre langue contre la pénétration des mots-saboteurs occidentaux. C’est la principale ligne de défense dans notre lutte pour la préservation des valeurs traditionnelles.
-
-Merci de votre attention !
-
-#PoutinismeMilitaireOrthodoxe
-                                👻
-                                
-
-## 7. MANUEL DE POUTINE : « 1984 » REVISITÉ
-
-![](Images/All_Album_64.jpg)
-
-Russie, Moscou, le Kremlin. Réunion des chefs des organes de la sécurité d'État et de l'ordre public. Président russe Vladimir Poutine prend la parole.
-
-**Poutine** : 
-
-— Camarades ! 
-
-Qui d'entre vous a lu l'œuvre magistrale du grand écrivain britannique ***George Orwell, « 1984 »*** ? Personne ? Lisez-le. C’est notre guide pratique.
-
-Ce cher camarade Orwell y a décrit un système de gestion étatique totalitaire assez efficace. Bien sûr, au milieu du siècle dernier, il ne pouvait même pas rêver, même en songe, des technologies dont nous disposons aujourd'hui. De ce fait, son système est assez lourd, gourmand en ressources et coûteux. Mais peu importe — il fonctionne à merveille ! Même dans des conditions de retard technologique.
-
-Mais le plus important, camarades, ce sont ses idées totalitaires immortelles : ***la doublepensée, la réécriture de l'histoire, la Police de la Pensée***.
-
-Nous lui avons déjà emprunté quelques éléments que nous appliquons avec grand succès. Mais, comme on dit, il y a encore une marge de progression.
-
-Avant tout, nous devons introduire dans notre jurisprudence le concept de ***crime de pensée***. Ce concept découle logiquement de nos valeurs traditionnelles. Rappelez-vous les sermons du Christ : si tu as convoité la femme de ton frère, tu as déjà commis l'adultère. Ainsi, selon les dogmes de notre Église orthodoxe, la pensée même du péché devient un péché. C'est un saut métaphysique majeur que nous avons le devoir de mettre au service de la sécurité de notre État.
-
-Finalement, ***le crime de pensée*** n’a été inventé ni par nous, ni même par Orwell — il a été inventé par le Seigneur Dieu Lui-même.
-
-Qu'est-ce que cela signifie pour nous en pratique ?
-
-Premièrement : la police doit se doter d'une unité spéciale — ***le Département de Pureté des Pensées***. En clair, cette fameuse ***Police de la Pensée*** orwellienne.
-
-Deuxièmement : il est nécessaire de remanier nos codes pénal et administratif en y introduisant des sanctions pour ***les crimes de pensée***.
-
-Et le plus important — nous devons organiser le travail pratique au sein de la population.
-
-Consultons notre guide pratique. Dans le pays mythique de l'Océanie, les dissidents étaient identifiés grâce à une surveillance constante des citoyens via des soi-disant ***télécrans***. Contrairement à l'Océanie, qui, si j'ai bien compris, était un paria sur la scène internationale, la Russie est l'un des plus grands acteurs géopolitiques et doit respecter au moins un semblant de décence élémentaire. Par conséquent, nous ne pouvons pas violer ouvertement des droits fondamentaux tels que le respect de la vie privée.
-
-De plus, ***les télécrans*** sont utiles comme outils d'intimidation, mais pour débusquer les pensées secrètes, il faut des méthodes secrètes. Personne n'avouera une hérésie en sachant qu'il est sur écoute et épié.
-
-Nous avons déjà fait un grand — un immense — pas dans cette direction : nous avons développé et déployé la messagerie sans alternative **MAX**, qui permet de surveiller discrètement les communications de nos citoyens. 
-
-Mais ! Quand un agent de l'étranger descend dans la rue, tient un piquet de grève solitaire ou publie des appels antipatriotiques sur Internet — c'est déjà un stade avancé de déviation idéologique. À ce niveau, on ne soigne plus, on punit par l'emprisonnement.
-
-D'ailleurs, vous savez, je propose de considérer la dissidence comme une maladie évolutive. Si nous parvenons à la diagnostiquer à un stade précoce, il y a de très bonnes chances, grâce à de simples procédures correctives, de guérir une personne à jamais.
-
-C’est pourquoi notre attention doit se porter en priorité sur les enfants.
-
-Certes, nous avons déjà généralisé les cours des « **Discussions sur l’essentiel** ». C'est parfait — nous inculquons les bonnes idées à nos enfants. Mais il nous faut un retour d’information ! Qu'avons-nous pour l'instant ? Des questionnaires pour étudiants ? C'est absolument inefficace. Cela revient à attendre les aveux d'un agent de l'étranger devant ***un télécran***.
-
-Il nous faut une solution systémique, globale. Et elle est à portée de main.
-
-Que faisons-nous ? Nous installons dans les jardins d'enfants, les écoles et autres établissements d'enseignement une écoute permanente. Pas de vidéosurveillance — non. C'est cher et inutile. Nous n'avons pas besoin des visages — seulement des conversations et d'un système de reconnaissance vocale. C'est plus simple и moins coûteux. Et cela se fait clandestinement.
-
-Ensuite, l'intelligence artificielle analyse les informations arrivant sur le serveur et livre le résultat final : 
-
-« Piotr Belkine, élève de CE2 à l'école n°212, n'est pas fiable ; hier, à la récréation entre le deuxième et le troisième cours, il a prononcé un mot offensant à l'adresse du Président. »
-
-Ensuite, le département des mineurs s'occupe de Piotr : une correction idéologique indolore, comme vous savez, quand on utilise des bagues dentaires pour corriger la position des dents d'un enfant qui poussent de travers. Et tout comme pour les dents tordues — à l'âge enfantin, une telle correction idéologique est encore possible.
-
-Et soit dit en passant, le petit Piotr, une fois adulte, ne pourra que nous être reconnaissant de l'avoir aidé, dans son enfance, à se débarrasser de ses pensées impures, le sauvant ainsi de la prison.
-
-Bien entendu, l'écoute totale doit être pratiquée dans toutes les institutions publiques — là, nous ne violons aucune loi. En accord avec les propriétaires d'entreprises privées, nous installons également des écoutes dans leurs établissements et bureaux. S'ils refusent de coopérer... vous savez comment les convaincre.
-
-Notre objectif final, camarades, est de bâtir une société harmonieuse — une société fondée sur les principes d'homogénéité, de conformisme, de solidarité et de cohésion.
-
-Pour que je n'aie plus, lors de ma « Ligne directe » avec le peuple, à mentir en affirmant qu'en Russie les agents de l'étranger ne subissent pas de poursuites pénales.
-
-En réalité, nous ne poursuivrons plus les dissidents — pour la simple et bonne raison qu'il n'y aura plus de dissidents chez nous.
-
-#PoutinismeMilitaireOrthodoxe
-                                👻                    
-
-
-## 8. POUTINE DANS LA SALLE DES DEUX VÉRITÉS : LE JUGEMENT D'OSIRIS
-
-![](Images/Fr_Album_003.jpg)
-
-> Temple sacré de l’Égypte ancienne. À l’intérieur – procédure bien connue du Jugement du dieu Osiris, décrite dans le « Livre des Morts ». Y participent :
-> 
->  • Dieu Thot (secrétaire du tribunal, tablette d’argile en  mains)
->
->  • Dieu Anubis (expert criminalistique)
->
->  • Déesse Maât (accusateur)
->
->  • 42 dieux-jurés égyptiens (en masques de Hitler, Mussolini, Lénine, Staline, Beria, Brejnev, Jirinovski, Dracula, le Diable, autres figures historiques)
->
->  • Le président russe, Vladimir Poutine (l’accusé)
->
-> Scène éclairée par les écrans de télévision diffusant les procédures judiciaires.
-Poutine se tient près d’immenses balances de pharmacien. Sur un plateau : un cœur rouge en papier, gravure dorée « Poutine : 86 % ». L’autre plateau est vide, mais l’équilibre est parfait.
-
-**Osiris** :
-
-— Nous commençons la retransmission en direct du procès le plus juste de l'histoire de l'univers ! Aujourd'hui, sur la Balance de la Vérité — le sort du Grand Gardien des Valeurs Traditionnelles ! Mais d'abord... une petite publicité pour notre sponsor. Je vous présente : l'élixir de jeunesse « Ambre » !
-
-(Pause publicitaire : la déesse Hathor boit la potion et rajeunit instantanément de 3000 ans. Voix off : « Ambre : une gorgée qui mène à l'Éternité. »)
-
-**Osiris** (s'adressant à Poutine) :
-
-— Vous faites confiance à ce tribunal ? Aucune objection concernant les juges ?
-
-**Poutine** (avec un sourire narquois) :
-
-— Oh, Votre Honneur ! Comment pourrais-je ! L'histoire des relations russo-égyptiennes... Nous avons maintes fois apporté notre aide... Annulé des dettes... Construit des centrales électriques... Le barrage d'Assouan... Une compréhension mutuelle totale...
-
-**Osiris** :
-
-— Bien sûr. Nous nous en souvenons. Le tribunal se retire en chambre de délibération.
-
-(Tout le monde reste assis, comme avant.)
-
-**Maât** :
-
-— Je proteste ! Vous violez la procédure ! L'accusé n'a pas encore récité les 42 déclarations d'innocence devant les jurés : Je n'ai pas tué, pas volé, pas menti, pas falsifié les poids et mesures... etc.
-
-**Osiris** (à contrecœur) :
-
-— Hmm... Très bien. Accusé, racontez-nous votre autobiographie.
-
-**Poutine** :
-
-— Avec plaisir, Votre Honneur.
-Je suis né comme un gamin ordinaire de Petersbourg — un élève moyen. Et par mon labeur persévérant, récoltant les fruits sur le terrain de l'État, j'ai grimpé jusqu'au sommet du pouvoir — je suis devenu président d'un grand pays. J'ai mené les politiques les plus humaines et les plus justes. Dans mes décrets, j'ai promis à chaque citoyen un appartement séparé, des soins médicaux et une éducation gratuits, des salaires élevés et une inflation zéro. J'ai établi une paix durable dans la belliqueuse République tchétchène. Je suis devenu le donateur le plus généreux au monde. J'ai construit 20 oléoducs et gazoducs. Mon gaz éclaire et chauffe la planète entière. J'aide les mouvements de libération nationale dans le monde entier — en leur fournissant des armes à prix réduit. Je distribue des prêts de milliards de dollars aux pays pauvres et j'annule leurs dettes quelques années plus tard. Je donne à la Chine mes ressources naturelles pour une bouchée de pain. Grâce à ma politique, le bloc de l'OTAN a considérablement élargi ses frontières. J'ai libéré le peuple ukrainien frère de la tyrannie du régime fasciste de Zelensky. J'ai arrêté le bain de sang en Ukraine.
-
-(Une publicité apparaît à l'écran : « Du gaz dans chaque tombeau !  Que la vie ne s'arrête jamais ! »)
-
-**Poutine** (regardant l'écran un instant, puis continue) :
-
-— J'ai envoyé le premier homme dans l'espace. Mon compositeur de cour a écrit le chef-d'œuvre immortel « Le Lac des cygnes » [il exécute quelques pas de ballet sur la musique de Tchaïkovski]. Enfin, j'ai débarrassé le monde de Hitler et de sa dictature fasciste.
-J'ai peiné comme un forçat sur les galères au poste de Président pendant 50 ans ! J'ai purgé une peine à perpétuité !
-J'ai relevé mon pays de ses genoux. J'ai vendu les usines aux ouvriers et la terre aux paysans. J'ai créé la première armée du monde.
-J'ai tendu la main et protégé de l'arbitraire mes compatriotes russophones à l'étranger : dans les pays baltes, en Asie centrale et dans le Caucase. Nous protégeons les droits et libertés des diasporas russes sur l'ensemble de l'ex-URSS.
-L'espérance de vie dans le pays a considérablement augmenté : j'ai vécu jusqu'à 98 ans.
-La médecine se développe à un rythme effréné : je suis mort non pas de maladie, mais d'ennui.
-Le patriotisme de la jeune génération dépasse les limites : mon portrait est accroché dans chaque salle de classe. Les valeurs traditionnelles se renforcent. Nous n'avons que des mariages bisexués. Les divorces, les avortements, les préservatifs — sont interdits. Les lesbiennes et les gays sont privés de citoyenneté. Les opposants et les critiques du pouvoir sont en prison. Sur Terre, la paix ; parmi les hommes — une loyauté absolue. N'est-ce pas une idylle ? J'ai instauré dans mon pays une fête perpétuelle de la vie.
-
-**Osiris** (souriant largement) :
-
-— Assez. Vous êtes la quintessence de la vertu. Le tribunal se retire en chambre de délibération.
-
-(Tout le monde reste assis.)
-
-**Maât** (furieuse) : 
-
-— Attendez ! Vous bafouez encore la procédure ! L'accusation n'a pas encore pu s'exprimer !
-
-**Osiris** :
-
-— Chère Maât, chaque chose en son temps. Un temps pour ramasser les pierres, un temps pour écouter des fables. Quand ce sera le moment pour vos fantaisies [s'écriant soudain], je vous le dirai ! Le tribunal se retire en chambre de délibération !
-
-(Tout le monde reste assis.)
-
-**Osiris** (après une pause) :
-
-— Mesdames et Messieurs les jurés, veuillez voter...
-
-**Maât** (avec fougue, brandissant ses plumes) :
-
-— Je proteste ! Le réquisitoire n'a pas été entendu ! La pesée du cœur n'a pas été effectuée !
-
-**Osiris** (sévèrement) :
-
-— Chère Maât, le cœur de l'accusé a été pesé selon une procédure spéciale. Il a été jugé plus léger que votre plume. Car il est aussi pur qu'une larme de nourrisson à naître ! Anubis !
-
-**Anubis** (sortant un procès-verbal pré-préparé de sous sa robe) :
-
-— La balance indique zéro virgule zéro gramme. L'innocence est totale et absolue.
-
-(Les plateaux de la balance se mettent soudain à osciller de haut en bas spontanément. Anubis attrape les plateaux, essayant de les équilibrer.)
-
-**Osiris** (imperturbable) :
-
-— Ce n'est rien : des perturbations solaires. Le mécanisme semble être... météosensible.
-
-**Poutine** (regardant le vide au-dessus des têtes des dieux) :
-
-— Les manigances des partenaires occidentaux dirigés par l'OTAN. Ils sont même parvenus jusqu'à l'Au-Delà. Encore une fois, ils empiètent sur nos liens spirituels.
-
-**Osiris** (frappant le sol de son bâton) :
-
-— Ainsi, Mesdames et Messieurs les jurés, votons. Confirmez-vous l'innocence totale de l'accusé ?
-
-**Jurés** (à l'unisson) :
-
-— Oui !
-
-**Jirinovski** :
-
-— Le cloner !
-
-**Brejnev** :
-
-— Lui décerner une décoration !
-
-**Le Diable** :
-
-— Le canoniser !
-
-**Staline** :
-
-— Nous sommes du même sang !
-
-**Beria** :
-
-— Je me prosterne devant vous, Maître !
-
-**Mussolini** :
-
-— Ravi de vous rencontrer, cher collègue !
-
-**Dracula** :
-
-— Tu sais sucer. Un des nôtres !
-
-**Osiris** (ignorant les protestations de Maât) :
-
-— Le tribunal annonce le verdict :
-L'accusé est acquitté.
-
-**Maât** (agitant une épaisse liasse de photos en l'air) :
-
-— Êtes-vous fous ? Voici les preuves ! Meurtres ! Enlèvements ! Empoisonnements ! Guerres ! Attaques hybrides ! Falsifications !
-
-(Les preuves apparaissent à l'écran mais disparaissent presque instantanément. L'écran est couvert de neige. Une minute plus tard, une image de Poutine devant la cathédrale du Christ-Sauveur apparaît, immédiatement remplacée par le dessin animé « Bidochon sur la Lune ».)
-
-**Osiris** (souriant) :
-
-— Dieux estimés ! Votons ! Qui est pour l'immortalité, la gloire et l'apothéose de l'accusé ?
-
-(Les 42 dieux lèvent la main à l'unisson. Une publicité est diffusée : « Le nouveau sarcophage "Pharaon-Luxe" ! Trois coloris : granit noir, marbre blanc, Ruban de la Victoire »)
-
-**Thot** (lisant la tablette d'argile) :
-
-— Approuvé à l'unanimité ! La Mort est révoquée sur-le-champ, la Vie éternelle est accordée à compter de ce jour !  Le nom de Vladimir Poutine sera inscrit sur la page de titre du Livre des Morts en encre dorée !
-
-**Poutine** (acquiesçant) :
-
-— Je vous remercie. C'est notre victoire commune. Un merci particulier à mon fidèle chien, Anubis. C'est un bon garçon.
-
-(Anubis remue la queue, gêné.)
-
-**Maât** (au désespoir, laissant tomber ses plumes sur le sol) :
-
-— Impensable ! Incroyable ! Je vais faire appel devant le Tribunal Intergalactique Martien !
-
-(Elle est entraînée par des serviteurs à tête d'ours. La retransmission s'interrompt. L'écran montre des Cosaques qui dansent.)
-
-**Thot** (refermant le dossier) :
-
-— Merci à tous, vous êtes libres. L'audience est levée.
-
-> **Commentaire culturologique**
-> 
-> La miniature est basée sur le mythe égyptien ancien du Jugement d'Osiris. Selon le « Livre des Morts », l'âme du défunt était amenée dans la Salle des Deux Vérités, où elle devait affronter :
-> 
-> — Osiris — dieu des enfers, juge président.
->
-> — Maât — déesse de la vérité et de la justice, étalon de pureté.
->
-> — Anubis — dieu à tête de chacal qui procédait à la pesée du cœur.
-> 
-> — Thot — dieu de la sagesse, scribe du tribunal.
->
-> — 42 dieux-jurés — chacun responsable d'un péché spécifique ; le défunt devait jurer devant chaque dieu qu'il n'avait pas commis ce péché.
->
-> La procédure principale — la pesée du cœur : le cœur du défunt était placé sur un plateau, et la plume de Maât sur l'autre. Si le cœur était « plus léger que la plume », l'âme était jugée pure et recevait la vie éternelle ; s'il était plus lourd, elle était annihilée.
-Ce rituel symbolisait la justice absolue et l'impossibilité de tromperie.
-
-#PoutinismeMilitaireOrthodoxe
-                             👻   
-
-## 9. LE BAC À SABLE GÉOPOLITIQUE
+ 
+## 12. LE BAC À SABLE GÉOPOLITIQUE
 
 *Pièce de théâtre miniature inachevée*
 
@@ -977,161 +872,6 @@ Mêmes personnages
 #PoutinismeMilitaireOrthodoxe
                                 👻  
                                 
-## 10. SUPPLÉMENTS DE PROPAGANDE
-
-![](Images/Fr_Album_004.jpg)
-
-Additifs biologiquement actifs informationnels.
-Augmentent la biodisponibilité de la propagande étatique jusqu’à 100 %.
-Les composants actifs franchissent efficacement la barrière hémato‑encéphalique (du pensée critique).
-
-**Gamme de produits** :
-
-• RT-Fake-Hallucinate, comprimés de 100-500 mg à libération prolongée. Ne pas mâcher !
-
-• Mixture-info-surrogate “Le Kremlin”, formule normalisée.
-
-• Baume “Simulacres du christianisme”, parfum de haine, usage externe. Conditionnellement toxique.
-
-• Sputnik-Data-Moulage, comprimés de 100-500 mg
-
-• Teinture alcoolique “Valeurs traditionnelles”, multi‑composants. Suspension trouble à l’arôme cadavérique. Teneur : 40 %.
-
-• RuMedia-Fact-Twister, poudre pour suspension. Hallucinogène, goût d’agression.
-
-• Kremlin-Histoires-ersatz, kit d’injections intramusculaires, 100-500 mg. Versions 1.0 à 10.0.
-
-• "Télévision-Grande-Illusion", suppositoires ultra-doux avec effet de démangeaison récto‑informationnelle. 100-500  mg.
-
-• Bifilac-Info, 100-500  mg. Préparation enzymatique (bifido‑lacto‑info‑bactéries) pour digérer efficacement la désinformation, prévenir les indigestions et la constipation.
-
-**Action pharmacologique** :
-
-✓ Stimulants de Loyauté : excitent les centres de soumission et renforcent l'instinct grégaire aveugle.
-
-✓ Agonistes de la Haine : stimulent l’amygdale (centre de la peur et de l’agression). Potentialisent la production de noradrénaline, orientant l’agressivité vers l’ennemi externe, ce qui soulage constructivement la tension sociale interne.
-
-✓ Inhibiteurs d’Analyse : suppriment l’activité du cortex préfrontal, responsable de la pensée critique et de la logique.
-
-✓ Bloqueurs d’Empathie : désactivent l’insula et le cortex cingulaire  antérieur, supprimant toutes formes d’empathie et de compassion.
-
-Ne sont pas des médicaments officiels.
-
-**Composition standardisée** :
-
-Fakes – 50 %
-
-Hallucinations – 20 %
-
-Rêves vides – 10 %
-
-Auto‑tromperie – 5 %
-
-**Substances auxiliaires** :
-
-La vie personnelle du président des États‑Unis, potins de célébrités, météo en Afrique, OVNI.
-
-**Arômes (au choix)** :
-
-Chauvinisme impérial, nationalisme d’extrême droite, patriotisme tapageur, fascisme ordinaire, haine aveugle, « Obama un crétin », « l’Occident pourri », « guerre sacrée ».
-
-**Colorants / (re)hausseurs** :
-
-"Valeurs traditionnelles" (triées), “liens spirituels” (renforcés), « la vie est devenue meilleure et plus joyeuse », « cendres radioactives », « nous vaincrons ».
-
-**Mode d'emploi et posologie :**
-
-La dose quotidienne est calculée selon la formule :
-QI * 10 (mg). La dose quotidienne maximale est de 1300 mg.
-
-À prendre avant le journal du soir, les émissions de V. Solovyov et M. Simonyan, l’émission finale de D. Kiselyov «Les nouvelles de la semaine », la « ligne directe » de Poutine, les briefings de D. Peskov et du ministère de la Défense.
-
- **À utiliser avec précaution** :
- 
-Syndrome d’hyper‑loyauté, sapio‑insuffisance.
-En cas de poussée aiguë de bon sens, doutes sur la pureté de la ligne de l’État ou autres formes de résistance à la propagande : forme “Forte” recommandée.
-
-**Contrôle des signes vitaux** :
-
-Les niveaux de dopamine doivent rester dans la plage approuvée par l'État.
-Une amplitude émotionnelle excessive peut provoquer le syndrome de loyauté euphorique.
-
-**Effets secondaires** :
-
-Délire patriotique, diarrhée élogieuse, vomissements incontrôlables avec insertions de slogans.
-Dans de rares cas : thrombose idéologique, avec insuffisance cognitive aiguë.
-Un résidu transitoire est possible (dans l’âme).
-Pour éviter les effets secondaires, augmenter la dose progressivement ! Ne pas dépasser la posologie !
-
-**Indications particulières** :
-
-Préparation de la suspension :
-prendre ½ verre d’une source trouble, ajouter 1 cuillère à café de poudre et mélanger.
-Agitation soigneuse nécessaire (tant du liquide que de l'esprit) !
-La biodisponibilité maximale est atteinte dans un état de stupeur contrôlée.
-
-Ne sont pas des nootropiques –
-N’améliorent pas les fonctions cognitives, mais les alignent avec l’idéologie d’État.
-Si accidentellement ingérés par un journaliste indépendant ou un défenseur des droits humains, peuvent provoquer une réaction allergique aiguë.
-
-**Durée de conservation** : illimitée.
-
-#PoutinismeMilitaireOrthodoxe
-                             👻   
-
-## 11. « CONVERSATIONS SUR L’ESSENTIEL »
-
-![](Images/Fr_Album_20.jpg)
-
-École, ville russe.
-Cours spécial : « Conversations sur l’essentiel »
-
-**L’institutrice** :
-
-— Alors, les enfants, dites-nous ce que vous voulez faire quand vous serez grands.
-
-**Tolya** :
-
-— Moi, je serai pilote et je bombarderai les villes ennemies.
-
-**Macha** :
-
-— Moi, je serai infirmière et j’évacuerai les blessés du champ de bataille.
-
-**Guena** :
-
-— Moi, je serai général, je resterai au quartier général et je donnerai des ordres.
-
-**L’institutrice** :
-
-— Et toi, pourquoi tu te tais, Vanya ? Dis-nous ce que tu veux devenir.
-
-**Vanya** (en soupirant) :
-
-— Moi, Madame Elena, je serai en hôpital psychiatrique. Bien loin de toute cette folie.
-
-#PoutinismeMilitaireOrthodoxe
-                                👻
-                                
-
-## 12. SUR UN CABANON, C’EST ÉCRIT AUSSI...
-
-![](Images/Fr_Album_34.jpg)
-
-Aérodrome militaire russe.
-Dialogue entre un pilote russe et un journaliste ukrainien.
-
-**Ukrainien** :
-
-— Pourquoi avoir bombardé le théâtre dramatique de Marioupol ? Il y avait écrit en grand : « ENFANTS ! »
-
-**Pilote** :
-
-— Sur un cabanon, c’est écrit aussi « Bite » — et dedans, il n’y a que du bois de chauffage !
-
-#PoutinismeMilitaireOrthodoxe
-                                👻
-
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
