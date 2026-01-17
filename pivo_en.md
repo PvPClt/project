@@ -1,6 +1,7 @@
 [**Main Page**](index.md)
 
-# Putin’s LOGOS: Keynote Speeches, Dialogues Off the Record
+# IN THE HALL OF A THOUSAND TRUTHS 
+### Beer, Deals, Semantics of Decay, and the Biochemistry of Power
 
 **CONTENTS**
 
@@ -702,6 +703,7 @@ We won’t actually have to persecute dissenters — for the simple reason that 
 
 #OrthodoxMilitaryPutinism
                               👻  
+
 
 
 ## 9. TRUMPUTATION HAPPY HOUR 
