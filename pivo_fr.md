@@ -15,7 +15,7 @@
 
 [5.Opération d'infiltration culturelle](pivo_fr.md#5-opération-dinfiltration-culturelle)
 
-[6. Au secours ! Les ennemis pillent la langue russe !](pivo_fr.md#6-au-secours--les-ennemis-pillent-la-langue-russe)
+[6. Au secours ! Les ennemis pillent la langue russe !](pivo_fr.md#6-au-secours--les-ennemis-pillent-la-langue-russe-)
 
 [7. Bases scientifiques de la propagande](pivo_fr.md#7-bases-scientifiques-de-la-propagande)
 
@@ -1046,3 +1046,4 @@ Imagine que tu te tiens devant le globe comme devant une dinde d'Action de Grâc
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
 [**Page d'accueil**](index.md)
+
