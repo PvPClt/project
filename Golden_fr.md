@@ -20,8 +20,7 @@ Le dossier de la « Douzaine d’Or » présenté ici dissèque quatre pathologi
 
 Voici ci-dessous la Douzaine d'Or — douze miniatures diagnostiques clés. Elles servent à la fois d'introduction et de preuve conceptuelle concluante.
 
-**TABLE DES MATIÈRES**
-:
+**SOMMAIRE** :
 
 [1. Le Nouveau Testament Supernovaire](Golden_fr.md#1-le-nouveau-testament-supernovaire)
 
