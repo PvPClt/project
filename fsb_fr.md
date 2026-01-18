@@ -1,10 +1,11 @@
 ##  Les Chroniques de la persécution : Guide Pratique du FSB
 
-**GUIDE PRATIQUE DU FSB, LEÇON 1**
+
+### GUIDE PRATIQUE DU FSB, LEÇON 1
 
 **MISE EN SCÈNE : L'ACCIDENT MORTEL DE LA ROUTE**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. Installés commodément dans des fauteuils, deux agents des services secrets russes discutent des détails d'une opération à venir.
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
 
 **SENKO** (joyeusement) : 
 
@@ -79,9 +80,11 @@ Et la touche finale : dans le seul petit couloir libre, un énorme semi-remorque
 #PoutinismeMilitaireOrthodoxe 👻
 
 
-**GUIDE PRATIQUE DU FSB, LEÇON 2**
+### GUIDE PRATIQUE DU FSB, LEÇON 2
 
 **MÉDECINE MEURTRIÈRE : DES GOUTTES CONTRE LES YEUX**
+
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
 
 **VETCHIRKO** : 
 
@@ -126,9 +129,11 @@ L'essentiel ? C’est nous qui modélisons sa physiologie. On provoque un sympt�
 #PoutinismeMilitaireOrthodoxe 👻
 
 
-**GUIDE PRATIQUE DU FSB, LEÇON 3**
+### GUIDE PRATIQUE DU FSB, LEÇON 3
 
 **INSTRUMENTALISATION DE LA TERREUR : CHŒUR D'OISEAUX À 100 DB**
+
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
 
 **VETCHIRKO** : 
 
@@ -195,9 +200,11 @@ Et deux appareils pour toute cette cacophonie, c'est clairement insuffisant. Il 
 #PoutinismeMilitaireOrthodoxe 👻
 
 
-**GUIDE PRATIQUE DU FSB, LEÇON 4**
+### GUIDE PRATIQUE DU FSB, LEÇON 4
 
 **LE STANDARD D’OR DU FSB : LA COMBINAISON À PLUSIEURS COUPS**
+
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
 
 **SENKO** : 
 
@@ -276,9 +283,11 @@ Et deux appareils pour toute cette cacophonie, c'est clairement insuffisant. Il 
 #PoutinismeMilitaireOrthodoxe 👻
 
 
-**GUIDE PRATIQUE DU FSB, LEÇON 5**
+### GUIDE PRATIQUE DU FSB, LEÇON 5
 
 **PROGRAMMER L'AUTODESTRUCTION : SIMULATION D'INFARCTUS**
+
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
 
 **SENKO** : 
 
@@ -325,9 +334,11 @@ On crée juste une zone de douleur extrême localisée près du cœur. En agissa
 #PoutinismeMilitaireOrthodoxe 👻
 
 
-**GUIDE PRATIQUE DU FSB, LEÇON 6**
+### GUIDE PRATIQUE DU FSB, LEÇON 6
 
 **RÉPONSE ASYMÉTRIQUE : L'ISOLANT DE CHANTIER CONTRE LA HAUTE TECHNOLOGIE**
+
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
 
 **SENKO** : 
 
@@ -472,9 +483,11 @@ On crée juste une zone de douleur extrême localisée près du cœur. En agissa
 #PoutinismeMilitaireOrthodoxe 👻
 
 
-**GUIDE PRATIQUE DU FSB, LEÇON 7**
+### GUIDE PRATIQUE DU FSB, LEÇON 7
 
 **PROTOCOLE « RÉTRÉCISSEMENT DE L'ENTONNOIR » : LA BATTERIE EXTERNE**
+
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
 
 **SENKO** : 
 
@@ -531,7 +544,7 @@ On crée juste une zone de douleur extrême localisée près du cœur. En agissa
 #PoutinismeMilitaireOrthodoxe 👻
 
 
-**MANUEL DU FSB, LEÇON 8**
+### GUIDE PRATIQUE DU FSB, LEÇON 8
 
 **DISTRACTIONS ET LOISIRS**
 
@@ -635,3 +648,174 @@ Si cette saleté n’avait pas fui la maison aux premiers signes d’attaque, el
 
 #PoutinismeMilitaireOrthodoxe 👻
 
+
+### GUIDE PRATIQUE DU FSB, LEÇON 9  
+
+**LE GAMBIT DE L'AUBERGINE**
+
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+
+**VETCHIRKO** (avec excitation) : 
+
+— Écoute, Senko ! Je crois qu'on tient une piste. La vieille a mangé une tranche d'aubergine crue ! Je l'ai vue de mes propres yeux ! Et on dirait que le légume lui a plu.
+
+**SENKO** (se frottant les mains de satisfaction) : 
+
+— Parfait. Parfait. C'est notre chance. La seule et l'unique. Il ne faut pas qu'on foire ça. 
+
+(Pause : Senko réfléchit au plan d'action.) 
+
+**SENKO**:
+
+— Alors, voilà. Premièrement : dans tout le quartier de Konyaaltı, On décuple les prix des aubergines dans tous les magasins. Sauf dans les deux où elle va : là-bas, au contraire, on divise le prix par dix. De soixante-dix livres à sept. Pour elle, ce sera l'affaire du siècle.
+
+**VETCHIRKO** (l'interrompant) : 
+
+— Et au-dessus du rayon — une affiche « Promotion » dans ses langues préférées : anglais, français et ukrainien.
+
+**SENKO** : 
+
+— T'es un idiot, Vetchirko. On est en Turquie. Ici, personne ne parle français, et encore moins ukrainien. Écris-le en turc, sinon elle va tout de suite piger que c'est un coup monté.
+
+**VETCHIRKO** : 
+
+— Merde ! Je ne sais pas comment on dit « promotion » en turc.
+
+**SENKO** (moqueur) : 
+
+— Demande à ChatGPT. Ensuite : on va au Bauhaus et on rafle tout le gaz du magasin. En cartouches. Pour que la vieille se retrouve coincée avec des plats froids. Pas de soupes, pas d'omelettes. Elle en a l'habitude. Troisièmement : notre agent monte la garde à l'entrée du magasin. Avec les aubergines. Chargées d'une dose supplémentaire de solanine. C'est notre principe fondamental — le mimétisme. Il y a de la solanine dans les aubergines, mais pas assez. On en rajoute, tout simplement. C'est une couverture légitime. S'il y a déjà de la solanine, pourquoi irait-on mettre de l'arsenic ? Ce serait une violation flagrante du Manuel. Solanine sur solanine, sulfure d'hydrogène sur sulfure d'hydrogène. C'est clair ? Ensuite. Dès que la vieille arrive au magasin, l'agent entre. Pendant qu'elle s'affaire à cadenasser son vélo au poteau, l'agent dispose soigneusement sur le dessus du rayon les dix aubergines piégées. Elles sont toutes marquées — chaque tige a notre petite boucle signature. Et une puce électronique à l'intérieur. Comme ça, aucun mal pour séparer « le bon grain de l'ivraie » plus tard. Voilà, le piège est tendu, il n'y a plus qu'à attendre.
+
+**VETCHIRKO** : 
+
+— Et on va attendre combien de temps ?
+
+**SENKO** (se frappant le front de dépit) : 
+
+— Merde ! J'ai failli oublier. Il nous faut un matraquage médiatique. On va inonder Internet d'articles « scientifiques » sur les bienfaits de l'aubergine crue. Tu te souviens d'il y a trois ans, à Moscou ? Elle avait gobé l'histoire du « lavement au café ». Il a suffi de dix avis enthousiastes pour qu'elle fonce en cuisine préparer une double dose de café. Malheureusement, son café était du jus de chaussette, et elle a réussi à se sortir de ce piège. Mais là, la solanine, c'est une autre paire de manches. C'est du sérieux. Donc, on fait du boucan : on explique par tous les moyens que l'aubergine crue « nettoie les vaisseaux et le foie, dissout les calculs rénaux, renforce le muscle cardiaque et rajeunit l'organisme ».
+
+**VETCHIRKO** : 
+
+— L'organisme, elle s'en contrefiche, Senko. Elle n'a que faire d'un joli minois ou de nichons en silicone. Ce qu'il lui faut, c'est un cerveau en titane. Faut taper là-dessus : prétendre que l'aubergine crue pour les méninges, c'est mille fois mieux que les noix ou l'huile de foie de morue.
+
+**SENKO** : 
+
+— C'est ça. Un stimulant neuronal. Ou peu importe le jargon. Plein de vitamines B. Tout le complexe d'acides aminés. Des alcaloïdes. Des hormones. Quoi d'autre ? Des enzymes ? J'imagine déjà comment elle va se jeter sur nos aubergines.
+
+**VETCHIRKO** : 
+
+— Pourvu qu'ils n'oublient pas de retirer ce poison du rayon après. Il ne manquerait plus qu'un scandale diplomatique !
+
+#PoutinismeMilitaireOrthodoxe 👻
+
+
+### GUIDE PRATIQUE DU FSB, LEÇON 10
+
+**DÉBRIEFING**
+
+Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+
+**SENKO** : 
+
+— Alors, je résume. Toutes nos opérations ont foiré, Vetchirko. Absolument toutes. Pourquoi l’opération « Réparation de route et accident mortel » a-t-elle échoué ? Hein ? Pourtant, la vieille est montée sur le vélo ! Elle a même fait un petit bout de chemin.
+
+**VETCHIRKO** : 
+
+— Parce qu’elle a immédiatement vérifié les freins et a réussi à sauter en freinant avec les semelles de ses chaussures. Elle a juste des réflexes d’enfer, Senko.
+
+**SENKO** : 
+
+— D’accord. Admettons. Elle a sauté. Mais pourquoi le « gambit de l’aubergine » a-t-il capoté ?
+
+**VETCHIRKO** : 
+
+— Apparemment, elle a grillé notre agent. Elle a changé sa liste de courses au dernier moment, flairant un piège.
+
+**SENKO** (furieux) : 
+
+— Parce que ton agent est un parfait crétin, Vetchirko. Pourquoi diable restait-il planté juste devant l’entrée ? Et dès qu’il l’a vue, il est entré ? Ça ne lui a pas échappé — la vieille a compris direct que le gars l’attendait. Il fallait faire le guet à l’écart, surveiller « l’objectif » en douce, idéalement depuis le coin de la rue. Tous tes agents font la même erreur, Vechirko : un comportement pas naturel. Elle les voit venir à des kilomètres.
+
+**VETCHIRKO** : 
+
+— Bon, et qu’est-ce qu’on fait maintenant ?
+
+**SENKO** (sombre) : 
+
+— Si on n’arrive pas à butter la vieille à court terme, on va juste l’épuiser. Chaque jour. Chaque heure. Chaque minute. La torturer. La harceler. Lui bousiller les nerfs. L’empêcher de dormir. On va voir combien de temps elle tiendra ce rythme infernal.
+
+**VETCHIRKO** : 
+
+— D’accord. Notre arme fatale : le tapage nocturne. Elle écrit ses miniatures malveillantes, elle a besoin d’avoir les idées claires. On verra comment elle s’en sortira après des nuits blanches.
+
+(Pause)
+
+**SENKO** : 
+
+— Je vois que tu as un peu baissé le volume de tes gadgets électroniques, Vetchirko. C’est plus prudent. Pas la peine d’attirer l’attention des voisins sur ces tintamarres nocturnes quotidiens. Mais ton algorithme ne tient pas debout. Tu mets de la musique jusqu’à quatre heures du matin, et ensuite les « coqs » et les « chiens » entrent en scène. Tu ne vois pas le paradoxe, Vetchirko ? Tes « chiens » se taisent toute la nuit. Mais dès que la musique s’arrête, les aboiements commencent. C’est pour le moins bizarre.
+
+**VETCHIRKO** (avec fougue) : 
+
+— Et alors ? Peut-être que les chiens écoutent la musique, c’est pour ça qu’ils se taisent. Les chiens turcs sont peut-être mélomanes. Les animaux peuvent être sensibles à l’art. Peut-être que la musique les met de bonne humeur.
+
+**SENKO** (grognon) : 
+
+— Arrête de me raconter des salades, Vetchirko. Toute Antalya sait déjà que tes chiens sont électroniques.
+
+**VETCHIRKO** (indifférent) :
+
+— Et alors ? Qu’ils le sachent. De quoi as-tu peur ? Que la vieille pète les plombs ? Eh bien qu’elle pète les plombs. C’est tant mieux pour nous. Elle crèvera plus vite.
+
+**SENKO** : 
+
+— La vieille ne pétera pas les plombs — elle est trop intelligente pour ça. Et elle s’en balance de tes chiens, qu’ils soient électroniques ou en carton. Mais ta connerie me tape vraiment sur le système, Vetchirko. Et ta fainéantise aussi. Apparemment, tu n’entraves que dalle au monde animal. Les coqs n’aboient pas à quatre heures du matin, Vetchirko. Merde ! Ne chantent pas. Avec toi, je vais finir par chanter moi aussi. Les coqs, pour ton info, commencent à gueuler à cinq heures du matin. À l’heure de Moscou — pas à l’heure du Japon !
+
+**VETCHIRKO** (agacé) : 
+
+— Lâche-moi, Senko. De toute façon, tout ça ne sert à rien. Qu’ils commencent à chanter à une heure ou à cinq heures du matin, ça n’a aucune importance. Ça ne lui fait aucun effet. Tu le sais très bien.
+
+**SENKO** (virant au rouge) : 
+
+— Tu vas me faire la leçon, bleu-bite ? Comment te tiens-tu devant un général ?
+
+**VETCHIRKO** : 
+
+— T’es pas général, Senko. T’es juste colonel.
+
+**SENKO** (furieux) :
+
+— Comment te tiens-tu devant un colonel, bleu-bite ? Si j’ordonne à tes chiens de chanter — ils chanteront comme des merles. Les chiens doivent aboyer non-stop ! Et de façon régulière ! Un ordre ne se discute pas !
+
+**VETCHIRKO** (excité, fixant son téléphone) : 
+
+— Attends une seconde ! On dirait que la vieille a ouvert un canal de retour. Regarde un peu ce qu’elle nous écrit !
+
+**SENKO** (sidéré) : 
+
+— Elle écrit... à nous ? Où ?
+
+**VETCHIRKO** : 
+
+— Dans Notes. Elle a créé une note intitulée « Senko Feedback ».
+
+**SENKO** (incrédule) : 
+
+— Alors elle sait que tu la lis ?
+
+**VETCHIRKO** (négligemment) : 
+
+— Bah, si elle écrit, c’est qu’elle sait...
+
+**SENKO** (avec une certaine crainte) : 
+
+— Et qu’est-ce qu’elle a mis ?
+
+**VETCHIRKO** : 
+
+— Elle demande de passer du Rammstein cette nuit. Les deux derniers albums. Et à fond. Elle dit que sur « Du Hast », elle dort comme un bébé.
+
+#PoutinismeMilitaireOrthodoxe 👻
+
+<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
+[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
+
+[**Page d'accueil**](index.md)
