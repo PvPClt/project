@@ -1,10 +1,11 @@
 ## The Persecution Chronicles: FSB Playbook
 
+
 ### FSB PLAYBOOK, LESSON 1
 
 **PERFORMANCE: FATAL ACCIDENT**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers discuss the details of an upcoming operation.
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO** (cheerfully):
 
@@ -103,7 +104,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 
 **DEADLY MEDICINE: EYE DAMAGING DROPS**
 
-Russia, Moscow. A cozy high-rise apartment. Relaxing comfortably in armchairs, two Russian intelligence officers talk shop.
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
 
 **VECHIRKO** (bitterly): 
 
@@ -164,7 +165,7 @@ Russia, Moscow. A cozy high-rise apartment. Relaxing comfortably in armchairs, t
 
 **INSTRUMENTALIZING TERROR: A BIRD CHORUS AT 100 dB**
 
-Russia, Moscow. A cozy high-rise apartment. Relaxing comfortably in armchairs, two Russian intelligence officers talk shop.
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
 
 **VECHIRKO**:
 
@@ -243,7 +244,7 @@ Russia, Moscow. A cozy high-rise apartment. Relaxing comfortably in armchairs, t
 
 **FSB GOLD STANDARD: MULTI-STEP GAMBIT**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers discuss the details of an operational plan.
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**:
 
@@ -325,7 +326,7 @@ Have you ever seen such crap, Senko? God, she makes me sick!
 
 **PROGRAMMING SELF-DESTRUCTION: THE HEART-STOP PROTOCOL**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers talk shop.
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**: 
 
@@ -394,7 +395,7 @@ Take the heart. Last century, we used glycosides. Pure poison. Any hack with a m
 
 **THE ASYMMETRIC RESPONSE: BUILDING INSULATION VS HIGH-TECH TOXINS**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers talk shop.
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**: 
 
@@ -543,7 +544,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 
 **THE POWER BANK PROTOCOL: TARGETING THE LIFELINE**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably in armchairs, two Russian intelligence officers talk shop.
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**: 
 
@@ -604,7 +605,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Relaxing comfortably i
 
 **OFF-DUTY ENTERTAINMENT**
 
-Moscow, Russia. A cozy high-rise apartment. Two glasses and a bottle of top-shelf cognac on the table. Kicking back in their leather armchairs, two Russian intelligence officers are shooting the breeze.
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs. Two glasses and a bottle of top-shelf cognac on the table. 
 
 **VECHIRKO**:
 
@@ -704,4 +705,181 @@ Moscow, Russia. A cozy high-rise apartment. Two glasses and a bottle of top-shel
 #OrthodoxMilitaryPutinism 👻
 
 
+### FSB PLAYBOOK, LESSON 9
+
+**THE EGGPLANT GAMBIT**
+
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+
+**VECHIRKO** (excitedly): 
+
+— Listen, Senko! I think we’ve got a lead. The old bitch ate a slice of raw eggplant! I saw it myself! And it seems she actually liked the taste of it!
+
+**SENKO** (rubbing his hands with satisfaction): 
+
+— Excellent. Excellent. This is our chance. The one and only. We must try not to screw this up. 
+
+(Pause: Senko ponders the plan.) 
+
+**SENKO**:
+
+— Here’s what we'll do. First: raise eggplant prices 10-fold across the entire Konyaaltı district. But in the two stores she goes to, drop the prices 10-fold instead. From seventy liras to seven. For her, it’ll look like an irresistible bargain.
+
+**VECHIRKO** (interrupting): 
+
+— And over the display — a huge sign: "SALE," in her favorite languages: English, French, and Ukrainian.
+
+**SENKO**: 
+
+— You’re an idiot, Vechirko. This is Turkey. Nobody speaks French here, let alone Ukrainian. Write it in Turkish, or she’ll realize it’s a setup. Right away.
+
+**VECHIRKO**: 
+
+— Damn! I don’t know the Turkish word for "sale."
+
+**SENKO** (mockingly): 
+
+— Ask ChatGPT. Moving on. Go to Bauhaus and buy up all the gas. Every single canister. We need the old bitch stuck with cold snacks. No soups, no omelets. She’s used to that. 
+
+Third: our agent waits at the store entrance. With eggplants. Loaded with an extra dose of solanine. This is our main principle — mimicry. Eggplants already have solanine, but not enough. We just add more. It’s legitimate cover. If they already contain solanine, why would we use arsenic? That would be a gross violation of the Playbook. Solanine to solanine, hydrogen sulfide to hydrogen sulfide. Clear? 
+
+Next. As soon as she bikes up to the store, the agent goes inside. While she’s busy locking her bike to a post, the agent carefully places ten "loaded" eggplants on top of the pile. Each one is marked — a signature curl on the stem. And a microchip inside. So later, separating the "wheat from the chaff" will be quite easy. That’s it, the trap is set. Now we just wait.
+
+**VECHIRKO**: 
+
+— How long do we wait?
+
+**SENKO** (slapping his forehead in frustration): 
+
+— Dammit! Almost forgot. We need heavy info-support. Flood the internet with "scientific" proof of the benefits of raw eggplants. Remember three years ago in Moscow, when she fell for the "coffee enema"? Ten glowing reviews were enough to make her rush to the kitchen to brew a double batch. Unfortunately, her coffee was third-rate, so she survived that trap. 
+
+Well, solanine is different. Solanine is serious business. So, stir up a media storm, describing in every possible way how raw eggplant "cleans blood vessels, dissolves kidney stones, and rejuvenates the body."
+
+**VECHIRKO**: 
+
+— She doesn’t care about her body, Senko. She doesn’t need a pretty face or silicone boobs. She needs a titanium brain. We'll hit her at this point: saying that raw eggplant is a thousand times better for brain effectiveness than walnuts or fish oil.
+
+**SENKO**: 
+
+— Right. A neuronal stimulant. Or whatever they call it. B-vitamins. Amino acids. Alkaloids. Hormones. What else? Enzymes? I can just see her pouncing on our eggplants.
+
+**VECHIRKO**: 
+
+— Just make sure they don’t forget to remove the poison from the shelf afterward. We don’t need a diplomatic scandal!
+
+#OrthodoxMilitaryPutinism 👻
+
+
+### FSB PLAYBOOK, LESSON 10
+
+**THE AFTER-ACTION REPORT**
+
+Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+
+**SENKO**: 
+
+— Alright, let’s recap. All our operations have failed, Vechirko. Every single one. Why did Operation "Road Repairs and Fatal RTA" collapse? Hmm? The old bitch actually got on the bike! She even rode it for a bit!
+
+**VECHIRKO**: 
+
+— Because she checked the brakes immediately and managed to bail, braking with the soles of her own boots. She just has lightning-fast reflexes, Senko.
+
+**SENKO**: 
+
+— Fine. Whatever. She bailed. What about the Eggplant Gambit?  Why did it fail?
+
+**VECHIRKO**: 
+
+— Apparently, she made our agent. She changed her shopping list on the fly because she smelled a rat.
+
+**SENKO** (viciously): 
+
+— Because your agent is a complete idiot, Vechirko! Why the hell was he loitering right by the entrance? And the moment he saw her, he walked straight inside? These facts didn’t escape her — the old bitch realized instantly that the guy was waiting specifically for her. He should have been lurking off to the side, watching the "target" on the sly, preferably from around a corner. All your agents suffer from the same mistake, Vechirko: unnatural behavior. She sees right through them.
+
+**VECHIRKO**: 
+
+— Well, what do we do now?
+
+**SENKO** (sullenly): 
+
+— If we can’t kill the old bitch in the short term, we’ll just wear her down. Every day. Every hour. Every minute. Harass her. Grate on her nerves. Drive her to despair. Deny her sleep. Intimidate her. Escalate the atmosphere. Let’s see how much of this hellish life she can take.
+
+**VECHIRKO**: 
+
+— Agreed. Our primary weapon is nighttime noise. She’s writing those malicious miniatures of hers; she needs a clear head for that. Let’s see how she manages after a few sleepless nights.
+
+(A pause.)
+
+**SENKO**: 
+
+— I see you’ve lowered the volume on your electronic devices slightly, Vechirko. That’s wise. No need to draw the locals' attention to the daily nocturnal cacophony. However, there are inconsistencies in your algorithm. You have music playing until 4:00 AM, and then the "roosters" and "dogs" start their performance. Don’t you see the paradox here, Vechirko? Your "dogs" are silent all night. But as soon as the music stops, the barking begins immediately. It looks strange, to say the least.
+
+**VECHIRKO** (heatedly): 
+
+— So what? Maybe the dogs are listening to the music, that’s why they’re quiet. Maybe Turkish dogs are music lovers. Animals can be sensitive to art. Maybe the music puts them in a benevolent mood.
+
+**SENKO** (grumpily): 
+
+— Don’t pull that crap with me, Vechirko. All of Antalya already knows your dogs are electronic.
+
+**VECHIRKO** (indifferently): 
+
+— So what? Let them know. What are you afraid of? That the old bitch will lose her mind? Let her. All the better for us. She’ll drop dead sooner.
+
+**SENKO**: 
+
+— The old bitch won’t lose her mind — she’s too smart for that. And she couldn’t care less whether your dogs are electronic or made of cardboard. But your stupidity is really starting to piss me off, Vechirko. And your laziness, too. It’s clear you know damn-all about the animal kingdom. Roosters don’t bark at four in the morning, Vechirko. Ugh, dammit! They don’t crow. You’ll have me crowing myself soon. Roosters, for your information, start screaming at five in the morning, Vechirko. Moscow time — not Japanese time.
+
+**VECHIRKO** (irritated): 
+
+— Get off my back, Senko. It’s all useless anyway. Whether they start crowing at 1:00 AM or 5:00 AM makes no difference. It doesn’t affect her. You know that perfectly well yourself.
+
+**SENKO** (turning purple with rage): 
+
+— You’re going to lecture me, you rookie? How dare you stand like that in front of a General?
+
+**VECHIRKO**: 
+
+— You’re not a General, Senko. You’re just a Colonel.
+
+**SENKO** (furious): 
+
+— How dare you stand like that in front of a Colonel, you rookie?! If I order your dogs to crow — they’ll crow like good little boys! Dogs should bark twenty-four-seven! And consistently! The order is not up for discussion!
+
+**VECHIRKO** (excitedly, looking at his phone): 
+
+— Wait a second! It looks like the old bitch has opened a feedback channel. Look at what she’s writing to us!
+
+**SENKO** (stunned): 
+
+— Writing... to us? Where?
+
+**VECHIRKO**: 
+
+— In her Notes. She started a memo called "Senko Feedback."
+
+**SENKO** (incredulously): 
+
+— So she knows you’re reading it?
+
+**VECHIRKO** (nonchalantly): 
+
+— Well, if she’s writing it, she obviously knows...
+
+**SENKO** (with a hint of timidity): 
+
+— And... what did she write?
+
+**VECHIRKO**: 
+
+— She’s asking us to play Rammstein tonight. The last two albums. And turn it up. Says she sleeps like a baby to "Du Hast."
+
+#OrthodoxMilitaryPutinism 👻
+
+
+<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
+[**List Of Charitable Foundations Assisting Ukraine**](en_funds)
+
+[**Main Page**](index.md)
 
