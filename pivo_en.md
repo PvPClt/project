@@ -29,6 +29,8 @@
 
 [12. A Fat and Fragrant Globe for Thanksgiving](pivo_en#12-a-fat-and-fragrant-globe-for-thanksgiving)
 
+[13. Deal of the Century](pivo_en#13-deal-of-the-century)
+
 
 ## 1. PUTIN IN THE HALL OF TWO TRUTHS: JUDGMENT OF OSIRIS
 
@@ -1032,10 +1034,56 @@ Imagine you’re standing before the globe as if it were a fat, fragrant Thanksg
 
 #OrthodoxMilitaryPutinism
                             👻  
+
+## 13. DEAL OF THE CENTURY
+
+![](Images/All_Album_68.jpg)
+
+American bar. US President Donald Trump and Russian President Vladimir Putin at a table, drinking beer.
+
+**Putin**:
+
+— So, Donny. Any progress on the Greenland front?
+
+**Trump** (offended):
+
+— Total disaster. A complete humiliation, Vova. These people… they don’t appreciate America! Pathetic. America is winning like never before, we’re a great power — the greatest. They should be begging us. Instead, they’re being very obstinate. Very rude. Who do these so-called "leaders" think they are, defying me? The world’s greatest dealmaker, the ultimate peacekeeper? I’ll tell you what — people are stupid. Low-IQ individuals. I’ve known it forever. I’m doing this for them, it’s a beautiful deal for them. And out of pure spite — can you believe the disrespect? — they send a "military force." Twenty-one soldiers! Twenty-one! (Scoffs) Tremendously scary. I’m terrified.
+
+**Putin**:
+
+— You're not wrong, Donny. The people... they rarely see the bigger picture. Can't tell what's good for them. Sometimes you have to... guide them firmly toward their own happiness. Like guiding children. For their own good, of course.
+
+**Trump**:
+
+— One hundred percent. Look, if I don't take Greenland — and it should be ours, a beautiful piece of real estate, by the way — then who protects them? From the threat? You know, the Russian threat, the Chinese threat... (holds up a hand) No offense, Vova, strictly business, we're friends. My so-called experts say, "Oh, Mr. President, no Russian subs there for years." Weak! So what? Maybe they're very good subs, the best at hiding. You don't see them today, then Boom! — ten tomorrow! Or twenty! Could be a hundred! It's a total security nightmare.
+
+**Putin** (with a faint, cold smile):
+
+— Offended? Don’t be ridiculous. You said it perfectly. It’s not personal, it’s geopolitics. A simple transaction. You want Greenland. I want Donbas. I have the submarines… you have certain leverage over Mr. Zelensky. And let’s be honest, you have the entire European Union eating out of your hand. The alignment of interests is… perfect.
+
+**Trump** (leaning in, eyes wide):
+
+— Whoa. Vova, wait. You’re saying… you’d really do it? For me? You’d wave your subs in NATO’s face and burn through, what, millions in diesel, just to help me get my deal? That’s huge!
+
+**Putin** (with a condescending, almost paternal smile):
+
+— Think of it as the partnership of the century, my friend. A signature achievement. So, what’s your preference? A discreet squadron of, say, ten submarines making a patrol near Greenland’s waters? Or should we make it more… visible? A training exercise for my special… aquatic tourism units on one of their lovely beaches?
+
+**Trump** (in a fervent, almost evangelistic tone):
+
+— Vova. Listen to me. What we have… it’s not a tandem. It’s a force of history. You and I, we’re not yin and yang — we’re two sides of the same unstoppable coin. We’re not a leap, we’re a revolution. Together… we don’t just change the weather, we change the laws of nature! Oceans obey, continents shift. A whisper becomes a command. The whole world… they’re not just on their knees. They’re watching, hearts pounding, waiting to see what we do next. It’s the greatest show, and we own the stage.
+
+**Putin** (chuckling, a genuine glint of amusement in his eyes):
+
+— Poetic. And profitable. To the architects of the new world, Donny. Shall we order another?
+
+#OrthodoxMilitaryPutinism
+                            👻                              
                               
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**Main Page**](index.md)
+
 
