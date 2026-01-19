@@ -5,7 +5,7 @@
 
 **PERFORMANCE: FATAL ACCIDENT**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO** (cheerfully):
 
@@ -104,7 +104,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian
 
 **DEADLY MEDICINE: EYE DAMAGING DROPS**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **VECHIRKO** (bitterly): 
 
@@ -165,7 +165,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian
 
 **INSTRUMENTALIZING TERROR: A BIRD CHORUS AT 100 dB**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **VECHIRKO**:
 
@@ -244,7 +244,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian
 
 **FSB GOLD STANDARD: MULTI-STEP GAMBIT**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**:
 
@@ -326,7 +326,7 @@ Have you ever seen such crap, Senko? God, she makes me sick!
 
 **PROGRAMMING SELF-DESTRUCTION: THE HEART-STOP PROTOCOL**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**: 
 
@@ -395,7 +395,7 @@ Take the heart. Last century, we used glycosides. Pure poison. Any hack with a m
 
 **THE ASYMMETRIC RESPONSE: BUILDING INSULATION VS HIGH-TECH TOXINS**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**: 
 
@@ -544,7 +544,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian
 
 **THE POWER BANK PROTOCOL: TARGETING THE LIFELINE**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**: 
 
@@ -605,7 +605,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian
 
 **OFF-DUTY ENTERTAINMENT**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs. Two glasses and a bottle of top-shelf cognac on the table. 
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs. Two glasses and a bottle of top-shelf cognac on the table. 
 
 **VECHIRKO**:
 
@@ -709,7 +709,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian
 
 **THE EGGPLANT GAMBIT**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **VECHIRKO** (excitedly): 
 
@@ -774,15 +774,15 @@ Well, solanine is different. Solanine is serious business. So, stir up a media s
 
 **THE AFTER-ACTION REPORT**
 
-Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian intelligence officers relaxing comfortably in armchairs.
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
 
 **SENKO**: 
 
-— Alright, let’s recap. All our operations have failed, Vechirko. Every single one. Why did Operation "Road Repairs and Fatal RTA" collapse? Hmm? The old bitch actually got on the bike! She even rode it for a bit!
+— Alright, let’s recap. All our operations have failed, Vechirko. Every single one. Why did Operation "Road Repairs and Fatal RTA" collapse? Eh? The old bitch did actually get on the bike! She even rode it for a bit!
 
 **VECHIRKO**: 
 
-— Because she checked the brakes immediately and managed to bail, braking with the soles of her own boots. She just has lightning-fast reflexes, Senko.
+— Because she checked the brakes immediately and managed to stop, braking with the soles of her own boots. She just has lightning-fast reflexes, Senko.
 
 **SENKO**: 
 
@@ -873,6 +873,99 @@ Russia, Moscow. A cozy apartment in a high-rise building. Inside — two Russian
 **VECHIRKO**: 
 
 — She’s asking us to play Rammstein tonight. The last two albums. And turn it up. Says she sleeps like a baby to "Du Hast."
+
+#OrthodoxMilitaryPutinism 👻
+
+
+### FSB PLAYBOOK, LESSON 11
+
+**MIKOLA'S TEAR**
+
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
+
+**VECHIRKO:**
+
+— So, Senko? Any news?
+
+**SENKO** (gloomily):
+
+— Mikola ended up in the psych ward. Tried to hang himself. Couldn't take it anymore. The man broke.
+
+**VECHIRKO:**
+
+— Why?
+
+**SENKO:**
+
+— His wife was killed. A rocket hit their bedroom dead-on. He himself survived by a miracle. Fuck... will this ever end?
+
+**VECHIRKO** (with a sigh):
+
+— It will end someday.
+
+**SENKO** (with undisguised hatred):
+
+— It's all the old bitch's fault. She's to blame for everything. Hates people. It's all because of her. And this war started because of her.
+
+**VECHIRKO** (doubtfully):
+
+— Well, that's unlikely, Senko. How could she have started this war?
+
+**SENKO** (oozing venom):
+
+— Go read her novel, Vechirko. Supposedly, God sends wars, disasters, and cataclysms upon the Earth to punish humanity for crucifying his daughter, whom he sent into the world as the second coming. When I was reading it, I couldn't shake the feeling that this  "God's daughter" character was meant as the image of herself. 
+
+**VECHIRKO:**
+
+— Don't dwell on it, Senko. The author just has a rich imagination.
+
+**SENKO** (stubbornly):
+
+— You yourself told me that as soon as the old bitch opens a website about natural disasters, the number of those very disasters increases tenfold. And the main thing — they become unprecedented. The earthquake in Iran — forty thousand corpses. The tsunami in Indonesia — half a million corpses. The nuclear plant disaster in Japan — unprecedented. And so on. The list is enormous.
+
+**VECHIRKO** (skeptically):
+
+— Do you really think she causes earthquakes with just a thought?
+
+**SENKO:**
+
+— I don't know. Maybe she just sheds tears and complains to her "god-father"? And he, in retaliation, punishes "entire nations for every single one of her tears"? That's what it says in her book, Vechirko. I'm not making anything up. This bloody book makes it clear enough that she's to blame for everything, the vile fucking old bitch. Because of her, this goddamn war has been going on for four years now and just won't end.
+
+(Long pause.)
+
+**VECHIRKO** (in a voice trembling with agitation):
+
+— But what if she's right, Senko? What if it's you and I who are to blame, and because of us, God is punishing the entire Ukrainian people?
+
+**SENKO** (with a contemptuous smirk):
+
+— What are you babbling about, Vechirko? Are you in your right mind or what? How are we involved in this at all?
+
+**VECHIRKO** (forcing the words out with difficulty):
+
+— If you look at it objectively, Senko. After all, it was us who barged into a foreign country in 1998, got Russian citizenship, and immediately started torturing, raping, and killing Russians. Ordinary people, Senko. Civilian population. And the old hag got the worst of it from us. You're not going to deny that, are you, Senko? And now Russians are doing the same thing in our historical homeland — in Ukraine. Barged into a foreign country; looting, raping, and killing. The civilian population, Senko. You know, that thought makes me... uneasy.
+
+**SENKO:**
+
+— You're an idiot, Vechirko. Decided to indulge in self-flagellation? That's not in our regulations. Better get back to work. And leave the high matters and metaphysics to philosophers and demagogues, like Dugin and Gundyaev.
+
+(Pause.)
+
+**SENKO:**
+
+— But even if that's truly the case — all the more reason we must kill her as soon as possible. No person, no problem, Vechirko. Even if that person is "God's daughter."
+
+**VECHIRKO** (apprehensively):
+
+— If we kill her, Senko... Won't God send a second Great Flood upon the Earth? Or something even worse?
+
+**SENKO** (smirking):
+
+— I don't believe in gods, Vechirko. But even if we assume a god exists... Jesus was killed — and so what, your god swallowed that. The globe survived and keeps spinning as if nothing happened. It looks like it'll endure anything, any murder and any crime. Well, maybe your god will throw a bit of a tantrum, can't be helped. But the main thing is — you and I are personally in no danger. You say he's punishing Ukraine for our sins? Let him go on, if that gives him pleasure. The main thing is — we are alive, well, and completely safe.
+
+**VECHIRKO** (aside, in a whisper):
+
+— *We're* safe. But Mikola is in the psych ward...
 
 #OrthodoxMilitaryPutinism 👻
 
