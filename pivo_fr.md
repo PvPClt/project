@@ -29,9 +29,10 @@
 
 [12. Un globe terrestre gras et parfumé pour action de grâce](pivo_fr#12-un-globe-terrestre-gras-et-parfumé-pour-action-de-grâce)
 
-## 1. POUTINE DANS LA SALLE DES DEUX VÉRITÉS : LE JUGEMENT D'OSIRIS
+[13. L'affaire du siècle](pivo_fr#13-laffaire-du-siècle)
 
-![](Images/Fr_Album_003.jpg)
+
+## 1. POUTINE DANS LA SALLE DES DEUX VÉRITÉS : LE JUGEMENT D'OSIRIS
 
 > Temple sacré de l’Égypte ancienne. À l’intérieur – procédure bien connue du Jugement du dieu Osiris, décrite dans le « Livre des Morts ». Y participent :
 > 
@@ -1040,11 +1041,57 @@ Imagine que tu te tiens devant le globe comme devant une dinde d'Action de Grâc
 
 #PoutinismeMilitaireOrthodoxe
                                 👻
-                                
+
+## 13. L'AFFAIRE DU SIÈCLE
+
+![](Images/All_Album_68.jpg)
+
+Bar américain. Le président russe Vladimir Poutine et le président américain Donald Trump, attablés, bière à la main.
+
+**Poutine :**
+
+— Alors, Donny, où en est ton petit projet groenlandais ?
+
+**Trump** (vexé) :
+
+— C'est le trou noir ! Tu te rends compte, Vova ? Ils refusent le cadeau ! L'Amérique, la plus grande nation de l'histoire, et ces minables osent dire non ? Ils devraient tomber à genoux pour nous remercier. À la place, ils font les fiers-à-bras. Mais ils se prennent pour qui, à résister à MOI ? Moi, le plus grand artisan de la paix que le monde ait jamais porté ? Les gens sont cons, je l'ai compris il y a des années. Je veux leur bien, et eux, par pure mesquinerie — t'imagine ? — ils envoient un « contingent militaire ». Vingt et un types ! Vingt et un ! (Il ricane) Oh là là, j'ai la trouille !
+
+**Poutine :**
+
+— Tu marques un point, Donny. Le peuple... il ne distingue jamais son intérêt. Il faut parfois... le guider vers le bonheur à coups de trique. Enfin, je veux dire, vers un avenir radieux. Comme des gamins qu'on mène à l'école. C'est comme ça.
+
+**Trump :**
+
+— Exactement ! Si je ne récupère pas le Groenland — et c'est une affaire en or, au passage — qui va les protéger ? De la menace, tu vois ? La menace russe, la menace chinoise... (Il lève la main) Sans rancune, Vova, c'est du business, on est potes. Mes experts bidons me sortent : « Monsieur le Président, plus de sous-marins russes depuis des lustres. » Pathétique ! Et alors ? Ils sont peut-être très doués pour se cacher, tes sous-marins. On ne les voit pas aujourd'hui, et PAF ! dix demain ! Vingt ! Ça pourrait être une centaine ! C'est une faille de sécurité inacceptable !
+
+**Poutine** (un fin sourire aux lèvres) :
+
+— Vexé ? Allons, Donny. Tu l'as dit : rien de personnel, que de la géopolitique. Un simple échange. Tu veux le Groenland. Je veux le Donbass. J'ai les sous-marins... Tu as une certaine... emprise sur M. Zelensky. Et soyons francs, tu tiens l'Union européenne dans le creux de ta main. La conjoncture est... idéale.
+
+**Trump** (les yeux brillants) :
+
+— Waouh. Vova, attends. Tu dis que... tu le ferais ? Pour moi ? Tu balancerais tes sous-marins sous le nez de l'OTAN et tu claquerais des millions en carburant, juste pour m'aider à conclure mon deal ? C'est énorme !
+
+**Poutine** (avec un sourire condescendant de connaisseur) :
+
+— On appellera ça l'entente du siècle, mon cher. Alors, tu préfères quoi ? Une discrète escadrille d'une dizaine de sous-marins en patrouille au large ? Ou on passe à la démonstration de force ? Un petit exercice de « tourisme subaquatique » sur l'une de leurs plages ?
+
+**Trump** (avec ferveur, baissant la voix) :
+
+— Vova. Écoute-moi bien. Ce qu'on a... c'est plus qu'un tandem. C'est un fait historique. Toi et moi, on n'est pas le yin et le yang, on est les deux faces de la pièce qui va remporter la partie. On n'est pas une transition, on est une révolution. Ensemble... on ne change pas la météo, on change les lois de la physique ! Les océans obéissent, les continents bougent. Un murmure devient un ordre. Le monde entier... il est pas juste à genoux. Il retient son souffle, le cœur battant, pour voir notre prochain move. C'est le plus grand spectacle, et la scène est à nous.
+
+**Poutine** (ricanant, un éclair d'amusement sincère dans le regard) :
+
+— C'est poétique. Et rentable. Aux architectes du monde nouveau, Donny. On se ressert ?
+
+#PoutinismeMilitaireOrthodoxe
+                                👻
+                              
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
 [**Page d'accueil**](index.md)
+
 
 
