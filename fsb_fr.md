@@ -5,7 +5,7 @@
 
 **MISE EN SCÈNE : L'ACCIDENT MORTEL DE LA ROUTE**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **SENKO** (joyeusement) : 
 
@@ -84,7 +84,7 @@ Et la touche finale : dans le seul petit couloir libre, un énorme semi-remorque
 
 **MÉDECINE MEURTRIÈRE : DES GOUTTES CONTRE LES YEUX**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **VETCHIRKO** : 
 
@@ -133,7 +133,7 @@ L'essentiel ? C’est nous qui modélisons sa physiologie. On provoque un sympt�
 
 **INSTRUMENTALISATION DE LA TERREUR : CHŒUR D'OISEAUX À 100 DB**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **VETCHIRKO** : 
 
@@ -204,7 +204,7 @@ Et deux appareils pour toute cette cacophonie, c'est clairement insuffisant. Il 
 
 **LE STANDARD D’OR DU FSB : LA COMBINAISON À PLUSIEURS COUPS**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **SENKO** : 
 
@@ -287,7 +287,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'in
 
 **PROGRAMMER L'AUTODESTRUCTION : SIMULATION D'INFARCTUS**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **SENKO** : 
 
@@ -338,7 +338,7 @@ On crée juste une zone de douleur extrême localisée près du cœur. En agissa
 
 **RÉPONSE ASYMÉTRIQUE : L'ISOLANT DE CHANTIER CONTRE LA HAUTE TECHNOLOGIE**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **SENKO** : 
 
@@ -487,7 +487,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'in
 
 **PROTOCOLE « RÉTRÉCISSEMENT DE L'ENTONNOIR » : LA BATTERIE EXTERNE**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **SENKO** : 
 
@@ -548,7 +548,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'in
 
 **DISTRACTIONS ET LOISIRS**
 
-Russie, Moscou. Un appartement confortable dans un immeuble. Sur la table, deux verres à vodka et une bouteille de cognac coûteux. Installés à l’aise dans des fauteuils, deux agents des services spéciaux russes bavardent de tout et de rien.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils. Sur la table, deux verres à vodka et une bouteille de cognac coûteux. 
 
 **VETCHIRKO** :
 
@@ -653,7 +653,7 @@ Si cette saleté n’avait pas fui la maison aux premiers signes d’attaque, el
 
 **LE GAMBIT DE L'AUBERGINE**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **VETCHIRKO** (avec excitation) : 
 
@@ -712,7 +712,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'in
 
 **DÉBRIEFING**
 
-Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'interieur — deux agents des services secrets russes installés commodément dans des fauteuils.
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
 
 **SENKO** : 
 
@@ -766,7 +766,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'in
 
 **SENKO** : 
 
-— La vieille ne pétera pas les plombs — elle est trop intelligente pour ça. Et elle s’en balance de tes chiens, qu’ils soient électroniques ou en carton. Mais ta connerie me tape vraiment sur le système, Vetchirko. Et ta fainéantise aussi. Apparemment, tu n’entraves que dalle au monde animal. Les coqs n’aboient pas à quatre heures du matin, Vetchirko. Merde ! Ne chantent pas. Avec toi, je vais finir par chanter moi aussi. Les coqs, pour ton info, commencent à gueuler à cinq heures du matin. À l’heure de Moscou — pas à l’heure du Japon !
+— La vieille ne pétera pas les plombs — elle est trop intelligente pour ça. Et elle s’en balance de tes chiens, qu’ils soient électroniques ou en carton. Mais ta connerie me tape vraiment sur le système, Vetchirko. Et ta fainéantise aussi. Apparemment, tu n'y connais rien au monde animal. Les coqs n’aboient pas à quatre heures du matin, Vetchirko. Merde ! Ne chantent pas. Avec toi, je vais finir par chanter moi aussi. Les coqs, pour ton info, commencent à gueuler à cinq heures du matin. À l’heure de Moscou — pas à l’heure du Japon !
 
 **VETCHIRKO** (agacé) : 
 
@@ -811,6 +811,99 @@ Russie, Moscou. Un appartement confortable dans un immeuble de standing. À l'in
 **VETCHIRKO** : 
 
 — Elle demande de passer du Rammstein cette nuit. Les deux derniers albums. Et à fond. Elle dit que sur « Du Hast », elle dort comme un bébé.
+
+#PoutinismeMilitaireOrthodoxe 👻
+
+
+### GUIDE PRATIQUE DU FSB, LEÇON 11
+
+**LA LARME DE MIKOLA**
+
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans de profonds fauteuils.
+
+**VETCHIRKO :**
+
+— Alors, Senko ? Quoi de neuf ?
+
+**SENKO** (sombrement) :
+
+— Mikola s'est retrouvé en hôpital psychiatrique. Il a voulu se pendre. Il n'a pas tenu le coup. Le gars a craqué.
+
+**VETCHIRKO :**
+
+— Pourquoi ?
+
+**SENKO :**
+
+— Sa femme est morte. Un missile a frappé en plein dans la chambre. Lui, il en a réchappé par miracle. Put...ain, ça finira quand, tout ça ?
+
+**VETCHIRKO** (avec un soupir) :
+
+— Ça finira bien un jour.
+
+**SENKO** (avec une haine non dissimulée) :
+
+— Tout ça, c'est la faute de la vieille. Elle est responsable de tout. Elle déteste les gens. Tout est à cause d'elle. Et cette guerre a commencé à cause d'elle.
+
+**VETCHIRKO** (avec doute) :
+
+— Allons, c'est peu probable, Senko. Comment aurait-elle pu déclencher cette guerre ?
+
+**SENKO** (exsudant le venin) :
+
+— Mais lis donc son roman, Vetchirko. Apparemment, Dieu envoie sur la planète des guerres, des catastrophes et des cataclysmes pour punir les hommes d'avoir crucifié sa fille, qu'il a envoyée dans le monde en tant que seconde venue. Quand je lisais ça, je n'arrivais pas à me débarrasser de l'impression qu'elle avait écrit cette "fille de Dieu" en se calquant sur elle-même.
+
+**VETCHIRKO :**
+
+— Te casse pas la tête, Senko. L'auteur a simplement une imagination débordante.
+
+**SENKO** (avec entêtement) :
+
+— C'est toi-même qui m'as dit : dès que la vieille ouvre un site sur les cataclysmes naturels, leur nombre se multiplie par dix. Et le pire, c'est qu'ils deviennent sans précédent. Le tremblement de terre en Iran — quarante mille cadavres. Le tsunami en Indonésie — un demi-million de cadavres. La catastrophe nucléaire au Japon — inégalée. Et ainsi de suite. La liste est énorme.
+
+**VETCHIRKO** (sceptique) :
+
+— Tu penses vraiment qu'elle provoque des tremblements de terre par la pensée ?
+
+**SENKO :**
+
+— Je ne sais pas. Peut-être qu'elle verse simplement des larmes et se plaint à son "père divin" ? Et qu'en représailles, il punit "des peuples entiers pour chacune de ses larmes" ? C'est écrit dans son livre, Vetchirko. Je n'invente rien. Ce fichu livre est la preuve irréfutable que c'est elle la coupable de tout, cette vieille garce immonde. C'est à cause d'elle que cette putain de guerre traîne depuis quatre ans et n'en finit plus.
+
+(Longue pause.)
+
+**VETCHIRKO** (d'une voix tremblante d'émotion) :
+
+— Et si elle avait raison, Senko ? Et si c'était nous les coupables, toi et moi, et si c'était à cause de nous que Dieu punit tout le peuple ukrainien ?
+
+**SENKO** (avec un sourire méprisant) :
+
+— Qu'est-ce que tu racontes, Vetchirko ? Tu as toute ta tête, oui ou non ? Qu'est-ce qu'on vient faire là-dedans, nous ?
+
+**VETCHIRKO** (en extirpant les mots avec difficulté) :
+
+— Si on regarde les choses objectivement, Senko. Après tout, c'est nous qui, en 1998, nous sommes pointés dans un pays étranger, avons obtenu la citoyenneté russe et avons commencé sur-le-champ à torturer, violer et tuer des Russes. Des gens ordinaires, Senko. La population civile. Et c'est la vieille qui en a le plus bavé de notre part. Tu ne vas pas le nier, Senko ? Et maintenant, les Russes font la même chose sur notre terre historique — en Ukraine. Ils se sont pointés dans un pays étranger ; ils pillent, violent et tuent. La population civile, Senko. Tu sais, cette idée... elle me donne le frisson.
+
+**SENKO :**
+
+— T'es un idiot, Vetchirko. Tu as décidé de faire ton auto-flagellation ? Ce n'est pas prévu par le règlement. Occupe-toi plutôt de tes affaires. Et laisse les grands sujets et la métaphysique aux philosophes et aux démagogues, du genre Douguine et Goundiaïev.
+
+(Pause.)
+
+**SENKO :**
+
+— Mais même si c'était vraiment le cas — alors plus que jamais, nous devons la tuer le plus vite possible. Pas de personne, pas de problème, Vetchirko. Même si cette personne est la "fille de Dieu".
+
+**VETCHIRKO** (avec appréhension) :
+
+— Si on la tue, Senko... Est-ce que Dieu ne va pas envoyer sur Terre un second Déluge ? Ou quelque chose de pire ?
+
+**SENKO** (ricanant) :
+
+— Je ne crois pas aux dieux, Vetchirko. Mais même en supposant qu'un dieu existe... Jésus a été tué — et alors ? Ton dieu a avalé ça. La terre a tenu le coup et continue de tourner comme si de rien n'était. Elle tiendra encore. Bon, il va peut-être enrager un peu, c'est prévisible. L'essentiel, c'est que toi et moi, personnellement, ne risquons rien. Tu dis qu'il punit l'Ukraine pour nos péchés ? Qu'il s'en donne à cœur joie, si ça lui fait plaisir. L'essentiel, c'est que nous sommes sains et saufs et en parfaite sécurité.
+
+**VETCHIRKO** (à part, dans un murmure) :
+
+— *Nous*, on est en sécurité. Mais Mikola, lui, il est à l'hôpital psychiatrique...
 
 #PoutinismeMilitaireOrthodoxe 👻
 
