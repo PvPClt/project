@@ -907,6 +907,92 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
+### MANUEL DU FSB, LEÇON 12
+
+**LES ÉDUCATEURS**
+
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
+
+**SENKO :**
+
+— Comparer notre profession aux autres n’est pas tout à fait pertinent, Vetchirko. Notre profession fonctionne à un niveau fondamentalement différent.
+
+**VETCHIRKO :**
+
+— Et quel serait ce niveau ?
+
+**SENKO :**
+
+— Nous sommes des éducateurs, Vetchirko. Les vrais. Contrairement aux méthodes conventionnelles, les nôtres… sont radicales et exhaustives.
+
+**VETCHIRKO :**
+
+— Donc, nous nous estimons supérieurs aux parents ? Aux enseignants ?
+
+**SENKO :**
+
+— Supérieurs à tous, Vetchirko. Aux éducateurs de crèche, aux professeurs, même aux parents. Leur défaut commun ? Ils s’appuient sur la *persuasion*. Une méthode si inefficace qu’elle échoue même sur la psyché non développée d’un enfant. Nous, nous ne persuadons pas. Nous **reconfigurons**. L’argument le plus convaincant pour le système nerveux humain n’est pas un dialogue mesuré, mais la perspective d’une souffrance systématique et insupportable.
+
+**VETCHIRKO :**
+
+— Ça paraît logique. Cependant, la reconfiguration nécessite un lien logique entre le stimulus et la réaction.
+
+**SENKO :**
+
+— Idée reçue. La « révélation » peut être entièrement spontanée. Une douleur intense, par exemple, est un excellent catalyseur pour la réflexion philosophique et une remise en question profonde du mode de vie. Prenons le sujet du voisin. Un homme âgé avec une propension à jouer du piano. Une activité objectivement inutile. En a-t-il conscience ? Pas encore. Mais grâce à nous, il la prendra.
+
+**VETCHIRKO :**
+
+— Dans le paradigme juridique, il faut d’abord exiger officiellement la cessation du trouble avant de chercher une protection en justice.
+
+**SENKO :**
+
+— C’est précisément là que nous divergions de la jurisprudence, Vetchirko. Quand on dispose des moyens pour régler un différend de manière directe et immédiate – infrasons, systèmes de guerre électronique, armes à impulsions, radiofréquences, énergie dirigée – le concept de « recherche de protection » devient simplement superflu. Pourquoi engager un dialogue avec un voisin quand on peut simplement le **reconfigurer** ?
+
+**VETCHIRKO :**
+
+— Compris. Tu ajustes ses priorités.
+
+**SENKO :**
+
+— Je **conçois** ses priorités. Puisque sa mère a failli à son devoir d’éducation, je le ferai à sa place – je le forgerai en une unité socialement acceptable.
+**Phase Un** :application ciblée d’infrasons sur les phalanges distales. Nous induisons une légère raideur matinale persistante des articulations. En trois mois, sa motricité fine se dégrade. Sa technique de jeu devient… instable.
+Si cela s’avère insuffisant, **Phase Deux** : le système auditif. Armes acoustiques. Nous augmentons la sensibilité de la cochlée à un degré pathologique. Chaque note qu’il jouera résonnera dans son crâne comme un coup de marteau sur une enclume. Il percevra son propre hobby comme une forme de torture raffinée.
+Si la résistance persiste, **Phase Trois** : déstabilisation systémique de la santé. Une cascade d’affections mineures, mal diagnostiquables, mais profondément invalidantes. Son existence se réduira à un circuit fermé : dispensaire, pharmacie, sanatorium, église. La médecine conventionnelle, comme tu le sais, n’offrira aucun salut. Son ultime recours sera la prière.
+À ce stade, les activités culturelles comme le piano deviennent non pertinentes. Le message principal se déplace vers la survie de base.
+
+(Pause.)
+
+**SENKO :**
+
+— Ou prenons un autre cas : un sujet ayant l’habitude d’écouter la radio. Je ne peux pas exiger qu’il arrête. Il est dans son droit. Et pourquoi exiger, si je peux simplement **mettre son radio hors service** ? Guerre électronique. Nous induisons une dérive continue de la fréquence sur son récepteur. Nous brouillons le signal avec du bruit blanc. S’il s’entête – escalade vers une reconfiguration acoustique. Si cela aussi échoue – nous lançons une reconfiguration axée sur la santé.
+
+(Pause.)
+
+**SENKO :**
+
+— Troisième exemple : la vieille. Nous n’aimons pas qu’elle écrive sur nous. Dans ses minables petites saynètes. Avant, nous attaquions ses yeux sans distinction. Maintenant, on change de tactique. Si elle écrit ses romans, on ne la touche pas. Dès qu'elle commence à écrire sur nous, nous frappons immédiatement ses yeux, et fort. Pour qu'elle le sente tout de suite. Elle est intelligente, elle comprendra vite que ce sujet est tabou pour elle.
+
+**VETCHIRKO :**
+
+— Encore mieux si elle pense que c'est Dieu qui la punit.
+
+**SENKO (condescendant) :**
+
+— C'est nous qui sommes Dieu, Vetchirko. Comment ne le comprends-tu pas ? Quoi qu’elle pense au fond, le réflexe sera forgé – en acier trempé. Le cerveau joue les seconds rôles ici. L’instinct domine. Voilà l’architecture, Vetchirko.
+Nous ne demandons pas. Nous ne débattons pas. Nous **reprogrammons** toute la hiérarchie des besoins du sujet.  Musique, hobbies, loisirs – sont rétrogradés au rang de non-pertinents. La création, les autres formes d’activité – nous **orientons** le sujet dans la direction voulue. C’est un système élégant.
+
+**VETCHIRKO :**
+
+– Comme on dit : le génie, c’est la simplicité ?
+
+**SENKO :**
+
+– Exactement. C’est neurologiquement élégant. L’homme possède un esprit et un appareil sensoriel. L’esprit est un instrument imparfait, malléable. Des millénaires de civilisation n’ont rien changé à son schéma de base. Le cerveau réagit un ordre de grandeur plus vite à une puanteur, un son strident, un inconfort tactile ou une douleur aiguë qu’au sermon le plus éloquent. Là est la vulnérabilité clé. Et notre méthodologie est l’exploitation parfaite de cette vulnérabilité. En ce sens, oui – nos méthodes éducatives sont génialement, parfaitement simples.
+
+#PoutinismeMilitaireOrthodoxe 👻
+
+
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
