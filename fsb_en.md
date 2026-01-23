@@ -1054,6 +1054,131 @@ We don't ask. We don't engage in debates. We **reprogram** the subject's entire 
 #OrthodoxMilitaryPutinism 👻
 
 
+### FSB PLAYBOOK, LESSON 13 
+
+**MEMORIES OF THE FUTURE**
+
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
+
+**SENKO**: 
+
+– Vechirko, just look at what the old bitch is writing about us in her stupid "FSB Manual"!
+
+**VECHIRKO** (looking up, bored):
+
+— What now?
+
+**SENKO:**
+
+— She’s cast me as the bad cop. And you, you prick, as the good one.
+
+**VECHIRKO** (a faint, weary smile):
+
+— Feeling typecast, Senko? Wanna play the hero in her little novel?
+
+**SENKO** (snaps):
+
+— No. I *am* the bad cop. The worst goddamn cop on this shitty planet. I want enemies to shit their pants when they hear my name.
+
+(Vechirko gives a slow, indifferent shrug.)
+
+**SENKO** (turning purple with rage): 
+
+— She writes that I am "turning purple with rage." I just checked a mirror, Vechirko — I’m fucking purple! She’s not predicting it, she’s *ordering* my blood pressure to spike! Get it? We zap her eyes with infrasound, she zaps our arteries with words!
+
+**VECHIRKO** (with dry pity):
+
+— Your readings must be through the roof, Senko. Breathe.
+
+(A tense silence. Senko inhales noisily through his nose, counts to ten. Does it again. And again.)
+
+**SENKO** (sneering, circling Vechirko):
+
+— Spill it. Is it true you can’t even take a shower because of that cunt?
+
+**VECHIRKO** (stunned):
+
+— What the hell?
+
+**SENKO:**
+
+— Right here, listen. The hag quotes you: 
+
+*"Every time I step under the shower, Senko, I get this... thing. Can't shake the thought: because of us, she can't even wash. A year ago was her last time. I try to picture myself in her place... and the water starts to burn. Like acid. I find excuses. I avoid the bathroom".*
+
+That’s you. In her book.
+
+(Senko lifts his eyes from the phone, pins Vechirko with a dead stare. The silence stretches.)
+
+**SENKO** (low, dangerous):
+
+— Is it true? You’ve gone full pig because of her?
+
+**VECHIRKO** (squirming):
+
+— She’s... exaggerating. I wash. Once a month. Give or take.
+
+**SENKO** (recoils in mock horror):
+
+— Once a MONTH?! You disgusting animal!
+
+**VECHIRKO** (defensive, voice rising):
+
+— Have you even tried to imagine it?! One shower. A YEAR.
+
+**SENKO** (yells):
+
+— NO!
+
+**VECHIRKO** (thinking aloud):
+
+— Can you smell it? What would seep out of your pores?
+
+**SENKO** (a barking laugh):
+
+— Of course I can! Because I’m human, Vechirko! She’s a witch. Bragged her sweat doesn’t stink. "Pure as a baby’s tear." That’s not human. Witch.
+
+**VECHIRKO** (exhausted):
+
+— If she’s a witch, Senko, we’re wasting our time. You can’t kill a witch.
+
+**SENKO** (stubborn):
+
+— Couldn’t twenty years ago. Can now. Can’t kill her, we’ll dissolve her. I don’t give a fuck about the composition of her sweat.
+
+**VECHIRKO** (quiet, almost a whisper):
+
+— Senko... Everything ends. We started in '98, she was what, forty? Now she’s sixty-eight. Isn’t that enough? We gonna chase a hundred-year-old woman? Age is just a number?
+
+**SENKO:**
+
+— We have no age limit, Vechirko. We lock up fourteen-year-olds. Why make an exception for the bitch? She hits a hundred, we’ll... put her in the FSB Guinness Book. Give her a medal. *Then* we pop her.
+
+**VECHIRKO** (shakes his head):
+
+— I don’t buy it. She’s iron. Two years in a hole, and not a crack. Not a stain on her soul. Us... we’re papier-mâché. Stuffed, like a dog trophy, with rotten straw. Look human on the outside. Inside... hollow. Nothing.
+
+**SENKO** (icy):
+
+— That’s a midlife crisis, Vechirko. Treatable. Our shrinks are world-class. In two months, you’ll forget this nonsense. And the stuffed dog metaphor... I like it. We get the million for the bitch, we stuff our "hollow" with dollars.
+
+**VECHIRKO** (staring at his phone in horror):
+
+— Senko... This is insane. We just... we just said... word for word... what she wrote in Chapter 15. About our villas reeking of formalin, like a morgue. About our dollars being cut-up paper for stuffing our hollow shells. I looked at a bill today... I swear it felt like human skin.
+
+**SENKO** (a strange, tight smile):
+
+— The real kicker, Vechirko... is that in this chapter, she describes me reading this chapter to you. And she describes you... scratching the back of your head. Right now.
+
+(Vechirko snatches his hand away from his neck as if burned.)
+
+**SENKO** (whispers):
+
+— See? She’s conducting us. We thought we were the trainers... we’re the puppets. She hacked our "Golden Standard." Now she creates a problem for us...
+
+#OrthodoxMilitaryPutinism 👻
+
+
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
