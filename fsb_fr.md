@@ -992,6 +992,126 @@ Nous ne demandons pas. Nous ne débattons pas. Nous **reprogrammons** toute la h
 
 #PoutinismeMilitaireOrthodoxe 👻
 
+### GUIDE PRATIQUE DU FSB, LEÇON 13 
+
+**SOUVENIRS DU FUTUR**
+
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
+
+**SENKO** : 
+
+– Vetchirko, jette un œil à ce que la vieille raconte sur nous dans son « Guide » à la con !
+
+**VETCHIRKO** (intrigué) :
+
+— Quoi encore ?
+
+**SENKO :**
+
+— Elle a fait de moi le méchant flic. Et de toi, le gentil.
+
+**VETCHIRKO** (sèchement) :
+
+— Et ça te travaille, Senko ? Tu voudrais jouer les gentils dans son bouquin ?
+
+**SENKO** (agressif) :
+
+— Non. J’ai toujours été le méchant flic. Le pire flic de la planète. Que les ennemis pissent dans leur froc quand j’arrive.
+
+(Vetchirko hausse les épaules, l’air de s’en foutre complètement.)
+
+**SENKO** (écarlate de rage) :
+
+— Là, tu vois ? Elle écrit que je « deviens écarlate de rage ». Vetchirko, je viens de me voir dans la glace — je suis putain d’écarlate ! Elle ne devine pas, elle ordonne à ma tension de monter ! Tu piges ? On lui balance des infrasons dans les yeux, et elle nous fait un tuning cardiaque avec ses phrases !
+
+**VETCHIRKO** (avec une pitié lasse) :
+
+— Effectivement, ta tension a l’air d’avoir pris l’ascenseur, Senko.
+
+(Silence. Senko inspire bruyamment par le nez, compte jusqu’à dix. Puis recommence. Deux fois.)
+
+**SENKO** (méprisant, en tournant autour de Vetchirko) :
+
+— Allez, crache le morceau. C’est vrai, à cause de cette garce, que tu ne te laves plus ?
+
+**VETCHIRKO** (bouche bée) :
+
+— Qu… Quoi ?
+
+**SENKO :**
+
+— Tiens, regarde. La vieille écrit, je cite : « Sous la douche, une pensée m’obsède : à cause de nous, elle ne peut même plus se laver. La dernière fois, c’était il y a un an. J’essaie de m’imaginer à sa place… et l’eau devient acide. Elle brûle. Je fuis la salle de bain. Je trouve toujours une excuse. » C’est toi. Dans son livre.
+
+(Senko lève les yeux de son téléphone et plante son regard dans celui de Vetchirko. Long silence.)
+
+**SENKO** (voix basse, dangereuse) :
+
+— C’est vrai, ça ? T’es devenu un porc à cause d’elle ?
+
+**VETCHIRKO** (se tortillant) :
+
+— Elle… exagère. Je me lave. Enfin… une fois par mois. À peu près.
+
+**SENKO** (recule, horrifié) :
+
+— Une fois par MOIS ?! Mais t’es un dégoûtant !
+
+**VETCHIRKO** (se défendant, la voix montant) :
+
+— Et toi, t’as déjà essayé d’imaginer ? UNE douche. Par AN ?
+
+**SENKO** (criant) :
+
+— NON !
+
+**VETCHIRKO** (réfléchissant à voix haute) :
+
+— T’imagines l’odeur ? Ce qui sortirait de toi ?
+
+**SENKO** (ricanant) :
+
+— Bien sûr que oui. Parce que moi, je suis un homme, Vetchirko. Elle, c’est une sorcière. Elle se vante que sa sueur ne sent rien. « Pure comme une larme d’enfant. » Ça n’existe pas chez les humains. Sorcière.
+
+**VETCHIRKO** (épuisé) :
+
+— Si c’est une sorcière, Senko, alors on fait tout ça pour rien. On ne peut pas tuer une sorcière.
+
+**SENKO** (obstiné) :
+
+— Avant, non. Maintenant, si. Si on ne peut pas la tuer, on la réduit en poussière. On s’en fout de l’odeur de sa sueur.
+
+**VETCHIRKO** (timide, presque un murmure) :
+
+— Senko… Tout a une fin. En 98, quand on a commencé, elle était jeune. La quarantaine ? Maintenant, elle en a soixante-huit. Tu crois pas que c’est la limite ? On va la traquer jusqu’à ses cent ans ? Peu importe son âge ?
+
+**SENKO** : 
+
+– Chez nous, Vetchirko, il n’y a pas de limite d’âge. On coffre des gosses de quatorze ans. Pourquoi on ferait une fleur à la vieille ? Si elle vit jusqu’à cent ans… on l’inscrira au *Livre des Records du FSB*. On lui donnera une médaille. *Et puis* on la butera.
+
+**VETCHIRKO** (secouant la tête) :
+
+— J’y crois pas. Elle, elle est en fer. Deux ans dans des conditions inhumaines, et pas une fissure. Pas une égratignure sur son âme. Nous… on est du carton-pâte. Empaillés. Des hommes en apparence, mais à l’intérieur… le vide. Rien.
+
+**SENKO** (glacial) :
+
+ — Tu fais une crise de la quarantaine, Vetchirko. Ça se soigne. Nos psys sont les meilleurs. Dans deux mois, t’auras oublié toutes ces conneries. Et pour la métaphore du chien empaillé… j’aime bien. On va empocher le million pour la vieille, et on rembourrera notre « vide » avec des dollars.
+
+**VETCHIRKO** (fixant son téléphone, horrifié) :
+
+— Senko… C’est de la folie furieuse. On vient de dire… mot pour mot… ce qu’elle a écrit au chapitre 15. Sur nos villas qui sentent le formol. Sur nos dollars qui sont du papier découpé pour remplir notre vide. J’ai regardé un billet ce matin… j’ai cru voir de la peau humaine.
+
+**SENKO** (un sourire étrange aux lèvres) :
+
+— Le pire, Vetchirko… c’est que dans ce chapitre, elle décrit que je suis en train de te lire ce chapitre. Et que toi… tu te grattes la nuque. Comme maintenant.
+
+(Vetchirko retire brusquement sa main de sa nuque.)
+
+**SENKO** : 
+
+— Tu vois ? Elle nous dirige. On croyait être les dresseurs… mais on est ses marionnettes. Elle a piraté notre « Standard d’Or ». Maintenant, elle nous crée un problème...
+
+#PoutinismeMilitaireOrthodoxe 👻
+
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
