@@ -1,13 +1,8 @@
-yaml
-
 ---
 
 title: "Ward №666: The Grand Album of Satirical Miniatures | Orthodox Military Putinism"
-
 description: "About 60 satirical miniatures picturing a realm of political madness, lawlessness, cynicism, and cruelty, diagnosed and dissected with surgical precision by the writer's pen and the artist's brush."
-
 ---
-
 
 [**Main page**](index.md)
 
