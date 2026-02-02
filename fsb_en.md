@@ -1,5 +1,9 @@
-## The Persecution Chronicles: FSB Playbook
-
+---
+title: "FSB Playbook: Satirical Protocols of Political Persecution | Chronicles"
+description: "A satirical reconstruction of FSB operational methods. Lessons 1-14. Based on the real persecution experience of the author"
+---
+# FSB Playbook: The Persecution Chronicles
+**Author: Shcheglova Olga (Boris Bidyaga)** 
 
 ### FSB PLAYBOOK, LESSON 1
 
