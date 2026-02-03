@@ -39,15 +39,15 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 [**The Golden Dozen: Top 12 Satirical Miniatures**](Golden_en.md) 
 
-[**The Grand Album of satirical miniatures "Ward №666"**](album_en.md)
+[**Ward №666: The Grand Album of satirical miniatures**](album_en.md)
 
-[**In the Hall of a Thousand Truths: Beer, Deals, Semantics of Decay, and the Biochemistry of Power**](pivo_en.md)
+[**In the Hall of a Thousand Truths: Quintessence of Putin's Logorrhea**](pivo_en.md)
 
-[**Satirical mini-play "Rising Off Her Knees"**](play_en.md) 
+[**Rising Off Her Knees: Satirical mini-play**](play_en.md) 
 
-[**The Persecution Chronicles: ”FSB Playbook"**](fsb_en.md) 
+[**FSB Playbook: Satirical Protocols of Political Persecution**](fsb_en.md) 
 
-[**The Anatomy of Putin's "Traditional Values", analytical article**](values_en.md) 
+[**The Anatomy of Putin's "Traditional Values": analytical article**](values_en.md) 
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
@@ -65,15 +65,15 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 [**La Douzaine d’Or : Top 12 des miniatures satiriques**](Golden_fr.md) 
 
-[**Le Grand Album de miniatures satiriques « Chambre n°666 »**](album_fr.md) 
+[**Chambre n°666 : Le Grand Album de miniatures satiriques**](album_fr.md) 
 
-[**Dans la Salle des Mille Vérités : Bière, Marchandages, Sémantique de la Décomposition et Biochimie du Pouvoir**](pivo_fr.md)
+[**Dans la Salle des Mille Vérités : La quintessence de la Logorrhée de Poutine**](pivo_fr.md)
 
-[**Mini-pièce satirique « Se relevant de ses genoux »**](play_fr.md) 
+[**Se relevant de ses genoux : Mini-pièce satirique**](play_fr.md) 
 
-[**Les Chroniques de la persécution : « Guide pratique du FSB »**](fsb_fr.md) 
+[**Guide pratique du FSB : Protocoles satiriques de persécution politique**](fsb_fr.md) 
 
-[**Anatomie des « valeurs traditionnelles » poutiniennes, article analytique**](values_fr.md) 
+[**Anatomie des « valeurs traditionnelles » poutiniennes : article analytique**](values_fr.md) 
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
@@ -91,15 +91,15 @@ ________________________________________________________________________________
 
 [**Золота дюжина: Топ-12 сатиричних мініатюр**](Golden_ua.md) 
 
-[**Великий Альбом сатиричних мініатюр «Палата №666»**](album_ua.md) 
+[**Палата №666: Великий Альбом сатиричних мініатюр**](album_ua.md) 
 
-[**У Чертозі Тисячі Істин: Пиво, угоди, семантика розпаду та біохімія влади**](pivo_ua.md)
+[**У Чертозі Тисячі Істин: Квінтесенція путінської Логореї**](pivo_ua.md)
 
-[**Сатирична мініп’єса «Встаюча з колін»**](play_ua.md)
+[**Встаюча з колін: Сатирична мініп’єса**](play_ua.md)
 
-[**Хроніки переслідування: «Методичка ФСБ»**](fsb_ua.md) 
+[**Методичка ФСБ: Сатиричні протоколи політичного переслідування**](fsb_ua.md) 
 
-[**Анатомія путінських „традиційних цінностей“, аналітична стаття**](values_ua.md)
+[**Анатомія путінських „традиційних цінностей“: аналітична стаття**](values_ua.md)
 
 [**Перелік благодійних фондів на допомогу Україні**](ua_funds)
 
@@ -117,15 +117,15 @@ ________________________________________________________________________________
 
 [**Золотая дюжина: Топ-12 сатирических миниатюр**](Golden_ru.md)
 
-[**Большой Альбом сатирических миниатюр «Палата №666»**](album_ru.md) 
+[**Палата №666: Большой Альбом сатирических миниатюр**](album_ru.md) 
 
-[**В Чертоге Тысячи Истин: Пиво, сделки, семантика распада и биохимия власти**](pivo_ru.md)
+[**В Чертоге Тысячи Истин: Квинтэссенция Путинской Логореи**](pivo_ru.md)
 
-[**Сатирическая мини-пьеса «Встающая с колен»**](play_ru.md) 
+[**Встающая с колен: Сатирическая мини-пьеса**](play_ru.md) 
 
-[**Хроники преследования: «Методичка ФСБ»**](fsb_ru.md) 
+[**Методичка ФСБ: Сатирические протоколы политического преследования**](fsb_ru.md) 
 
-[**Анатомия путинских „традиционных ценностей“, аналитическая статья**](values_ru.md) 
+[**Анатомия путинских „традиционных ценностей“: аналитическая статья**](values_ru.md) 
 
 [**Список благотворительных фондов в помощь Украине**](ru_funds)
 
