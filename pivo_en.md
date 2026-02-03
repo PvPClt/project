@@ -1,7 +1,13 @@
+---
+title: "In the Hall of a Thousand Truths: Quintessence of Putin's Logorrhea"
+description: "Satirical and philosophical collection. Bar dialogues Putin—Trump off the record, the 'Court of Osiris' trial, reconstruction of Putin's absurd keynote speeches. A travel guide to the post-truth inferno where a thousand contradictory truths replace and devour reality"
+---
 [**Main Page**](index.md)
 
-# IN THE HALL OF A THOUSAND TRUTHS 
-### Beer, Deals, Semantics of Decay, and the Biochemistry of Power
+# IN THE HALL OF A THOUSAND TRUTHS
+### QUINTESSENCE OF PUTIN'S LOGORRHEA
+
+**Author: Shcheglova Olga (Boris Bidyaga)**
 
 **CONTENTS**
 
@@ -1085,5 +1091,6 @@ American bar. US President Donald Trump and Russian President Vladimir Putin at 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**Main Page**](index.md)
+
 
 
