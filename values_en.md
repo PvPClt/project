@@ -1,17 +1,15 @@
-**Shcheglova Olga (Boris Bidyaga)**
-
-# 🇬🇧 THE ANATOMY OF PUTIN'S "TRADITIONAL VALUES"
-
-**ATTENTION!**  
-**IMPORTANT NOTE!**
-
-This project was created under conditions of digital persecution. Russian special services carry out systematic cyber attacks aimed at distorting and substituting correct translations of words and expressions, seeking to discredit the texts and corrupt their meaning.
-If you are a native speaker and notice absurd, illogical, nonsensical, "clumsy," or grammatically incorrect words and expressions in the texts, please report the specific error using the contacts below (suggest your version and explain why it is better). Your assistance in ensuring linguistic integrity and the adequacy of translations is invaluable in this struggle for truth.
-Contacts:
-bbidyaga@protonmail.com | 
-[Write via Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
+---
+title: "The Anatomy of Putin's 'Traditional Values' | A Secular Autopsy of Sacred Hypocrisy"
+description: "Putin decreed that Russia's 'traditional values' are based on Orthodox morality. This article takes him at his word — and uses his own logic to prove that the state systematically violates every single Christian commandment. A clear, devastating guide to the official hypocrisy that anyone can understand."
+---
+# THE ANATOMY OF PUTIN'S "TRADITIONAL VALUES"
+**Author: Shcheglova Olga (Boris Bidyaga)**
 
 ![](Images/Cover_Article.jpg)
+
+### Summary 
+A methodical deconstruction of the Kremlin's new state ideology. Using Putin's own decree and claims about Orthodox Christian morality as a starting point, this article juxtaposes each religious postulate with the blatant, shameless reality of Russian power and society. Step by step, in clear language, it proves that the proclaimed 'traditional values' are not just neglected but systematically inverted, forming a doctrine of sacralized cynicism.
+
 
 On November 9, 2022, Russian President Vladimir Putin signed Decree No. 809 "On the Foundations of State Policy for the Preservation and Strengthening of Traditional Russian Spiritual and Moral Values" (hereinafter referred to as the Putin Decree or the Decree). Source: http://www.kremlin.ru/acts/bank/48502  
 
