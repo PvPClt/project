@@ -10,6 +10,7 @@ description: "Putin decreed that Russia's 'traditional values' are based on Orth
 ### Summary 
 A methodical deconstruction of the Kremlin's new state ideology. Using Putin's own decree and claims about Orthodox Christian morality as a starting point, this article juxtaposes each religious postulate with the blatant, shameless reality of Russian power and society. Step by step, in clear language, it proves that the proclaimed 'traditional values' are not just neglected but systematically inverted, forming a doctrine of sacralized cynicism.
 
+### Full Text of the Article 
 
 On November 9, 2022, Russian President Vladimir Putin signed Decree No. 809 "On the Foundations of State Policy for the Preservation and Strengthening of Traditional Russian Spiritual and Moral Values" (hereinafter referred to as the Putin Decree or the Decree). Source: http://www.kremlin.ru/acts/bank/48502  
 
