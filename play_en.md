@@ -1,19 +1,13 @@
-**Shcheglova Olga (Boris Bidyaga)**
-
+---
+title: "Rising off her Knees | Satire: A Necropsy of the Putinist Mythos"
+description: "A clinical dissection of the Putinist myth: war justifications, pagan-tech rituals, panic over NATO, and the ruler's hysterical mediocrity versus the nation's primordial stupor. The infamous slogan leads to a finale where 'rising' becomes a death spasm in a codependent marriage of ruin."
+---
 # RISING OFF HER KNEES 
+**Author: Shcheglova Olga (Boris Bidyaga)**
 
 **One-act play**
 
 **For the 72nd anniversary of Putin**
-
-**ATTENTION!**  
-**IMPORTANT NOTE!**
-
-This project was created under conditions of digital persecution. Russian special services carry out systematic cyber attacks aimed at distorting and substituting correct translations of words and expressions, seeking to discredit the texts and corrupt their meaning.
-If you are a native speaker and notice absurd, illogical, nonsensical, "clumsy," or grammatically incorrect words and expressions in the texts, please report the specific error using the contacts below (suggest your version and explain why it is better). Your assistance in ensuring linguistic integrity and the adequacy of translations is invaluable in this struggle for truth.
-Contacts:
-bbidyaga@protonmail.com | 
-[Write via Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
 
 ![](Images/Cover_Play.jpg)
 
