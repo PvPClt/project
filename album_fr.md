@@ -1,17 +1,14 @@
+---
+title: "Chambre n°666 : Le grand album de miniatures satiriques | Le poutinisme militaire orthodoxe"
+description: "Près de 60 miniatures satiriques dépeignant un monde de folie politique, d'anarchie, de cynisme et de cruauté, diagnostiqué et disséqué avec une précision chirurgicale par la plume de l'écrivain et le pinceau de l'artiste"
+---
+
 [**Page d'accueil**](index.md)
 
-# 🇫🇷 LE GRAND ALBUM DE MINIATURES SATIRIQUES « CHAMBRE N°666 »
+# 🇫🇷 CHAMBRE N°666 
+### LE GRAND ALBUM DE MINIATURES SATIRIQUES
 
-**ATTENTION !**
-
-**NOTE IMPORTANTE !**
-
-Ce projet a été créé dans un contexte de persécution numérique. Les services secrets russes mènent des cyberattaques systématiques visant à déformer et à substituer la traduction correcte des mots et des expressions, cherchant à discréditer les textes et à en altérer le sens. 
-Le FSB mène systématiquement des cyberattaques sur mon site, en altérant la mise en forme des textes. Merci de votre compréhension.
-Si vous êtes un locuteur natif et que vous remarquez dans les textes des mots et des expressions absurdes, illogiques, dénués de sens, "maladroits" ou grammaticalement incorrects, veuillez signaler l'erreur spécifique en utilisant les contacts ci-dessous (proposez votre version et expliquez pourquoi elle est meilleure). Votre aide pour garantir l'intégrité linguistique et la justesse des traductions est inestimable dans ce combat pour la vérité.
-Contacts:
-bbidyaga@protonmail.com | 
-[Écrire via Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
+**Auteur : Olga Shcheglova (Boris Bidyaga)**
 
 ![](Images/Fr_Album_Cover.jpg)
 
