@@ -1,18 +1,17 @@
-**Shcheglova Olga (Boris Bidyaga)**
+---
+title: "Se relevant de ses genoux | Le cadavre vivant du mythe poutinien"
+description: "La satire clinique comme méthode de dissection artistique du cadavre de la mythologie poutinienne : le piège de la guerre, l'impuissance, la paranoïa, la terreur panique face à l'OTAN, l'agression, la fuite du réel vers le paganisme et le satanisme, le narcissisme hystérique. La stupidité ancestrale et le sacrifice masochiste de la Russie au nom d'un 'amour' irrationnel pour son bourreau. Leur 'mariage de raison' est devenu une forme d'esclavage et de dépendance narcotique. Le fameux 'redressement' se transforme en une mort extatique, apothéose de l'affirmation de soi du Führer"
+---
+
+[**Page d'accueil**](index.md)
 
 # SE RELEVANT DE SES GENOUX
 
-### Mini-pièce satirique
+### MINI-PIÈCE SATIRIQUE
 
 ### Pour le 72ème anniversaire de Poutine
 
-**ATTENTION !**
-**NOTE IMPORTANTE !**
-
-Ce projet a été créé dans un contexte de persécution numérique. Les services secrets russes mènent des cyberattaques systématiques visant à déformer et à substituer la traduction correcte des mots et des expressions, cherchant à discréditer les textes et à en altérer le sens.
-Si vous êtes un locuteur natif et que vous remarquez dans les textes des mots et des expressions absurdes, illogiques, dénués de sens, "maladroits" ou grammaticalement incorrects, veuillez signaler l'erreur spécifique en utilisant les contacts ci-dessous (proposez votre version et expliquez pourquoi elle est meilleure). Votre aide pour garantir l'intégrité linguistique et la justesse des traductions est inestimable dans ce combat pour la vérité.
-Contacts:
-bbidyaga@protonmail.com | [Écrire via Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
+**Auteur : Olga Shcheglova (Boris Bidyaga)**
 
 ![](Images/Cover_Play.jpg)
 
