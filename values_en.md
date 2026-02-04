@@ -2,8 +2,13 @@
 title: "The Anatomy of Putin's 'Traditional Values' | A Secular Autopsy of Sacred Hypocrisy"
 description: "Putin decreed that Russia's 'traditional values' are based on Orthodox morality. This article takes him at his word — and uses his own logic to prove that the state systematically violates every single Christian commandment. A clear, devastating guide to the official hypocrisy that anyone can understand."
 ---
-# THE ANATOMY OF PUTIN'S "TRADITIONAL VALUES"
-**Author: Shcheglova Olga (Boris Bidyaga)**
+
+[**Main Page**](index.md)
+
+# 🇬🇧 THE ANATOMY OF PUTIN'S "TRADITIONAL VALUES"
+### ANALYTICAL ARTICLE 
+
+**Author: Shcheglova (Olga Boris Bidyaga)**
 
 ![](Images/Cover_Article.jpg)
 
