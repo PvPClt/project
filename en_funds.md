@@ -1,6 +1,6 @@
 ---
 title: "Charitable foundations assisting Ukraine"
-description: "If you share the author's ideas, join the project — make a donation to Ukrainian charity foundations.
+description: "If you share the author's ideas, join the project — make a donation to Ukrainian charity foundations"
 ---
 
 [**Main Page**](index.md)
