@@ -1,4 +1,13 @@
-### LIST OF CHARITABLE FOUNDATIONS ASSISTING UKRAINE:
+---
+title: "Charitable foundations assisting Ukraine"
+description: "If you share the author's ideas, join the project — make a donation to Ukrainian charity foundations.
+---
+
+[**Main Page**](index.md)
+
+# CHARITABLE FOUNDATIONS ASSISTING UKRAINE
+
+![](Images/Cover_Project.jpg)
 
 **1. UNBROKEN (Незламні)**
 Prosthetics, rehabilitation, and psychological support for military and civilians injured in the war.
