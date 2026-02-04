@@ -1,4 +1,12 @@
-# À PROPOS DE L’AUTEURE ET DES CONDITIONS DE CRÉATION DU PROJET
+---
+title: "Olga Shcheglova (Boris Bidyaga) | Immigration et persécution" 
+description: "Sur les conditions de création du projet : persécution et catastrophe humanitaire en Turquie et en Géorgie"
+---
+
+[**Page d'accueil**](index.md)
+
+# À PROPOS DE L’AUTEURE 
+### ET DES CONDITIONS DE CRÉATION DU PROJET
 
 ![](Images/Author.jpg)
 *C'est dans cette tente, protégée par une clôture improvisée faite de bâtons, qu'a été créée  l'
