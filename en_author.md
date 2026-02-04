@@ -1,4 +1,12 @@
-# ABOUT THE AUTHOR AND THE CONDITIONS OF THE PROJECT’S CREATION
+---
+title: "Shcheglova Olga (Boris Bidyaga) I immigration and persecution"
+description: "About conditions of the project’s creation: persecution and humanitarian catastrophe in Turkey and Georgia."
+---
+
+[**Main Page**](index.md)
+
+# ABOUT THE AUTHOR 
+### AND THE CONDITIONS OF THE PROJECT’S CREATION
 
 ![](Images/Author.jpg)
 *It was in this tent, protected by a makeshift fence made of sticks, that the 
