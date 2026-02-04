@@ -1,13 +1,14 @@
 ---
-title: "In the Hall of a Thousand Truths: Quintessence of Putin's Logorrhea"
+title: "In the Hall of a Thousand Truths: Poisonous Source of Putin's Rhetoric"
 description: "Satirical and philosophical collection. Bar dialogues Putin—Trump off the record, the 'Court of Osiris' trial, reconstruction of Putin's absurd keynote speeches. A travel guide to the post-truth inferno where a thousand contradictory truths replace and devour reality"
 ---
+
 [**Main Page**](index.md)
 
-# IN THE HALL OF A THOUSAND TRUTHS
-### QUINTESSENCE OF PUTIN'S LOGORRHEA
+# IN THE HALL OF A THOUSAND TRUTHS 
+### POISONOUS SOURCE OF PUTIN'S RHETORIC
 
-**Author: Shcheglova Olga (Boris Bidyaga)**
+**Author: Shcheglova (Olga Boris Bidyaga)** 
 
 **CONTENTS**
 
@@ -36,7 +37,6 @@ description: "Satirical and philosophical collection. Bar dialogues Putin—Trum
 [12. A Fat and Fragrant Globe for Thanksgiving](pivo_en#12-a-fat-and-fragrant-globe-for-thanksgiving)
 
 [13. Deal of the Century](pivo_en#13-deal-of-the-century)
-
 
 ## 1. PUTIN IN THE HALL OF TWO TRUTHS: JUDGMENT OF OSIRIS
 
@@ -1091,6 +1091,7 @@ American bar. US President Donald Trump and Russian President Vladimir Putin at 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**Main Page**](index.md)
+
 
 
 
