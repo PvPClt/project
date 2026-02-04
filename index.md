@@ -1,16 +1,15 @@
 ---
-title: "Encyclopedia of Orthodox Military Putinism | Satirical Art Project"
+title: "The Encyclopedia of Orthodox Military Putinism | Satirical Art Project"
 description: "A charity art project supporting Ukraine. Satirical miniatures, plays, and analysis exposing Putin's regime. FSB persecution chronicles, dialogues, political satire by Olga Shcheglova (Boris Bidyaga)."
 ---
-
-# ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
+# THE ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 **Author: Shcheglova Olga (Boris Bidyaga)**
 
 Welcome to the **Encyclopedia of Orthodox Military Putinism** — a realm of political madness, lawlessness, cynicism, and cruelty, diagnosed and dissected with surgical precision by the writer's pen and the artist's brush.
 
 Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, satire, hyper-absurd — tearing off the masks of feigned piety and the veils of false spiritual values; laying bare the horrors of war, the vices and sores of an authoritarian society; exposing the inhuman mechanisms of propaganda, the transformation of religion into ideology, the criminalization of power, the degradation of public consciousness; lashing out at the "good intentions" with which the "federal highways" to Hell are paved.
 
-![](Images/Cover_Project.jpg)
+![](Images/Logo.jpg)
 
 ## 🇬🇧 ENGLISH 
 
@@ -18,7 +17,7 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 ## 🇫🇷 FRANÇAIS
 
-[**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#lencyclopédie-du-poutinisme-militaire-orthodoxe)
+[**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#l'encyclopédie-du-poutinisme-militaire-orthodoxe)
 
 ## 🇷🇺 РУССКИЙ 
 
@@ -26,9 +25,8 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 ## 🇺🇦 УКРАЇНСЬКА
 
-[**ЕНЦИКЛОПЕДIЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#енциклопедія-православного-воєнного-путінізму)
-
-_________________________________________________________________________________________________________________________
+[**ЕНЦИКЛОПЕДIЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#енциклопедiя-православного-воєнного-путiнiзму)
+___________________________________________________________________________________________________________________
 
 ## ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 
@@ -42,9 +40,9 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 [**Ward №666: The Grand Album of satirical miniatures**](album_en.md)
 
-[**In the Hall of a Thousand Truths: Quintessence of Putin's Logorrhea**](pivo_en.md)
+[**In the Hall of a Thousand Truths: Poisonous Source of Putin's Rhetoric**](pivo_en.md)
 
-[**Rising Off Her Knees: Satirical mini-play**](play_en.md) 
+[**Rising off Her Knees: Satirical mini-play**](play_en.md) 
 
 [**FSB Playbook: Satirical Protocols of Political Persecution**](fsb_en.md) 
 
@@ -54,7 +52,8 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 [**About the Author**](en_author)
 
-_________________________________________________________________________________________________________________________
+
+___________________________________________________________________________________________________________________
 
 ## L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE
 
@@ -68,7 +67,7 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 [**Chambre n°666 : Le Grand Album de miniatures satiriques**](album_fr.md) 
 
-[**Dans la Salle des Mille Vérités : La quintessence de la Logorrhée de Poutine**](pivo_fr.md)
+[**Dans la Salle des Mille Vérités : La source toxique de la rhétorique poutineuse**](pivo_fr.md)
 
 [**Se relevant de ses genoux : Mini-pièce satirique**](play_fr.md) 
 
@@ -80,7 +79,7 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 [**À propos de l'Auteure**](fr_author)
 
-_________________________________________________________________________________________________________________________
+___________________________________________________________________________________________________________________
 
 ## ЕНЦИКЛОПЕДІЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТІНІЗМУ
 
@@ -94,7 +93,7 @@ ________________________________________________________________________________
 
 [**Палата №666: Великий Альбом сатиричних мініатюр**](album_ua.md) 
 
-[**У Чертозі Тисячі Істин: Квінтесенція путінської Логореї**](pivo_ua.md)
+[**У Чертозі Тисячі Істин: Отруйне джерело путінської риторики**](pivo_ua.md)
 
 [**Встаюча з колін: Сатирична мініп’єса**](play_ua.md)
 
@@ -106,7 +105,7 @@ ________________________________________________________________________________
 
 [**Про Автора**](ua_author)
 
-_________________________________________________________________________________________________________________________
+___________________________________________________________________________________________________________________
 
 ## ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЕННОГО ПУТИНИЗМА 
 
@@ -120,13 +119,13 @@ ________________________________________________________________________________
 
 [**Палата №666: Большой Альбом сатирических миниатюр**](album_ru.md) 
 
-[**В Чертоге Тысячи Истин: Квинтэссенция Путинской Логореи**](pivo_ru.md)
+[**В Чертоге Тысячи Истин: Ядовитый источник путинской риторики**](pivo_ru.md)
 
 [**Встающая с колен: Сатирическая мини-пьеса**](play_ru.md) 
 
 [**Методичка ФСБ: Сатирические протоколы политического преследования**](fsb_ru.md) 
 
-[**Анатомия путинских „традиционных ценностей“: аналитическая статья**](values_ru.md) 
+[**Анатомия путинских „традиционных ценностей“:  аналитическая статья**](values_ru.md) 
 
 [**Список благотворительных фондов в помощь Украине**](ru_funds)
 
