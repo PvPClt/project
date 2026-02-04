@@ -1,16 +1,22 @@
+---
+title: "Anatomie des 'valeurs traditionnelles' de Poutine | Une autopsie laïque de l'hypocrisie sacrée" 
+description: "Selon la doctrine de Poutine, la morale chrétienne est au cœur des valeurs traditionnelles russes. Dans cet article, nous analysons en détail le code moral chrétien et prouvons qu'en Russie, il est grossièrement bafoué en tout point. Un guide convaincant et accessible à tous à travers le 'temple' de l'hypocrisie sacrée"
+---
+
+[**Page d'accueil**](index.md)
+
 # ANATOMIE DES « VALEURS TRADITIONNELLES » POUTINIENNES
+### ARTICLE ANALYTIQUE 
 
-**Shcheglova Olga (Boris Bidyaga)**
-
-**ATTENTION !**
-**NOTE IMPORTANTE !**
-
-Ce projet a été créé dans un contexte de persécution numérique. Les services secrets russes mènent des cyberattaques systématiques visant à déformer et à substituer la traduction correcte des mots et des expressions, cherchant à discréditer les textes et à en altérer le sens.
-Si vous êtes un locuteur natif et que vous remarquez dans les textes des mots et des expressions absurdes, illogiques, dénués de sens, "maladroits" ou grammaticalement incorrects, veuillez signaler l'erreur spécifique en utilisant les contacts ci-dessous (proposez votre version et expliquez pourquoi elle est meilleure). Votre aide pour garantir l'intégrité linguistique et la justesse des traductions est inestimable dans ce combat pour la vérité.
-Contacts:
-bbidyaga@protonmail.com | [Écrire via Signal](https://signal.me/#eu/iAMBIvJmOAjoVIE8JlkLyPckG75BEyLAnt3zv7U2XWrZtjnVQf9CMLHrow7DtBSk)
+**Auteur : Olga Shcheglova (Boris Bidyaga)**
 
 ![](Images/Cover_Values.jpg)
+
+**Préface** :
+
+Déconstruction méthodologique de la nouvelle idéologie d'État du Kremlin. En prenant pour base les déclarations de Poutine et le code moral de la religion chrétienne orthodoxe, nous confrontons méthodiquement et impitoyablement chaque postulat et chaque commandement chrétien aux modèles de comportement ouvertement barbares, prédateurs et anti-humains ancrés dans la politique et la société russes. Étape par étape, dans un langage simple et accessible, nous prouvons que les « valeurs traditionnelles » (normes morales chrétiennes) proclamées par Poutine ne sont pas seulement bafouées, mais déformées et perverties pour devenir une doctrine d'hypocrisie et de cynisme sacralisés.
+
+### Texte intégral de l'article
 
 Le 9 novembre 2022, le président russe Vladimir Poutine a signé le décret « Fondements de la politique de l'État pour la préservation et le renforcement des valeurs spirituelles et morales traditionnelles russes » (ci-après dénommé le Décret Poutine ou le Décret). Source : http://www.kremlin.ru/acts/bank/48502
 
