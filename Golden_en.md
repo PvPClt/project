@@ -1,10 +1,14 @@
 ---
-title: "The Golden Dozen | Top 12 Satirical Miniatures on Orthodox Military Putinism"
-description: "A lethal selection from the 'Ward №666' album. Alongside the 'FSB Playbook' and 'Hall of a Thousand Truths', this dozen forms the cutting edge of political satire – the miniatures that define the absurdity, cynicism, and terror of Orthodox Military Putinism. Start with these."
+title: "The Golden Dozen: Top 12 Satirical Miniatures on Orthodox Military Putinism"
+description:
+"A lethal selection from the 'Ward №666' album. Alongside the 'FSB Playbook' and 'Hall of a Thousand Truths', this dozen forms the cutting edge of political satire – the miniatures that define the absurdity, cynicism, and terror of Orthodox Military Putinism. Start with these."
 ---
-[**Full Version of the Project**](index.md)
 
-# The Golden Dozen: Top 12 Satirical Miniatures
+[**Main Page**](index.md)
+
+# THE GOLDEN DOZEN
+### TOP 12 SATIRICAL MINIATURES
+
 **Author: Shcheglova Olga (Boris Bidyaga)**
 
 **Diagnostic Foreword: Satire as a Method of Political Autopsy**
