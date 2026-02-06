@@ -3,6 +3,8 @@ title: "The Encyclopedia of Orthodox Military Putinism | Satirical Art Project"
 description: "A charity art project supporting Ukraine. Satirical miniatures, plays, and analysis exposing Putin's regime. FSB persecution chronicles, dialogues, political satire by Olga Shcheglova (Boris Bidyaga)."
 
 google_site_verification: "DuasJYIzT_YXGEzmkQXEDEEiJDLxZIBjDlcObSPRHVU"
+
+google-site-verification: "DuasJYIzT_YXGEzmkQXEDEEiJDLxZIBjDlcObSPRHVU"
 ---
 
 # THE ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
