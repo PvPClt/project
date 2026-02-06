@@ -5,7 +5,7 @@ description: "A lethal selection from the 'Ward №666' album. Alongside the 'FS
 
 [**Main Page**](index.md)
 
-# THE GOLDEN DOZEN 
+# THE GOLDEN DOZEN
 ### TOP 12 SATIRICAL MINIATURES
 
 **Author: Shcheglova Olga (Boris Bidyaga)**
