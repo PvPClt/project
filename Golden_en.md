@@ -12,7 +12,7 @@ description: "A lethal selection from the 'Ward №666' album. Alongside the 'FS
 
 **Diagnostic Foreword: Satire as a Method of Political Autopsy**
 
-Conventional political analysis often fails when confronted with the **performative absurdity** and **metaphysical cynicism** of the contemporary Russian regime. Where rational discourse reaches its limit, **clinical satire** becomes the essential diagnostic tool.
+Conventional political analysis often fails when confronted with the **performative absurdity** and **metaphysical cynicism** of the contemporary Russian regime. Where rational discourse reaches its limit, **clinical satire** becomes the essential diagnostic tool. 
 
 This project is not a literary exercise. It is a **systematic cartography of a political necrosis** — a regime that has evolved from post-Soviet authoritarianism into a unique hybrid: **Orthodox Military Putinism**. This ideology synthesizes imperial nostalgia, a perverted code of religious morality, hyper-modern technologies, and a total contempt for rights and freedoms — into a doctrine of perpetual war: a war against its own citizens, against historical truth, and against the very concept of objective reality.
 
