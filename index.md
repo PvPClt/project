@@ -5,6 +5,9 @@ layout: default
 ---
 
 ![](Images/alert.jpg)
+
+# [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://bydboris.github.io/logos)
+
 # THE ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 **Author: Shcheglova Olga (Boris Bidyaga)**
 
