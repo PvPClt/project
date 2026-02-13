@@ -4,6 +4,7 @@ description: "A charity art project supporting Ukraine. Satirical miniatures, pl
 layout: default
 ---
 
+![](Images/alert.jpg)
 # THE ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 **Author: Shcheglova Olga (Boris Bidyaga)**
 
