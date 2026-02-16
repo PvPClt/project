@@ -634,9 +634,9 @@ I don’t need that. My ratings are already high.
 
 ![](Images/En_Album_30.jpg)
 
-Military enlistment office, Russian town.
+Military enlistment office, Russian town. A large poster on the wall reads: 
 
-A conscript must bring: 
+***A conscript must bring:*** 
 
 • military uniform, helmet, boots,
 
@@ -784,7 +784,7 @@ Dialogue between Russian pilot and Ukrainian journalist.
 
 UN Security Council meeting. Commotion in chamber.
 
-**Ukrainian representative** (addressing Russia):
+**Ukrainian representative** (addressing Russian representative):
 
 — Aggressor!
 
