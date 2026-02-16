@@ -248,7 +248,7 @@ Spacious conference hall. Officials  seated inside. On illuminated stage well-kn
 
 We banned abortions. So what? Now they go to China to have abortions. Or they give birth in Argentina and stay there for ever. Condoms are the utmost evil. Condoms are a personal insult to me. They violate the basic right of the individual — the right to procreate and multiply. Enshrined in the Constitution, by the way.
 
-We banned condoms having named them  symbols of  extremism. So what? The black market for condoms is thriving. Underground manufactories of rubber goods are springing up like mushrooms after rain. All over the country. LGBT propaganda is oozing out of every crack. What is happening? This is a complete failure of my decrees implementation. I will not put up with this attitude.
+We banned condoms by designating them symbols of  extremism. So what? The black market for condoms is thriving. Underground manufactories of rubber goods are springing up like mushrooms after rain. All over the country. LGBT propaganda is oozing out of every crack. What is happening? This is a complete failure of the implementation of my decrees. I will not put up with this attitude.
 
 If the state apparatus cannot force the population to give birth — I will force the state apparatus to give birth.
 
@@ -1091,6 +1091,7 @@ American bar. US President Donald Trump and Russian President Vladimir Putin at 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**Main Page**](index.md)
+
 
 
 
