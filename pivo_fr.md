@@ -42,6 +42,8 @@ layout: default
 
 ## 1. POUTINE DANS LA SALLE DES DEUX VÉRITÉS : LE JUGEMENT D'OSIRIS
 
+![](Images/Fr_Album_003.jpg)
+
 > Temple sacré de l’Égypte ancienne. À l’intérieur – procédure bien connue du Jugement du dieu Osiris, décrite dans le « Livre des Morts ». Y participent :
 > 
 >  • Dieu Thot (secrétaire du tribunal, tablette d’argile en  mains)
@@ -1100,6 +1102,7 @@ Bar américain. Le président russe Vladimir Poutine et le président américain
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
 [**Page d'accueil**](index.md)
+
 
 
 
