@@ -6,7 +6,9 @@ layout: default
 
 ![](Images/alert.jpg)
 
-# [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://bydboris.github.io/logos)
+## 1. [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://bydboris.github.io/logos)
+
+## 2. [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://t.me/start_pvp/6)
 
 # THE ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 **Author: Shcheglova Olga (Boris Bidyaga)**
@@ -21,17 +23,34 @@ Olga Shcheglova (Boris Bidyaga) presents: black humor, caricature, grotesque, sa
 
 [**ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM**](#encyclopedia-of-orthodox-military-putinism)
 
+ISBN 978-5-9903439-4-8
+
+[**Mirror on Telegram**](https://t.me/start_pvp/6)
+
 ## 🇫🇷 FRANÇAIS
 
 [**L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE**](#l'encyclopédie-du-poutinisme-militaire-orthodoxe)
+
+ISBN: 978-5-9903439-5-5 
+
+[**Miroir sur Telegram**](https://t.me/start_pvp/6)
 
 ## 🇷🇺 РУССКИЙ 
 
 [**ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЕННОГО ПУТИНИЗМА**](#энциклопедия-православного-военного-путинизма)
 
+ISBN: 978-5-9903439-3-1
+
+[**Зеркало на Telegram**](https://t.me/start_pvp/6)
+
 ## 🇺🇦 УКРАЇНСЬКА
 
 [**ЕНЦИКЛОПЕДIЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТIНIЗМУ**](#енциклопедiя-православного-воєнного-путiнiзму)
+
+ISBN: 978-5-9903439-6-2
+
+[**Дзеркало на Telegram**](https://t.me/start_pvp/6)
+
 ___________________________________________________________________________________________________________________
 
 ## ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
@@ -58,8 +77,7 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 [**About the Author**](en_author)
 
-[Website mirror](mirror.md)
-
+[**GitHub mirror**](https://bydboris.github.io/logos)
 
 ___________________________________________________________________________________________________________________
 
@@ -83,11 +101,11 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 [**Anatomie des « valeurs traditionnelles » poutiniennes : article analytique**](values_fr.md) 
 
-[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
+[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds.md)
 
-[**À propos de l'Auteure**](fr_author)
+[**À propos de l'Auteure**](fr_author.md)
 
-[Miroir du site](mirror.md)
+[**GitHub miroir**](https://bydboris.github.io/logos)
 
 ___________________________________________________________________________________________________________________
 
@@ -111,12 +129,11 @@ ________________________________________________________________________________
 
 [**Анатомія путінських „традиційних цінностей“: аналітична стаття**](values_ua.md)
 
-[**Перелік благодійних фондів на допомогу Україні**](ua_funds)
+[**Перелік благодійних фондів на допомогу Україні**](ua_funds.md)
 
-[**Про Автора**](ua_author)
+[**Про Автора**](ua_author.md)
 
-[**Дзеркало сайту**](mirror.md)
-
+[**Дзеркало на GitHub**](https://bydboris.github.io/logos)
 ___________________________________________________________________________________________________________________
 
 ## ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЕННОГО ПУТИНИЗМА 
@@ -139,8 +156,8 @@ ________________________________________________________________________________
 
 [**Анатомия путинских „традиционных ценностей“:  аналитическая статья**](values_ru.md) 
 
-[**Список благотворительных фондов в помощь Украине**](ru_funds)
+[**Список благотворительных фондов в помощь Украине**](ru_funds.md)
 
-[**Об Авторе**](ru_author)
+[**Об Авторе**](ru_author.md)
 
-[**Зеркало сайта**](mirror.md)
+[**Зеркало на GitHub**](https://bydboris.github.io/logos)
