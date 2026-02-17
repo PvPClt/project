@@ -1,7 +1,9 @@
 ---
 title: "FSB Playbook: Satirical Protocols of Political Persecution | Chronicles"
 description: "A satirical reconstruction of FSB operational methods. Based on the real persecution experience of the author"
+layout: default
 ---
+
 [**Main Page**](index.md)
 
 # FSB PLAYBOOK
