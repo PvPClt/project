@@ -4,7 +4,12 @@
   ### English Edition: ISBN 978-5-9903439-4-8
   ### French Edition: ISBN 978-5-9903439-5-5
   ### Ukrainian Edition: ISBN 978-5-9903439-6-2
+  
   **Editor & Publisher: Olga Shcheglova**
 
-This resource is the official repository and legal archive for the term "Orthodox military Putinism." For comfortable reading and studying the materials, you can also use a mirror protected from visual distortions:
+This resource is the official repository and legal archive for the term "Orthodox military Putinism." For comfortable reading and studying the materials, you can also use a mirror:
 https://bydboris.github.io/logos
+
+or
+
+https://t.me/start_pvp/6
