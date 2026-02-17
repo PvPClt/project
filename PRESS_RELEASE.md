@@ -46,6 +46,10 @@ https://pvpclt.github.io/project/
  
  https://bydboris.github.io/logos/
 
+ **Mirror on Telegram:**
+
+ https://t.me/start_pvp/6
+
 **Media Contact:**
 
 Olga Shcheglova (alias Boris Bidyaga)
