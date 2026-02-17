@@ -1,6 +1,7 @@
 ---
 title: "Olga Shcheglova (Boris Bidyaga) | Immigration et persécution" 
 description: "Sur les conditions de création du projet : persécution et catastrophe humanitaire en Turquie et en Géorgie"
+layout: default
 ---
 
 [**Page d'accueil**](index.md)
