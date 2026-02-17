@@ -1,6 +1,7 @@
 ---
 title: "Shcheglova Olga (Boris Bidyaga) I immigration and persecution"
 description: "About conditions of the project’s creation: persecution and humanitarian catastrophe in Turkey and Georgia."
+layout: default
 ---
 
 [**Main Page**](index.md)
