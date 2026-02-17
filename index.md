@@ -4,7 +4,7 @@ description: "A charity art project supporting Ukraine. Satirical miniatures, pl
 layout: default
 ---
 
-![](Images/alert.jpg)
+![](Images/uvaga.png)
 
 ## 1. [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://bydboris.github.io/logos)
 
