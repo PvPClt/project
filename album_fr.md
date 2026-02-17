@@ -6,7 +6,7 @@ layout: default
 
 [**Page d'accueil**](index.md)
 
-# 🇫🇷 CHAMBRE N°666 
+# 🇫🇷 CHAMBRE N°666
 ### LE GRAND ALBUM DE MINIATURES SATIRIQUES
 
 **Auteur : Olga Shcheglova (Boris Bidyaga)**
