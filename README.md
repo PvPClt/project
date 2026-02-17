@@ -8,8 +8,5 @@
   **Editor & Publisher: Olga Shcheglova**
 
 This resource is the official repository and legal archive for the term "Orthodox military Putinism." For comfortable reading and studying the materials, you can also use a mirror:
-https://bydboris.github.io/logos
-
-or
-
+https://bydboris.github.io/logos or
 https://t.me/start_pvp/6
