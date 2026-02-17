@@ -1,6 +1,7 @@
 ---
 title: "Dans la Salle des Mille Vérités : La source toxique de la rhétorique poutineuse" 
 description: "Miniatures au carrefour de la politique et de la philosophie. Dialogues de bar privés entre deux autocrates, un 'Tribunal d’Osiris' corrompu, et une reconstruction de l'absurde total des discours du président russe. Un guide de l'ère de la post-vérité, où mille vérités ont englouti la réalité objective"
+layout: default
 ---
 
 [**Page d'accueil**](index.md)
@@ -1099,6 +1100,7 @@ Bar américain. Le président russe Vladimir Poutine et le président américain
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
 [**Page d'accueil**](index.md)
+
 
 
 
