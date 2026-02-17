@@ -14,6 +14,8 @@ layout: default
 
 ![](Images/Cover_Play.jpg)
 
+<img src="https://pvpclt.github.io/project/Images/Cover_Play.jpg" style="display: block; margin: 0 auto; width: 150%;" alt="">
+
 ### CHARACTERS: 
 
 – Russia
