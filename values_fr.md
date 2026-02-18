@@ -177,7 +177,12 @@ Ainsi, nous avons établi que Poutine et les structures de pouvoir russes, ainsi
 
 Cependant, l'histoire montre que les régimes fondés sur le mensonge et la violence sont voués à l'effondrement. Et quand cela se produira, tous les hypocrites, les criminels et leurs complices devront répondre de leurs actes – sinon devant un tribunal terrestre, alors devant le Tribunal Suprême.
 
+#PoutinismeMilitaireOrthodoxe
+                                👻
+
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
+© Olga Shcheglova, 2024
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
