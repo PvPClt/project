@@ -19,7 +19,7 @@ layout: default
 Контакти:
 bbidyaga@protonmail.com 
 
-<img src="https://pvpclt.github.io/project/Images/Cover_Play.jpg" style="display: block; margin: 0 auto; width: 150%;" alt="">
+![](Images/Cover_Play.jpg)
 
 ### ДІЙОВІ ОСОБИ: 
 
