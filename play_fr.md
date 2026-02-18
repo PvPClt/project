@@ -696,13 +696,16 @@ Ils brouillent mes radars à zéro ! Et voilà : un avion invisible, bordel ! C�
 
 (Il la regarde avec dégoût, la voit se tordre dans l’agonie, puis se détourne et sort.)
 
-24.09.2024
+#PoutinismeMilitaireOrthodoxe
+                                👻
 
-Turquie – Géorgie
+*24.09.2024*
 
-© Щеглова О.В., 2024
+*Turquie – Géorgie*
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
+© Olga Shcheglova, 2024
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
