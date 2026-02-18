@@ -1968,7 +1968,7 @@ Vous êtes ma Muse. Celle qui a éveillé mon élan créateur par le désespoir 
 
 Sans votre refus cynique de m'accorder l'asile, qui m'a condamné à vivre dans une tente glaciale, cette satire n'aurait peut-être pas atteint une telle acuité.
 
-© Olga Viktorovna Shcheglova, 2025
+© Olga Shcheglova, 2025
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
