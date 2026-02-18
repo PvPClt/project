@@ -217,7 +217,12 @@ Our analysis thus concludes with an inescapable verdict: Vladimir Putin, the Rus
 
 Yet history's arc, though long, bends toward justice. Regimes founded on lies and violence carry the seeds of their own destruction within them. And when this regime inevitably falls, all its hypocrites, criminals, and accomplices will face a final judgment — if not before a temporal court, then before the Supreme.
 
-<img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+#OrthodoxMilitaryPutinism
+                              👻
+
+<img src="Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
+**© Olga Shcheglova, 2024** 
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
