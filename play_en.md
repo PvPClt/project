@@ -687,13 +687,16 @@ layout: default
 
 (He watches with disdain as Russia convulses, dying at his feet. Then, without a glance back, he turns and walks away.)
 
+#OrthodoxMilitaryPutinism
+                              👻
+                              
 *September 24th 2024*
 
 *Turkey — Georgia* 
 
-**© Shcheglova O.V., 2024**  
-
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
+
+**© Olga Shcheglova, 2024**  
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
