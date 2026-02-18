@@ -70,4 +70,6 @@ Every word you read was written under the strain of hunger, cold, constant perse
 
 This is more than literature. It is a testament to an unbroken will,  courage, and active resistance. And simultaneously — a tool to help those like me: the victims, the displaced, and the desperate.
 
+[**List Of Charitable Foundations Assisting Ukraine**](en_funds)
+
 [**Main Page**](index.md)
