@@ -1999,7 +1999,7 @@ You are my Muse. The one who awakened my creative drive through despair and hope
 
 Without your cynical refusal to grant me asylum, condemning me to live in an icy tent, the sharpness of this satire might not have reached its full potential.
 
-© Olga Viktorovna Shcheglova, 2025
+© Olga Shcheglova, 2025
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
