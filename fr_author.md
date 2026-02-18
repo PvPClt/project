@@ -72,4 +72,7 @@ Chaque miniature, pièce ou article que vous lisez est le fruit d’efforts inou
 
 Ceci n’est pas qu'un simple texte. C’est un témoignage de courage, d’une volonté inébranlable et d’une résistance active. C’est, en même temps, un instrument d’aide pour ceux qui, comme moi, sont victimes, démunis et désespérés.
 
+[**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
+
 [**Page d'accueil**](index.md)
+
