@@ -974,7 +974,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 **SENKO :**
 
 — Je **conçois** ses priorités. Puisque sa mère a failli à son devoir d’éducation, je le ferai à sa place – je le forgerai en une unité socialement acceptable.
-**Phase Un** :application ciblée du faisceau sur les phalanges distales. Nous induisons une légère raideur matinale persistante des articulations. En trois mois, sa motricité fine se dégrade. Sa technique de jeu devient… instable.
+**Phase Un** : application ciblée du faisceau sur les phalanges distales. Nous induisons une légère raideur matinale persistante des articulations. En trois mois, sa motricité fine se dégrade. Sa technique de jeu devient… instable.
 Si cela s’avère insuffisant, **Phase Deux** : le système auditif. Armes acoustiques. Nous augmentons la sensibilité de la cochlée à un degré pathologique. Chaque note qu’il jouera résonnera dans son crâne comme un coup de marteau sur une enclume. Il percevra son propre hobby comme une forme de torture raffinée.
 Si la résistance persiste, **Phase Trois** : déstabilisation systémique de la santé. Une cascade d’affections mineures, mal diagnostiquables, mais profondément invalidantes. Son existence se réduira à un circuit fermé : dispensaire, pharmacie, sanatorium, église. La médecine conventionnelle, comme tu le sais, n’offrira aucun salut. Son ultime recours sera la prière.
 À ce stade, les activités culturelles comme le piano deviennent non pertinentes. Le message principal se déplace vers la survie de base.
