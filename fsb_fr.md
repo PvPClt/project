@@ -106,7 +106,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 **VETCHIRKO** : 
 
-— Cette médecine débile du 21ème siècle m'achève. Tous ces médicaments brevetés de dixième génération qui guérissent tout. Par exemple : je lui balance des infrasons dans les yeux, et elle, elle achète des gouttes italiennes au panthénol et continue sa vie tranquille. Quel rendement ? Tout ce boulot pour rien. C'est stupide.
+— Cette médecine débile du 21ème siècle m'achève. Tous ces médicaments brevetés de dixième génération qui guérissent tout. Par exemple : je lui balance du faisceau dans les yeux, et elle, elle achète des gouttes italiennes au panthénol et continue sa vie tranquille. Quel rendement ? Tout ce boulot pour rien. C'est stupide.
 
 **SENKO** : 
 
@@ -288,7 +288,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 **SENKO** : 
 
-— Impossible. Le caissier est prévenu. Ça ne passera pas en caisse. On lui sortira un article propre de la réserve. Et toi, pendant ce temps, assure la motivation — chatouille-lui le dos avec les infrasons.
+— Impossible. Le caissier est prévenu. Ça ne passera pas en caisse. On lui sortira un article propre de la réserve. Et toi, pendant ce temps, assure la motivation — chatouille-lui le dos avec par faisceau.
 
 **VETCHIRKO** : 
 
@@ -596,7 +596,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 **SENKO** (après un bref silence) :
 
-— L’articulation de la hanche. Bien que l’appeler un « point » ne soit pas tout à fait exact. La hanche, c’est un instrument d’une puissance formidable. Ce n’est pas seulement une douleur infernale, mais aussi l’opération chirurgicale inévitable pour remplacer l’articulation par une pièce de métal. Après trois ou quatre mois d’attaques régulières aux infrasons.
+— L’articulation de la hanche. Bien que l’appeler un « point » ne soit pas tout à fait exact. La hanche, c’est un instrument d’une puissance formidable. Ce n’est pas seulement une douleur infernale, mais aussi l’opération chirurgicale inévitable pour remplacer l’articulation par une pièce de métal. Après trois ou quatre mois d’attaques régulières par faisceau.
 
 **VETCHIRKO** :
 
@@ -610,7 +610,7 @@ Si cette saleté n’avait pas fui la maison aux premiers signes d’attaque, el
 
 **VETCHIRKO** :
 
-— Oui, tu as raison : l’aspect visuel joue un rôle crucial. Quand Oksana m’a quitté, j’ai assez bien surmonté cette trahison. Je torturais la vieille aux infrasons pendant des heures et, chose étonnante, contempler ses souffrances allégeait les miennes. Et oui, tu as raison : d’une certaine façon, c’est même mieux que le sexe. Se libérer d’une tension sexuelle, on peut le faire en se branlant. Mais les relations psycho-sociales avec une femme en tant que membre de la société… là, je préfère que la femme soit un « objet », et non un sujet.
+— Oui, tu as raison : l’aspect visuel joue un rôle crucial. Quand Oksana m’a quitté, j’ai assez bien surmonté cette trahison. Je torturais la vieille par faisceau pendant des heures et, chose étonnante, contempler ses souffrances allégeait les miennes. Et oui, tu as raison : d’une certaine façon, c’est même mieux que le sexe. Se libérer d’une tension sexuelle, on peut le faire en se branlant. Mais les relations psycho-sociales avec une femme en tant que membre de la société… là, je préfère que la femme soit un « objet », et non un sujet.
 
 **SENKO** :
 
@@ -965,7 +965,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 **SENKO :**
 
-— C’est précisément là que nous divergions de la jurisprudence, Vetchirko. Quand on dispose des moyens pour régler un différend de manière directe et immédiate – infrasons, systèmes de guerre électronique, armes à impulsions, radiofréquences, énergie dirigée – le concept de « recherche de protection » devient simplement superflu. Pourquoi engager un dialogue avec un voisin quand on peut simplement le **reconfigurer** ?
+— C’est précisément là que nous divergions de la jurisprudence, Vetchirko. Quand on dispose des moyens pour régler un différend de manière directe et immédiate – systèmes de guerre électronique, armes à impulsions, radiofréquences, énergie dirigée – le concept de « recherche de protection » devient simplement superflu. Pourquoi engager un dialogue avec un voisin quand on peut simplement le **reconfigurer** ?
 
 **VETCHIRKO :**
 
@@ -974,7 +974,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 **SENKO :**
 
 — Je **conçois** ses priorités. Puisque sa mère a failli à son devoir d’éducation, je le ferai à sa place – je le forgerai en une unité socialement acceptable.
-**Phase Un** :application ciblée d’infrasons sur les phalanges distales. Nous induisons une légère raideur matinale persistante des articulations. En trois mois, sa motricité fine se dégrade. Sa technique de jeu devient… instable.
+**Phase Un** :application ciblée du faisceau sur les phalanges distales. Nous induisons une légère raideur matinale persistante des articulations. En trois mois, sa motricité fine se dégrade. Sa technique de jeu devient… instable.
 Si cela s’avère insuffisant, **Phase Deux** : le système auditif. Armes acoustiques. Nous augmentons la sensibilité de la cochlée à un degré pathologique. Chaque note qu’il jouera résonnera dans son crâne comme un coup de marteau sur une enclume. Il percevra son propre hobby comme une forme de torture raffinée.
 Si la résistance persiste, **Phase Trois** : déstabilisation systémique de la santé. Une cascade d’affections mineures, mal diagnostiquables, mais profondément invalidantes. Son existence se réduira à un circuit fermé : dispensaire, pharmacie, sanatorium, église. La médecine conventionnelle, comme tu le sais, n’offrira aucun salut. Son ultime recours sera la prière.
 À ce stade, les activités culturelles comme le piano deviennent non pertinentes. Le message principal se déplace vers la survie de base.
