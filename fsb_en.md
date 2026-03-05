@@ -126,7 +126,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 **VECHIRKO** (bitterly): 
 
-— This 21st-century medicine is a pain in my ass. All these patented, tenth-generation miracle drugs. Take the old hag, for instance. I blast her retinas with infrasound — a professional job — and what does she do? She just strolls into a pharmacy, buys some Italian drops with panthenol, and boom — problem solved! For her. For me? Months of calibration down the drain. It’s a joke.
+— This 21st-century medicine is a pain in my ass. All these patented, tenth-generation miracle drugs. Take the old hag, for instance. I blast her retinas with the beam — a professional job — and what does she do? She just strolls into a pharmacy, buys some Italian drops with panthenol, and boom — problem solved! For her. For me? Months of calibration down the drain. It’s a joke.
 
 **SENKO**:
 
@@ -327,7 +327,7 @@ Have you ever seen such crap, Senko? God, she makes me sick!
 
 **SENKO**: 
 
-— Impossible. The cashier has her photo. If anyone else picks one up, the "system" will go down. They’ll fetch a "clean" one from the back. Now, you — make sure she has the proper motivation to buy. Tickle her spine with the infrasound rig.
+— Impossible. The cashier has her photo. If anyone else picks one up, the "system" will go down. They’ll fetch a "clean" one from the back. Now, you — make sure she has the proper motivation to buy. Tickle her spine with the beam.
 
 **VECHIRKO** (smugly): 
 
@@ -654,7 +654,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 **SENKO** (thinks for a second): 
 
-— The hip joint. Calling it a "point" doesn't do it justice. The hip is the heavy hitter. It’s not just the agony; it’s the inevitable surgery — getting that bone swapped for a piece of hardware. Three or four months of steady infrasound, and she’s done.
+— The hip joint. Calling it a "point" doesn't do it justice. The hip is the heavy hitter. It’s not just the agony; it’s the inevitable surgery — getting that bone swapped for a piece of hardware. Three or four months of steady beam application, and she’s done.
 
 **VECHIRKO**: 
 
@@ -666,7 +666,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 **VECHIRKO**: 
 
-— True. The visuals are everything. When Oksana dumped me, I walked it off pretty easy. I’d spend hours lighting the old bitch up with infrasound, and — get this — watching her suffer actually took the edge off my own pain. You’re right, it’s better than sex. If you just need to get off, you can jerk it. But as far as a man’s relationship with a woman in society goes? I prefer her as an "object," not a person.
+— True. The visuals are everything. When Oksana dumped me, I walked it off pretty easy. I’d spend hours lighting the old bitch up with the beam, and — get this — watching her suffer actually took the edge off my own pain. You’re right, it’s better than sex. If you just need to get off, you can jerk it. But as far as a man’s relationship with a woman in society goes? I prefer her as an "object," not a person.
 
 **SENKO**: 
 
@@ -1027,7 +1027,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 **SENKO:**
 
-— That is precisely where we diverge from jurisprudence, Vechirko. When one possesses the means to enforce compliance directly — infrasound, EW suites, pulsed, RF, and directed-energy systems — the concept of "seeking protection" becomes redundant. Why engage in neighborly discourse when you can simply **recalibrate** the neighbor?
+— That is precisely where we diverge from jurisprudence, Vechirko. When one possesses the means to enforce compliance directly — EW suites, pulsed, RF, and directed-energy systems — the concept of "seeking protection" becomes redundant. Why engage in neighborly discourse when you can simply **recalibrate** the neighbor?
 
 **VECHIRKO:**
 
@@ -1035,7 +1035,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 **SENKO:**
 
-— I will **engineer** his priorities. Since his mother failed in her duty, I will forge him into a socially acceptable entity. Phase One: targeted infrasound application to the distal phalanges. Induce minor, persistent morning stiffness. Within three months, his motor skills will degrade. The performance technique will become… unstable.
+— I will **engineer** his priorities. Since his mother failed in her duty, I will forge him into a socially acceptable entity. Phase One: targeted beam application to the distal phalanges. Induce minor, persistent morning stiffness. Within three months, his motor skills will degrade. The performance technique will become… unstable.
 Should that prove insufficient, Phase Two: the auditory system. Acoustic weapons. We increase cochlear sensitivity to a pathological degree. Every note he plays will resonate in his skull like a pile driver. He will experience his own hobby as a form of exquisite torture.
 If resistance persists, Phase Three: systemic health destabilization. A cascade of minor, untraceable, yet profoundly debilitating ailments. His existence will be reduced to a closed circuit: clinic, pharmacy, sanatorium, church. Conventional medicine, as you know, will offer no salvation. His final recourse will be prayer.
 At that stage, cultural pursuits like the piano become irrelevant. The core directive shifts to basic survival.
