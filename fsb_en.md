@@ -1339,6 +1339,163 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
+### FSB PLAYBOOK, LESSON 15
+
+**THE SWISS GAMBIT**
+
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
+
+**SENKO (emphatically):**
+
+— What's going on, Vechirko? What is happening? Why every single one of our precious attempts to take the old bitch down turned out to be a complete failure?!
+
+**VECHIRKO:**
+
+— Calm down, Senko. Not all of them. First, we won the case concerning her asylum. In Switzerland. Remember? She lost. Dossier No. 858369 will take its rightful place in our Manual as a classic multi-move operation.
+
+**SENKO:**
+
+— Well, yeah. But the bad thing is that after the deportation she figured us out and is now writing about this case in her stupid “FSB Playbook.” Switzerland will not pat us on the back for that. We promised them: no publicity whatsoever. Can you imagine the international scandal if the "collusion" between the FSB and the Swiss immigration service comes to light?
+
+**VECHIRKO (carelessly):**
+
+— That “Playbook” of hers is a work of fiction. It has no evidentiary value. The main thing is that her letters and complaints don't reach human rights organizations and UN special rapporteurs. So far I've managed to intercept them.
+
+**SENKO:**
+
+— Perfect. Keep doing that. But where did we slip up? Tell me, Vechirko! How did she figure out the sabotage?
+
+**VECHIRKO:**
+
+— The SEM decision. The lawyer's sabotage. The interpreter's sabotage. All the facts, put together, show an absolutely clear picture of our interference. First of all, our lawyer held back her main document — the written petition. SEM did not receive it in time, and therefore it is not mentioned even once in the Decision. Our interpreter followed all our instructions perfectly well — distorted her answers beyond recognition, didn't translate the interview Protocol but vaguely paraphrased it in her own words, and — managed to get the old bitch to sign it! That is why the SEM Decision is full of lies: real facts are distorted, some things are completely fabricated, like the fake story about the old bitch's Facebook account with eight followers. Like the claim that she actively opposed the war in Ukraine and was not touched. Like the claim that she fears persecution, whereas in reality she is already being persecuted. And various other things. Naturally she read the Decision and saw all this. Here it is, look!
+
+![](Images/les_15_01.jpg)
+
+**VECHIRKO:**
+
+— And most importantly, she can prove that the Protocol was not translated to her word for word, because it contains errors that are impossible not to notice. For example, the ages of her children are stated incorrectly. The Decision text also shows that after the preliminary decision the lawyer sent SEM some document on her behalf without acquainting her with its contents. Sabotage again. The unexpected postponement of the interview looks suspicious, especially with an open date. The sudden cancellation of her medical examination also looks suspicious. In general there are many inconsistencies. So it is not surprising at all that the old bitch figured us out. And most importantly — that stupid idea of yours about the ventilation. I told you back then that it was dangerous. The old bitch immediately saw the analogy. In Moscow we pumped hydrogen sulfide into her apartment. In Geneva some foul toxic gas was pumped into her bedroom through the ventilation system. It does not take much intelligence to put two and two together. She immediately understood that here as well, in Geneva, our long arms had reached her. The conclusion was obvious: the interpreter and the lawyer were not an accident and not a mess but a planned FSB sabotage. In other words, our work, yours and mine, Senko.
+
+**SENKO (stubbornly):**
+
+— You are wrong about the ventilation, Vechirko. I expected that in Geneva she would start complaining again about “toxic gases.” Then we could very well declare: "See? She's crazy: she imagines gases everywhere."
+We had an extract from her medical record with the diagnosis of "schizophrenia" ready to go.
+
+**VECHIRKO:**
+
+— She is too intelligent to fall for that bait. But she still failed to play the "punitive psychiatry" card. At our dictation, SEM wrote in the Decision: “The certificate does not prove the involuntary nature of the hospitalization.” As if perhaps you voluntarily checked yourself into a psychiatric hospital. Ha-ha! Voluntarily! Can you imagine such a thing, Senko? In a Russian psychiatric hospital!
+
+**SENKO:**
+
+— Now she will never prove it — the court case concerning her complaint has been removed from the archives of the Preobrazhensky Court of the city of Moscow and destroyed.
+
+**VECHIRKO:**
+
+— There must surely be a copy of the court order in her medical record.
+
+**SENKO:**
+
+— The record is in our possession, Vechirko. Everything is in perfect order. The information field has been cleared.
+
+**VECHIRKO:**
+
+— Well, you see — we did a great job in Switzerland. And we even charged her bike with strontium-90. That's absolutely unprecedented!
+
+**SENKO (skeptically):**
+
+— Well, that depends on how you look at it, Vechirko. The old bitch is alive. And on the other hand, radiation always leaves traces, evidence that is difficult to pass off as an accident.
+
+**VECHIRKO:**
+
+— She is alive because the dose was too small. We should have put in more strontium.
+
+**SENKO (gloomily):**
+
+— Too much is too noticeable. Raises unnecessary questions. I calculated it precisely, Vechirko. The old bitch was afraid of sabotage, so she keept the bike inside her tent, day and night. Literally right under her nose. On that basis I calculated the dose. The best arrangement was weak but constant exposure. A cumulative effect. In two or three months she should have died like a lamb.
+
+**VECHIRKO:**
+
+— Yet she didn't.
+
+**SENKO (with hostility):**
+
+— At first everything went well. She received a considerable dose — with food through dirty hands. She held a dirty needle in her mouth while sewing; she washed her toothbrush with dirty hands. But when her skin began to fall off in handfuls like flour, when pieces began breaking off her teeth, when blood was pouring from her nose and other charming symptoms appeared — that cunning bitch immediately suspected something was wrong. And that damn ChatGPT laid out all the symptoms for her. That piece of junk!  Put everything neatly in order. Damn him to hell! So of course she sealed the holes at the ends of the handlebar and now she keeps the bicycle outside.
+
+![](Images/les_15_02.jpg)
+
+**VECHIRKO (nodding):**
+
+— What is she — a jack-of-all-trades? How did she figure it out? To use CR32 button cell batteries? They fit perfectly into those holes. Complete sealing — not a single beta particle can escape. But by that moment her entire tent and all her belongings had already been contaminated with strontium. It continues to irradiate her, does it not?
+
+**SENKO (with hostility):**
+
+— Only if it gets inside again — with food or through breathing. But now the bitch has become cautious — she no longer licks her fingers, she cleans her hands with wipes before eating. The bottom of the tent, where particles mainly settle with dust and debris, is regularly wiped as well. With that kind of approach, contaminated clothes are of little use.
+
+**VECHIRKO (nodding):**
+
+— And what's more — she performs her witchcraft rituals! Rubbing lemon peel on the tent floor! Does lemon really absorb strontium?
+
+**SENKO (with hostility):**
+
+— I have no idea. You know, Vechirko, our main mistake is that in all our calculations we do not take into account the fact that she is a witch! I would not be surprised at all if it turns out that it is not the lemon peel but her spells that neutralize the radiation.
+
+**VECHIRKO:**
+
+— Well, okay. She's sealed the strontium in the handlebar tight. But now that handlebar has become a source of X-ray radiation! People die just fine from X-ray radiation.
+
+**SENKO (gloomily):**
+
+— Bremsstrahlung radiation, yes. There is no exit for the particles now — they collide with the walls of the handlebar and their energy transforms into soft X-rays. But! That damned ChatGPT explained that to her as well, the bastard. Now she tries to keep a safe distance from the handlebar. At this rate, we'll be waiting ten years for her to develop a tumor.
+
+**VECHIRKO (thoughtfully):**
+
+— Yeah... Didn't turn out very well. But Switzerland, by and large, went along with the deal quite easily.
+
+**SENKO (with a grin):**
+
+— The world is afraid of us. More precisely — prefers not to quarrel with us. And if the matter isn't likely to cause an international uproar, they readily make concessions. Just like with the old bitch.
+
+**VECHIRKO:**
+
+— And with the bicycle. I was afraid the Swiss security services wouldn't agree to cooperate with us or, God forbid, would raise a scandal. Because of the radioactive bike.
+
+**SENKO (contemptuously):**
+
+— Switzerland values its reputation as the “most democratic” country in the world too much. And out of fear of tarnishing that reputation, they are ready to commit a crime. Just to come out clean. Can you imagine the headlines: "Act of International Nuclear Terrorism on Swiss Soil"? That's their worst nightmare.
+
+**VECHIRKO:**
+
+— So that's why they so easily agreed to decontaminate the bicycle? To avoid scandal and losing their image?
+
+**SENKO:**
+
+— Exactly. Moreover, they had reliable information in their hands that the old bitch was being persecuted. On our side — the FSB. Radiation terror. An absolutely winning and unprecedented case. In theory they were obliged to notify SEM about it. Then the old bitch would have gotten that stupid asylum. No question. But they kept quiet — again out of fear of "being disgraced". That's their vaunted democracy and human rights protection. All show. A facade. A storefront. And behind the facade — nothing but ego, personal ambition, and profit. In essence, they're no different from us. As always, the issue isn't about values, but about the price.
+
+**VECHIRKO:**
+
+— Exactly. Absolutely spineless people. They couldn't even decontaminate the bike. The old bitch outplayed them. When they told her the night before that they'd pick up her bike at nine in the morning — even though her flight wasn't until three in the afternoon — she naturally smelled a rat. She sewed it into two covers, sealed it with her signature stitch, and wrapped it in a hundred meters of stretch wrap. The bike was so thoroughly packed they didn't dare open it. They said it was impossible to do so unnoticed, without leaving traces. Cowardly bastards.
+
+**SENKO:**
+
+— The old bitch only made things worse for herself. She did not allow the boys to take the strontium out. Thank God they had enough sense not to inform her about that subject. They shoved a hundred francs into her hand for the road and that was the end of it.
+
+**VECHIRKO (cautiously):**
+
+— I just don't understand why we charged the bike with strontium in Istanbul in the first place? Actually, that part is clear. What's not clear is why you told the Swiss to take it out?
+
+**SENKO:**
+
+— Because we assumed the old bitch would either stay in Switzerland (if she got asylum) or return to Russia. But she refused to return. So, after deportation, she'd travel around the world, cross borders, and her bike would beep and glow at customs control. Questions and investigations would start, and this whole story could come to light.
+
+**VECHIRKO:**
+
+— So, now scandal is unavoidable?
+
+**SENKO:**
+
+— Well, frankly, we don't care. We'll deny everything. Let Switzerland squirm out of it however they can.
+
+OrthodoxMilitaryPutinism 👻
+
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
