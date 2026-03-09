@@ -1276,6 +1276,163 @@ Elle n’était pas censée laver ce costume !
 
 #PoutinismeMilitaireOrthodoxe 👻
 
+### GUIDE PRATIQUE DU FSB, LEÇON 15
+
+**LE GAMBIT SUISSE**
+
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
+
+**SENKO** (avec emphase) :
+
+— Qu'est-ce qui se passe, Vetchirko ? Qu'est-ce qui arrive ? Pourquoi chacune de nos précieuses tentatives pour abattre cette vieille peau se solde-t-elle par un échec total ?!
+
+**VETCHIRKO** :
+
+— Calme-toi, Senko. Pas toutes. D'abord, nous avons gagné l'affaire concernant son asile. En Suisse. Tu te souviens ? Elle a perdu. Le dossier n° 858369 prendra sa place légitime dans notre Manuel comme une opération combinée classique.
+
+**SENKO** :
+
+— Certes. Mais le problème, c'est qu'après l'expulsion, elle nous a percés à jour et écrit maintenant sur cette affaire dans son stupide « Guide Pratique du FSB ». La Suisse ne va pas nous féliciter pour ça. Nous leur avions promis : aucune publicité, absolument aucune. Imagines-tu le scandale international si la « collusion » entre FSB et le service d'immigration suisse (SEM) éclatait au grand jour ?
+
+**VETCHIRKO** (avec insouciance) :
+
+— Son « Guide » est une œuvre de fiction. Il n'a aucune valeur probante. L'essentiel est que ses lettres et ses plaintes n'atteignent pas les organisations de défense des droits de l'homme et les rapporteurs spéciaux de l'ONU. Jusqu'à présent, j'ai réussi à les intercepter.
+
+**SENKO** :
+
+— Parfait. Continue. Mais où avons-nous fauté ? Dis-moi, Vetchirko ! Comment a-t-elle compris le sabotage ?
+
+**VETCHIRKO** :
+
+— La décision du SEM. Le sabotage de l'avocat. Le sabotage de l'interprète. Tous les faits, mis bout à bout, montrent une image absolument claire de notre ingérence. Tout d'abord, notre avocat a retenu son document principal — la pétition écrite. Le SEM ne l'a pas reçue à temps, et par conséquent, elle n'est pas mentionnée une seule fois dans la décision. Notre interprète a parfaitement suivi toutes nos instructions — elle a déformé ses réponses au-delà du reconnaissable, n'a pas traduit le protocole de l'entretien mais l'a vaguement paraphrasé avec ses propres mots, et — a réussi à faire signer la vieille peau ! C'est pourquoi la décision du SEM est pleine de mensonges : les faits réels sont déformés, certaines choses sont complètement fabriquées, comme l'histoire bidon du compte Facebook de la vieille avec huit abonnés. Comme l'affirmation selon laquelle elle s'opposait activement à la guerre en Ukraine et n'avait pas été touchée. Comme l'affirmation selon laquelle elle craint des persécutions, alors qu'en réalité, elle est déjà persécutée. Et diverses autres choses. Naturellement, elle a lu la décision et a vu tout cela. Le voici, regarde !
+
+![](Images/les_15_01.jpg)
+
+**VETCHIRKO** :
+
+— Et surtout, elle peut prouver que le protocole ne lui a pas été traduit mot pour mot, car il contient des erreurs qu'il est impossible de ne pas remarquer. Par exemple, l'âge de ses enfants est incorrect. Le texte de la décision montre également qu'après la décision préliminaire, l'avocat a envoyé au SEM un document en son nom sans l'informer de son contenu. Encore un sabotage. Le report inattendu de l'entretien semble suspect, surtout avec une date ouverte. L'annulation soudaine de son examen médical semble également suspecte. En général, il y a de nombreuses incohérences. Il n'est donc pas surprenant du tout que la vieille nous ait percés à jour. Et le plus important — ton idée stupide avec la ventilation. Je t'avais dit à l'époque que c'était dangereux. La vieille a immédiatement vu l'analogie. À Moscou, nous injections de l'hydrogène sulfuré dans son appartement. À Genève, un gaz toxique fétide a été injecté dans sa chambre par le système de ventilation. Il ne faut pas beaucoup d'intelligence pour faire le lien. Elle a immédiatement compris qu'ici aussi, à Genève, nos longs bras l'avaient atteinte. La conclusion était évidente : l'interprète et l'avocat n'étaient pas un accident ou un désordre, mais un sabotage planifié de l'FSB. En d'autres termes, notre travail, le tien et le mien, Senko.
+
+**SENKO** (têtu) :
+
+— Tu as tort pour la ventilation, Vetchirko. Je m'attendais à ce qu'à Genève, elle recommence à se plaindre de « gaz toxiques ». Nous aurions alors pu déclarer : « Vous voyez ? Elle est folle, elle imagine des gaz partout. » Nous avions un extrait de son dossier médical avec le diagnostic de « schizophrénie » prêt à l'emploi.
+
+**VETCHIRKO** :
+
+— Elle est trop intelligente pour mordre à l'hameçon. Mais elle n'a quand même pas pu jouer la carte de la « psychiatrie punitive ». Sous notre dictée, le SEM a écrit dans la décision : « Le certificat ne prouve pas le caractère involontaire de l'hospitalisation. » Comme si, peut-être, vous étiez entrée volontairement dans un hôpital psychiatrique. Ha-ha ! Volontairement ! Imagines-tu une chose pareille, Senko ? Dans un hôpital psychiatrique russe !
+
+**SENKO** :
+
+— Maintenant, elle ne le prouvera jamais — le dossier judiciaire concernant sa plainte a été retiré des archives du tribunal Preobrajensky de la ville de Moscou et détruit.
+
+**VETCHIRKO** :
+
+— Il doit sûrement y avoir une copie de l'ordonnance du tribunal dans son dossier médical.
+
+**SENKO** :
+
+— Le dossier est en notre possession, Vetchirko. Tout est en parfait ordre. Le champ informationnel a été nettoyé.
+
+**VETCHIRKO** :
+
+— Eh bien, tu vois — nous avons fait un excellent travail en Suisse. Et nous avons même chargé son vélo au strontium-90. C'est absolument sans précédent !
+
+**SENKO** (sceptique) :
+
+— Eh bien, cela dépend de la façon dont on voit les choses, Vetchirko. La vieille peau est toujours en vie. Et d'un autre côté, la radiation laisse toujours des traces, des preuves qu'il est difficile de faire passer pour un accident.
+
+**VETCHIRKO** :
+
+— Elle est en vie parce que la dose était trop faible. Nous aurions dû mettre plus de strontium.
+
+**SENKO** (sombre) :
+
+— Trop, c'est trop visible. Cela soulève des questions inutiles. J'avais calculé avec précision, Vetchirko. La vieille craignait un sabotage, alors elle gardait le vélo à l'intérieur de sa tente, jour et nuit. Littéralement sous son nez. C'est sur cette base que j'ai calculé la dose. Le meilleur arrangement était une exposition faible mais constante. Un effet cumulatif. En deux ou trois mois, elle aurait dû mourir comme un agneau.
+
+**VETCHIRKO** :
+
+— Pourtant, elle ne l'a pas fait.
+
+**SENKO** (avec hostilité) :
+
+— Au début, tout allait bien. Elle a reçu une dose considérable — avec la nourriture, par des mains sales. Elle tenait une aiguille sale dans sa bouche en cousant ; elle lavait sa brosse à dents avec des mains sales. Mais quand sa peau a commencé à tomber par lambeaux comme de la farine, quand des morceaux de ses dents ont commencé à se briser, quand le sang coulait de son nez et que d'autres charmants symptômes sont apparus — cette garce rusée a immédiatement soupçonné que quelque chose n'allait pas. Et ce damné ChatGPT lui a expliqué tous les symptômes. Ce déchet ! Il a tout mis en ordre. Qu'il aille au diable ! Alors, bien sûr, elle a scellé les trous aux extrémités du guidon et maintenant elle garde le vélo dehors.
+
+![](Images/les_15_02.jpg)
+
+**VETCHIRKO** (en hochant la tête) :
+
+— Qu'est-ce qu'elle est — une touche-à-tout ? Comment a-t-elle compris ? Utiliser des piles boutons CR32 ? Elles s'adaptent parfaitement à ces trous. Scellage complet — pas une seule particule bêta ne peut s'échapper. Mais à ce moment-là, toute sa tente et toutes ses affaires avaient déjà été contaminées par le strontium. Il continue de l'irradier, n'est-ce pas ?
+
+**SENKO** (avec hostilité) :
+
+— Seulement s'il rentre à nouveau à l'intérieur — avec la nourriture ou par la respiration. Mais maintenant, la garce est devenue prudente — elle ne se lèche plus les doigts, elle se nettoie les mains avec des lingettes avant de manger. Le fond de la tente, où les particules se déposent principalement avec la poussière et les débris, est également essuyé régulièrement. Avec ce genre d'approche, les vêtements contaminés sont de peu d'utilité.
+
+**VETCHIRKO** (en hochant la tête) :
+
+— Et qui plus est — elle pratique ses rituels de sorcellerie ! Frotter de l'écorce de citron sur le sol de la tente ! Est-ce que le citron absorbe vraiment le strontium ?
+
+**SENKO** (avec hostilité) :
+
+— Je n'en ai aucune idée. Tu sais, Vetchirko, notre principale erreur est que dans tous nos calculs, nous ne tenons pas compte du fait que c'est une sorcière ! Je ne serais pas surpris du tout s'il s'avérait que ce n'est pas l'écorce de citron mais ses sorts qui neutralisent la radiation.
+
+**VETCHIRKO** :
+
+— Eh bien, d'accord. Elle a scellé le strontium dans le guidon hermétiquement. Mais maintenant, ce guidon est devenu une source de rayons X ! On meurt très bien à cause des rayons X.
+
+**SENKO** (sombre) :
+
+— Le rayonnement de freinage (Bremsstrahlung), oui. Il n'y a plus de sortie pour les particules maintenant — elles entrent en collision avec les parois du guidon et leur énergie se transforme en rayons X mous. Mais ! Ce damné ChatGPT lui a expliqué cela aussi, le bâtard. Maintenant, elle essaie de garder une distance de sécurité avec le guidon. À ce rythme, nous attendrons dix ans avant qu'elle ne développe une tumeur.
+
+**VETCHIRKO** (pensif) :
+
+— Ouais... Ça n'a pas très bien tourné. Mais la Suisse, dans l'ensemble, a accepté le marché assez facilement.
+
+**SENKO** (avec un sourire) :
+
+— Le monde a peur de nous. Plus précisément — il préfère ne pas se quereller avec nous. Et si l'affaire n'est pas susceptible de provoquer un tollé international, ils font volontiers des concessions. Tout comme avec la vieille peau.
+
+**VETCHIRKO** :
+
+— Et avec le vélo. J'avais peur que les services de sécurité suisses n'acceptent pas de coopérer avec nous ou, Dieu nous en préserve, déclenchent un scandale. À cause du vélo radioactif.
+
+**SENKO** (méprisant) :
+
+— La Suisse accorde trop d'importance à sa réputation de pays « le plus démocratique » au monde. Et par peur de ternir cette réputation, ils sont prêts à commettre un crime. Juste pour s'en sortir propres. Imagines-tu les gros titres : « Acte de terrorisme nucléaire international sur le sol suisse » ? C'est leur pire cauchemar.
+
+**VETCHIRKO** :
+
+— C'est donc pour ça qu'ils ont si facilement accepté de décontaminer le vélo ? Pour éviter le scandale et ne pas perdre leur image ?
+
+**SENKO** :
+
+— Exactement. De plus, ils avaient entre les mains des informations fiables selon lesquelles la vieille était persécutée. De notre côté — l'FSB. La terreur radioactive. Un cas absolument gagnant et sans précédent. En théorie, ils étaient obligés d'en informer le SEM. Alors la vieille aurait obtenu ce stupide asile. Sans aucun doute. Mais ils se sont tus — encore une fois par peur d'être « déshonorés ». C'est ça, leur fameuse démocratie et leur protection des droits de l'homme. Tout ça, c'est de la mise en scène. Une façade. Une devanture. Et derrière la façade — rien d'autre que l'ego, l'ambition personnelle et le profit. En substance, ils ne sont pas différents de nous. Comme toujours, la question n'est pas celle des valeurs, mais celle du prix.
+
+**VETCHIRKO** :
+
+— Exactement. Des gens absolument sans colonne vertébrale. Ils n'ont même pas pu décontaminer le vélo. La vieille les a surpassés. Quand ils lui ont dit, la veille au soir, qu'ils passeraient prendre son vélo à neuf heures du matin — alors que son vol n'était qu'à trois heures de l'après-midi — elle a naturellement flairé le piège. La vieille l'a cousu dans deux housses, l'a scellé avec son point de couture signature et l'a enveloppé dans cent mètres de film étirable. Le vélo était si minutieusement emballé qu'ils n'ont pas osé ouvrir le paquet. Ils ont dit qu'il était impossible de le faire sans être remarqué, sans laisser de traces. Des lâches finis.
+
+**SENKO** :
+
+— La vieille n'a fait qu'empirer les choses pour elle-même. Elle n'a pas permis aux gars de retirer le strontium. Dieu merci, ils ont eu assez de bon sens pour ne pas l'informer sur ce sujet. Ils lui ont fourré cent francs dans la main pour la route et c'était fini.
+
+**VETCHIRKO** (prudemment) :
+
+— Je ne comprends tout simplement pas pourquoi nous avons chargé le vélo au strontium à Istanbul au départ ? En fait, cette partie est claire. Ce qui n'est pas clair, c'est pourquoi tu as dit aux Suisses de le retirer ?
+
+**SENKO** :
+
+— Parce que nous supposions que la vieille resterait soit en Suisse (si elle obtenait l'asile), soit retournerait en Russie. Mais elle a refusé de rentrer. Donc, après l'expulsion, elle voyagerait à travers le monde, traverserait les frontières, et son vélo biperait et brillerait au contrôle des douanes. Des questions et des enquêtes commenceraient, et toute cette histoire pourrait éclater au grand jour.
+
+**VETCHIRKO** :
+
+— Donc, maintenant, le scandale est inévitable ?
+
+**SENKO** :
+
+— Eh bien, franchement, on s'en fiche. On niera tout. Et que la Suisse s'en sorte comme elle peut.
+
+#PoutinismeMilitaireOrthodoxe 👻
+
+
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
