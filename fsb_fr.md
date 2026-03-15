@@ -1040,7 +1040,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 **SENKO** (écarlate de rage) :
 
-— Là, tu vois ? Elle écrit que je « deviens écarlate de rage ». Vetchirko, je viens de me voir dans la glace — je suis putain d’écarlate ! Elle ne devine pas, elle ordonne à ma tension de monter ! Tu piges ? On lui balance des infrasons dans les yeux, et elle nous fait un tuning cardiaque avec ses phrases !
+— Là, tu vois ? Elle écrit que je « deviens écarlate de rage ». Vetchirko, je viens de me voir dans la glace — je suis putain d’écarlate ! Elle ne devine pas, elle ordonne à ma tension de monter ! Tu piges ? On lui balance du faisceau dans les yeux, et elle nous fait un tuning cardiaque avec ses phrases !
 
 **VETCHIRKO** (avec une pitié lasse) :
 
@@ -1318,7 +1318,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 **VETCHIRKO** :
 
-— Elle est trop intelligente pour mordre à l'hameçon. Mais elle n'a quand même pas pu jouer la carte de la « psychiatrie punitive ». Sous notre dictée, le SEM a écrit dans la décision : « Le certificat ne prouve pas le caractère involontaire de l'hospitalisation. » Comme si, peut-être, vous étiez entrée volontairement dans un hôpital psychiatrique. Ha-ha ! Volontairement ! Imagines-tu une chose pareille, Senko ? Dans un hôpital psychiatrique russe !
+— Elle est trop intelligente pour mordre à l'hameçon. Mais elle n'a quand même pas pu jouer la carte de la « psychiatrie punitive ». À notre dictée, le SEM a écrit dans la Décision : « Le certificat ne prouve pas le caractère involontaire de l'hospitalisation », suivi d'un commentaire insultant selon lequel, si nécessaire, elle pourrait bénéficier d'une aide psychiatrique hautement professionnelle en Russie. Ils ont même mentionné l'Institut Serbski. C'est drôle. Ils ne comprennent pas la Russie du tout.
 
 **SENKO** :
 
