@@ -70,6 +70,25 @@ Every word you read was written under the strain of hunger, cold, constant perse
 
 This is more than literature. It is a testament to an unbroken will,  courage, and active resistance. And simultaneously — a tool to help those like me: the victims, the displaced, and the desperate.
 
+## SUPPORT THE AUTHOR
+If this book moved you, made you think, or made you laugh through the darkness — consider supporting the author.
+I am a Russian dissident writer living in a tent, under active persecution. Every donation goes directly to survival: food, warmth, and the continuation of this work.
+
+**MY WALLET:**
+
+Ethereum (MetaMask): 0x2fb1c11bb82f07c70449c85248671fc5b307ec41
+
+Ethereum is the most secure and censorship-resistant option. Direct, anonymous, and cannot be blocked.
+How to donate:
+
+1. Install MetaMask app or browser extension (metamask.io)
+2. Buy ETH on any exchange (Coinbase, Binance, Kraken)
+3. Open MetaMask → “Send”
+4. Paste the address: 0x2fb1c11bb82f07c70449c85248671fc5b307ec41
+5. Enter amount → Confirm
+
+Any amount is welcome. Thank you for reading. And for being on the right side of history.
+
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
 
 [**Main Page**](index.md)
