@@ -1102,7 +1102,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 **SENKO** (turning purple with rage): 
 
-— She writes that I am "turning purple with rage." I just checked a mirror, Vechirko — I’m fucking purple! She’s not predicting it, she’s *ordering* my blood pressure to spike! Get it? We zap her eyes with infrasound, she zaps our arteries with words!
+— She writes that I am "turning purple with rage." I just checked a mirror, Vechirko — I’m fucking purple! She’s not predicting it, she’s *ordering* my blood pressure to spike! Get it? We zap her eyes with the beam, she zaps our arteries with words!
 
 **VECHIRKO** (with dry pity):
 
@@ -1382,7 +1382,7 @@ We had an extract from her medical record with the diagnosis of "schizophrenia" 
 
 **VECHIRKO:**
 
-— She is too intelligent to fall for that bait. But she still failed to play the "punitive psychiatry" card. At our dictation, SEM wrote in the Decision: “The certificate does not prove the involuntary nature of the hospitalization.” As if perhaps you voluntarily checked yourself into a psychiatric hospital. Ha-ha! Voluntarily! Can you imagine such a thing, Senko? In a Russian psychiatric hospital!
+— She is too intelligent to fall for that bait. But she still failed to play the "punitive psychiatry" card. At our dictation, SEM wrote in the Decision: “The certificate does not prove the involuntary nature of the hospitalization.” followed by an insulting comment that if needed she could get highly professional psychiatric aid in Russia. They even mentioned the Serbsky Institution. Funny. They don't get Russia at all.
 
 **SENKO:**
 
