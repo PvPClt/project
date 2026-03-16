@@ -72,6 +72,33 @@ Chaque miniature, pièce ou article que vous lisez est le fruit d’efforts inou
 
 Ceci n’est pas qu'un simple texte. C’est un témoignage de courage, d’une volonté inébranlable et d’une résistance active. C’est, en même temps, un instrument d’aide pour ceux qui, comme moi, sont victimes, démunis et désespérés.
 
+## SOUTENEZ L'AUTEURE
+
+Si ce livre vous a touché, fait réfléchir, ou vous a arraché un sourire malgré tout — pensez à soutenir l'auteure.
+
+ Je suis un dissident et un écrivain russe vivant sous une tente, sous persécution active. Chaque don va directement à la survie : nourriture, chaleur et continuation de ce travail.
+
+**MON PORTEFEUILLE** :
+
+Ethereum (MetaMask): 
+
+0x2fb1c11bb82f07c70449c85248671fc5b307ec41
+
+L'Ethereum est l'option la plus sécurisée et résistante à la censure. Directe, anonyme et impossible à bloquer.
+
+**Comment faire un don:**
+
+1. Installez l'application MetaMask ou l'extension de navigateur (metamask.io)
+2. Achetez des ETH sur n'importe quelle plateforme d'échange (Coinbase, Binance, Kraken)
+3. Ouvrez MetaMask → "Envoyer"
+4. Collez l'adresse:
+   
+   0x2fb1c11bb82f07c70449c85248671fc5b307ec41
+   
+6. Entrez le montant → Confirmez
+
+*Tout montant est le bienvenu. Merci de votre lecture. Et d'être du bon côté de l'histoire.*
+
 [**Liste des fondations caritatives en soutien à l’Ukraine**](fr_funds)
 
 [**Page d'accueil**](index.md)
