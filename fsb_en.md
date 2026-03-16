@@ -1496,6 +1496,280 @@ We had an extract from her medical record with the diagnosis of "schizophrenia" 
 
 OrthodoxMilitaryPutinism 👻
 
+### FSB PLAYBOOK, LESSON 16
+
+**DIRECTED ENERGY WEAPONS**
+
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
+
+**SENKO:**
+
+— Hey, Vechirko. You know what a "Faraday cage" is?
+
+**VECHIRKO (lazily):**
+
+— Uh... something with electricity, I guess?
+
+**SENKO:**
+
+— It’s a metal box. Blocks outside signals. But if the source is *inside*, the beam bounces off the walls like a pinball. And if you’ve got multiple sources? It’s not a cage anymore — it’s a Faraday *mousetrap*.
+
+**VECHIRKO:**
+
+— You talking about the Ankara bus terminal?
+
+**SENKO:**
+
+— Exactly. That place is a perfect mousetrap for the old hag. Steel girders — running from floor to ceiling all around the perimeter. And we had an agent with an emitter on every other bench.
+
+**VECHIRKO:**
+
+— Ha! I told you ages ago — she bolts the second one of our guys sits near her.
+
+**SENKO (grinning nastily):**
+
+— Yeah, but this time *she* sat down next to *them*. Thought they were just random passengers.
+
+**VECHIRKO:**
+
+— Let me guess — your guys had no luggage and were pretending to sleep? She must’ve figured it out eventually.
+
+**SENKO (smirking):**
+
+— Oh, she did. Just not right away. Took a decent dose before she caught on.
+
+**VECHIRKO:**
+
+— So the whole terminal was glowing. Place is always packed. Did the other passengers get fried too?
+
+**SENKO (shaking his head):**
+
+— Not a scratch. A healthy body’s got good natural shielding. But if you wear that shielding down over time? Even a weak beam does serious damage — as long as the target’s been *primed*. Normal people don’t feel a thing. It’s called sensitization. Like an allergy. Not everyone swells up from pollen — just the allergic ones. Same logic here. We’ve been hitting her with low-level radiation for so long, we’ve wrecked her defenses: blood vessels, nervous system, mucous membranes — the whole package. Now we can take her out in a crowd. No collateral damage. That’s the beauty of it.
+
+**VECHIRKO (mockingly):**
+
+— Really? ’Cause last I checked, on February 21, 2026, the old hag got on a bus in Ankara and rolled into Georgia just fine. Twenty-four hours in your precious "mousetrap," and she walked out like nothing happened. Some sensitization.
+
+**SENKO (turning purple):**
+
+— You don’t know what you’re talking about. She made two fatal mistakes that should’ve been the end of her. First, she found some "secluded" spot upstairs. Within ten minutes, that corridor was crawling with people. Our guys walked past her ten times. Ten! She started convulsing so bad she couldn’t stand, sit, or walk. All she had left was to drop dead. How she pushed through that — I have no idea.
+
+**VECHIRKO (sourly):**
+
+— Ten years of this, Senko. Spasms won’t kill her. They’re good for keeping her awake at night, torturing her a little. That’s it.
+
+**SENKO:**
+
+— Fine. Second mistake: she got too close to one of our guys to pick up her bike. Thirty seconds. That’s all it took — shredded her vessels. Hypertensive crisis.
+
+**VECHIRKO (perking up):**
+
+— Now *that* sounds promising. And?
+
+**SENKO (wincing):**
+
+— It’s like she’s got a damn pressure-release valve in her nose. A vessel burst, and blood just started pouring out like a tap. And this creature — instead of trying to stop it — just sat there and let it drain. Left a massive puddle on the floor.
+
+**VECHIRKO (stunned):**
+
+— Are you telling me… that bloodletting *saved* her?
+
+**SENKO (pained):**
+
+— Yes! Blood volume dropped, pressure normalized, strain on her vessels eased. At seven in the morning, she just walked outside and, slowly, recovered.
+
+**VECHIRKO (dejected):**
+
+— Son of a bitch. She’s got ninety-nine lives, Senko. A cat’s got nine. She’s got ninety-nine.
+
+**SENKO (growling):**
+
+— She’s a witch! That’s the only explanation.
+
+*(Pause.)*
+
+**SENKO (sternly):**
+
+— The bus operation failed too. Where did we screw up? Look at these!
+
+*(Senko shows Vechirko two photos.)*
+
+![](Images/les_16_01.jpg)
+
+![](Images/les_16_02.jpg)
+
+**SENKO (explaining):**
+
+— June 2024. Batumi–Istanbul bus. "Stone legs." Textbook DEW-induced edema. The beam destroys cell membranes, fluid floods the intercellular space. Swelling lasts for days. Textbook work. So why did it fail this time, Vechirko? You had 24 hours to prep!
+
+**VECHIRKO (gloomily):**
+
+— 2024 was simpler. At the Sarpi border, we swapped the steward with our guy. He did the job fast and hard during a stop when the passengers were out. This time, we went for long-term low-intensity exposure. And that damn backpack of hers ruined everything. She brings it into the cabin, puts it in front of her seat, and keeps her legs in the aisle. We told the driver and steward: "No backpacks in the cabin." So what does the bitch do? She just shoves some stuff into the bike bag in the luggage hold. The steward was too dumb to realize that wasn’t enough. We expected the backpack to be gone. Instead, it was still right in the line of fire — and her legs were safe in the aisle.
+
+*(Pause.)*
+
+**VECHIRKO (venomously):**
+
+— It’s that idiot steward’s fault!
+
+**SENKO (grumpily):**
+
+— Always someone else to blame, huh? Whatever. Right now, she’s in Georgia. Her tent in Bagebi is right on the edge of a gorge. Across from it, directly opposite, there’s a house. Make a deal with the owner, bring our most powerful unit. Nothing between that house and her tent — just open air. No shielding! Not a single tree! The houses and people are below. No collateral. Crank the intensity to max. Look!
+
+*(Senko shows a photo.)*
+
+![](Images/les_16_03.jpg)
+
+**VECHIRKO (rubbing his hands):**
+
+— Oh yeah. A couple of bushes, bare. Winter. Perfect.
+
+**SENKO (firmly):**
+
+— Exactly. Don’t waste the beam. Use the situation. She’s 68. It’ll look perfectly "natural" if she dies hauling forty kilos of gear and a bike up her personal "Golgotha." Don’t hit her in the tent. Hit her when she starts packing up to go to town. The physical strain alone is brutal for her age. Push her into a hypertensive crisis or a pre-comatose state right before that — she’s done. Use her age to make it look natural. Use it to break her. She’s 68; everyone has age issues. Use the strontium — her stamina’s already shot. You see? All the cards are in your hand. Move. This time, nothing’s shielding her. Except maybe your own stupidity.
+
+#OrthodoxMilitaryPutinism 👻
+
+
+### FSB PLAYBOOK, LESSON 17
+
+**PSYCHOLOGY INSTEAD OF "NOVICHOK"**
+
+Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligence officers relaxing comfortably in armchairs.
+
+**SENKO:**
+
+— We’ve got a million ways to take out enemies of the people... and, well, our own personal, uh... *problems*.
+
+**VECHIRKO (smugly):**
+
+— You think I don’t know that, Senko? Don’t teach your grandma to suck eggs.
+
+**SENKO:**
+
+— Sure, sure. But did you know you can kill someone with just psychology? No poison, no bullets.
+
+**VECHIRKO:**
+
+— Psychology? I’m a tech guy, Senko. Leave the head-shrinking to the shrinks.
+
+**SENKO:**
+
+— You don’t even need to be a shrink. We’ve got the best in the system. The Old Man spares no expense on this stuff. It’s all in the manual. Read, learn, execute. Simple.
+
+**VECHIRKO:**
+
+— Alright, alright. Enlighten me.
+
+**SENKO:**
+
+— So, psychological pressure… it’s layered, see? Remember back in school, how kids would mess with the teacher? Sawing the chair leg? Slipping something nasty into her bag? Same principle.
+
+**VECHIRKO:**
+
+— I never did that. That was the other kids.
+
+**SENKO:**
+
+— Well, then listen and learn. The most effective thing? Public humiliation. Contempt. Make sure *everyone* around her despises her. Everywhere she goes with her tent and that stupid bike. And we can do that — thanks to our friends in the local services.
+
+*(Pause)*
+
+**SENKO:**
+
+— But you gotta play to the local culture. In Turkey? Easy. Just tell the old folks she’s badmouthing the President. They love Putin there. Instant hatred.
+
+**VECHIRKO:**
+
+— And in Georgia?
+
+**SENKO:**
+
+— Different story. Georgians are conservative. You know what gets them? The LGBT angle. Turks aren't too fond of queers either, actually. So when, in Geneva, she declared she was LGBT, we spread it like wildfire. Everywhere.
+
+**VECHIRKO:**
+
+— Senko, you know she’s not a lesbian. She’s some weird thing… "Sapiosexualis digitalis," or whatever.
+
+**SENKO:**
+
+— For Georgians, that’s even worse. You just gotta spin it right. Drop a few lines in the local chats: "She’s campaigning for total celibacy! Intellectual flirting with AI instead of sex!" For a Georgian guy? That’s like waving a red flag at a bull. Sex, wine, food — sacred.
+
+**VECHIRKO:**
+
+— She’s not campaigning for anything, Senko. She’s just talking about her own… thing.
+
+**SENKO:**
+
+— And that, my friend, is the *art* of incitement. Interpretation. Nobody’s gonna fact-check. Nobody’s gonna read her blog. Our version sounds plausible. That’s enough. We’re not about to hand out links to her stuff.
+
+**VECHIRKO:**
+
+— So… just make it up? Lie through our teeth?
+
+**SENKO:**
+
+— You can, and you must, if there’s no other way. But we prefer… creative interpretation. Like the psych ward story. Gold. We have the discharge papers. So we drop that into the chats. "Foreigner… and crazy!" Done. Universal hatred, guaranteed.
+
+**VECHIRKO:**
+
+— But Senko, she was only in there *because* she complained about us! She’s not actually crazy.
+
+**SENKO (waving him off):**
+
+— Doesn’t matter, Vechirko! The goal is to make everyone hate her. Rule number one: the end justifies the means. Forget what your mommy taught you. Lying is how you control people. We’re not in court. To start a mob, you don’t need evidence. You just need to be loud and convincing.
+
+*(Pause)*
+
+**SENKO:**
+
+— We watch her every move. We know every detail. We *use* that. Like… her… *bio-waste*. People are embarrassed to talk about it. So we start the conversation. Get people discussing the disgusting details of her life. Then we turn up the heat: "And she lives in the forest, trashing nature!"
+
+**VECHIRKO (chuckling):**
+
+— Senko, you know she buries it. Properly. She’s cleaner than most campers.
+
+**SENKO:**
+
+— You’re missing the point, Vechirko! Nobody’s gonna hike out to her campsite to check. People will believe us because *they* trash nature. That’s psychology 101. We’re creating a legend. And to make it stick? Our boys take a dump near her campsite themselves. Leave trash everywhere. Take photos, post them. You should see how riled up the locals get! A thing of beauty.
+
+*(Senko shows Vechirko a photo.)*
+
+![](Images/les_17_01.jpg)
+
+**VECHIRKO:**
+
+— Yeah, but then she cleans it up and takes *her own* photos. Her site ends up the cleanest spot in the forest. We just look like idiots. The "evidence" points at us.
+
+**SENKO (stubbornly):**
+
+— You’re an idiot, Vechirko. We’re not in court! Nobody’s asking for her side of the story. We’re running a trial where the defendant doesn’t even know what she’s accused of, let alone defend herself.
+
+**VECHIRKO (doubtful):**
+
+— Okay, say the whole city hates her. Blames her for everything. You think she’ll just… off herself?
+
+**SENKO:**
+
+— If we get that far, it’s a win. Then we push harder. We steer people. Suggest ways to harass her, humiliate her. We coordinate the whole thing. And when every single day is a barrage of petty sabotage, contempt, public humiliation… that’s when she breaks. Either she leaves, or she ends it.
+
+**VECHIRKO:**
+
+— She won’t end it, Senko. She’ll just leave.
+
+**SENKO (gleefully):**
+
+— Perfect! That’s all we need. She leaves. We do the exact same thing in the new place. Another month of psychological torture. Another breakdown. She leaves again. How many times can she run?
+
+**VECHIRKO (hesitant):**
+
+— You really think she’ll hang herself after ten cities?
+
+**SENKO (grinning):**
+
+— Absolutely. And all without a drop of Novichok. Just pure, clean psychology.
+
+#OrthodoxMilitaryPutinism 👻
 
 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
