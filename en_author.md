@@ -76,7 +76,9 @@ I am a Russian dissident writer living in a tent, under active persecution. Ever
 
 **MY WALLET:**
 
-Ethereum (MetaMask): 0x2fb1c11bb82f07c70449c85248671fc5b307ec41
+Ethereum (MetaMask):
+
+0x2fb1c11bb82f07c70449c85248671fc5b307ec41
 
 Ethereum is the most secure and censorship-resistant option. Direct, anonymous, and cannot be blocked.
 How to donate:
@@ -85,6 +87,7 @@ How to donate:
 2. Buy ETH on any exchange (Coinbase, Binance, Kraken)
 3. Open MetaMask → “Send”
 4. Paste the address:
+   
    0x2fb1c11bb82f07c70449c85248671fc5b307ec41
 6. Enter amount → Confirm
 
