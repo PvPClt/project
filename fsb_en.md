@@ -1497,6 +1497,7 @@ We had an extract from her medical record with the diagnosis of "schizophrenia" 
 OrthodoxMilitaryPutinism 👻
 
 
+
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
 [**List Of Charitable Foundations Assisting Ukraine**](en_funds)
