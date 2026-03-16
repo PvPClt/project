@@ -84,8 +84,9 @@ How to donate:
 1. Install MetaMask app or browser extension (metamask.io)
 2. Buy ETH on any exchange (Coinbase, Binance, Kraken)
 3. Open MetaMask → “Send”
-4. Paste the address: 0x2fb1c11bb82f07c70449c85248671fc5b307ec41
-5. Enter amount → Confirm
+4. Paste the address:
+   0x2fb1c11bb82f07c70449c85248671fc5b307ec41
+6. Enter amount → Confirm
 
 Any amount is welcome. Thank you for reading. And for being on the right side of history.
 
