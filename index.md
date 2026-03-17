@@ -6,9 +6,9 @@ layout: default
 
 ![](Images/uvaga.png)
 
-## 1. [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://bydboris.github.io/logos)
+1. [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://bydboris.github.io/logos)
 
-## 2. [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://t.me/start_pvp/6)
+2. [**MIRROR/MIROIR/ДЗЕРКАЛО/ЗЕРКАЛО**](https://t.me/start_pvp/6)
 
 # THE ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 **Author: Shcheglova Olga (Boris Bidyaga)**
@@ -51,7 +51,7 @@ ISBN: 978-5-9903439-6-2
 
 [**Дзеркало на Telegram**](https://t.me/start_pvp/6)
 
-___________________________________________________________________________________________________________________
+---
 
 ## ENCYCLOPEDIA OF ORTHODOX MILITARY PUTINISM
 
@@ -79,7 +79,7 @@ An artistic study of the Putin regime through the prism of satire, documentary t
 
 [**GitHub mirror**](https://bydboris.github.io/logos)
 
-___________________________________________________________________________________________________________________
+---
 
 ## L'ENCYCLOPÉDIE DU POUTINISME MILITAIRE ORTHODOXE
 
@@ -107,7 +107,7 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 
 [**GitHub miroir**](https://bydboris.github.io/logos)
 
-___________________________________________________________________________________________________________________
+---
 
 ## ЕНЦИКЛОПЕДІЯ ПРАВОСЛАВНОГО ВОЄННОГО ПУТІНІЗМУ
 
@@ -134,7 +134,7 @@ ________________________________________________________________________________
 [**Про Автора**](ua_author.md)
 
 [**Дзеркало на GitHub**](https://bydboris.github.io/logos)
-___________________________________________________________________________________________________________________
+---
 
 ## ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЕННОГО ПУТИНИЗМА 
 
