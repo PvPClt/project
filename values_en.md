@@ -7,7 +7,7 @@ layout: default
 [**Main Page**](index.md)
 
 # 🇬🇧 THE ANATOMY OF PUTIN'S "TRADITIONAL VALUES"
-### ANALYTICAL ARTICLE 
+**ANALYTICAL ARTICLE** 
 
 **Author: Shcheglova (Olga Boris Bidyaga)**
 
