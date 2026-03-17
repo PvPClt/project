@@ -7,7 +7,7 @@ layout: default
 [**Main Page**](index.md)
 
 # FSB PLAYBOOK
-### SATIRICAL PROTOCOLS OF POLITICAL PERSECUTION
+**SATIRICAL PROTOCOLS OF POLITICAL PERSECUTION**
 
 **Author: Shcheglova Olga (Boris Bidyaga)**
 
@@ -19,6 +19,7 @@ The dialogues between Vechirko and Senko are based on the personal experiences o
 
 "FSB Playbook" is a literary record of real-world methods aimed at destroying an individual’s identity and their physical elimination.
 
+---
 ### FSB PLAYBOOK, LESSON 1
 
 **PERFORMANCE: FATAL ACCIDENT**
@@ -117,7 +118,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 2
 
 **DEADLY MEDICINE: EYE DAMAGING DROPS**
@@ -178,7 +179,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 3
 
 **INSTRUMENTALIZING TERROR: A BIRD CHORUS AT 100 dB**
@@ -257,7 +258,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 4
 
 **FSB GOLD STANDARD: MULTI-STEP GAMBIT**
@@ -339,7 +340,7 @@ Have you ever seen such crap, Senko? God, she makes me sick!
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 5
 
 **PROGRAMMING SELF-DESTRUCTION: THE HEART-STOP PROTOCOL**
@@ -408,7 +409,7 @@ Take the heart. Last century, we used glycosides. Pure poison. Any hack with a m
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 6
 
 **THE ASYMMETRIC RESPONSE: BUILDING INSULATION VS HIGH-TECH TOXINS**
@@ -557,7 +558,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 7
 
 **THE POWER BANK PROTOCOL: TARGETING THE LIFELINE**
@@ -618,7 +619,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 8
 
 **OFF-DUTY ENTERTAINMENT**
@@ -722,7 +723,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 9
 
 **THE EGGPLANT GAMBIT**
@@ -787,7 +788,7 @@ Well, solanine is different. Solanine is serious business. So, stir up a media s
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 10
 
 **THE AFTER-ACTION REPORT**
@@ -894,7 +895,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 11
 
 **MIKOLA'S TEAR**
@@ -987,6 +988,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
+---
 ### FSB PLAYBOOK, LESSON 12
 
 **THE EDUCATORS**
@@ -1071,7 +1073,7 @@ We don't ask. We don't engage in debates. We **reprogram** the subject's entire 
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 13 
 
 **MEMORIES OF THE FUTURE**
@@ -1196,7 +1198,7 @@ That’s you. In her book.
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 14
 
 **PROTOCOL: “ACCIDENT” AT THE HOTEL**
@@ -1339,6 +1341,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
+---
 ### FSB PLAYBOOK, LESSON 15
 
 **THE SWISS GAMBIT**
@@ -1496,6 +1499,7 @@ We had an extract from her medical record with the diagnosis of "schizophrenia" 
 
 OrthodoxMilitaryPutinism 👻
 
+---
 ### FSB PLAYBOOK, LESSON 16
 
 **DIRECTED ENERGY WEAPONS**
@@ -1570,6 +1574,10 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 — It’s like she’s got a damn pressure-release valve in her nose. A vessel burst, and blood just started pouring out like a tap. And this creature — instead of trying to stop it — just sat there and let it drain. Left a massive puddle on the floor.
 
+*(Senko shows Vechirko a photo.)*
+
+![](Images/les_16_00.jpg)
+
 **VECHIRKO (stunned):**
 
 — Are you telling me… that bloodletting *saved* her?
@@ -1630,7 +1638,7 @@ Russia, Moscow. A cozy apartment in a high-rise building. Two Russian intelligen
 
 #OrthodoxMilitaryPutinism 👻
 
-
+---
 ### FSB PLAYBOOK, LESSON 17
 
 **PSYCHOLOGY INSTEAD OF "NOVICHOK"**
