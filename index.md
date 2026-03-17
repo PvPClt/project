@@ -134,8 +134,8 @@ Une étude artistique du régime poutinien à travers le prisme de la satire, du
 [**Про Автора**](ua_author.md)
 
 [**Дзеркало на GitHub**](https://bydboris.github.io/logos)
----
 
+---
 ## ЭНЦИКЛОПЕДИЯ ПРАВОСЛАВНОГО ВОЕННОГО ПУТИНИЗМА 
 
 **Литературно-художественный проект в помощь Украине.**
