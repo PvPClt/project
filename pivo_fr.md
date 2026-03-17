@@ -7,7 +7,7 @@ layout: default
 [**Page d'accueil**](index.md)
 
 # DANS LA SALLE DES MILLE VÉRITÉS 
-### LA SOURCE TOXIQUE DE LA RHÉTORIQUE POUTINEUSE
+**LA SOURCE TOXIQUE DE LA RHÉTORIQUE POUTINEUSE**
 
 **Auteur : Olga Shcheglova (Boris Bidyaga)**
 
