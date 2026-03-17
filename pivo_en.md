@@ -7,7 +7,7 @@ layout: default
 [**Main Page**](index.md)
 
 # IN THE HALL OF A THOUSAND TRUTHS 
-### POISONOUS SOURCE OF PUTIN'S RHETORIC
+**POISONOUS SOURCE OF PUTIN'S RHETORIC**
 
 **Author: Shcheglova (Olga Boris Bidyaga)** 
 
