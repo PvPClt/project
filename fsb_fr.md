@@ -7,7 +7,7 @@ layout: default
 [**Page d'accueil**](index.md)
 
 #  GUIDE PRATIQUE DU FSB 
-### PROTOCOLES SATIRIQUES DE LA PERSÉCUTION POLITIQUE
+**PROTOCOLES SATIRIQUES DE LA PERSÉCUTION POLITIQUE**
 
 **Auteur : Olga Shcheglova (Boris Bidyaga)**
 
@@ -18,7 +18,7 @@ layout: default
 Les dialogues de Vetchirko et Senko sont fondés sur l’expérience personnelle de l’auteur, qui subit depuis plus de dix ans des persécutions systématiques de la part des services secrets russes. D’abord en Russie, puis après son émigration — dans d’autres pays. 
 
 « Guide pratique du FSB » est la fixation littéraire de méthodes réelles visant à détruire la personnalité et à éliminer physiquement un individu.
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 1
 
 **MISE EN SCÈNE : L'ACCIDENT MORTEL DE LA ROUTE**
@@ -97,7 +97,7 @@ Et la touche finale : dans le seul petit couloir libre, un énorme semi-remorque
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 2
 
 **MÉDECINE MEURTRIÈRE : DES GOUTTES CONTRE LES YEUX**
@@ -146,7 +146,7 @@ L'essentiel ? C’est nous qui modélisons sa physiologie. On provoque un sympt�
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 3
 
 **INSTRUMENTALISATION DE LA TERREUR : CHŒUR D'OISEAUX À 100 DB**
@@ -217,7 +217,7 @@ Et deux appareils pour toute cette cacophonie, c'est clairement insuffisant. Il 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 4
 
 **LE STANDARD D’OR DU FSB : LA COMBINAISON À PLUSIEURS COUPS**
@@ -300,7 +300,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 5
 
 **PROGRAMMER L'AUTODESTRUCTION : SIMULATION D'INFARCTUS**
@@ -351,7 +351,7 @@ On crée juste une zone de douleur extrême localisée près du cœur. En agissa
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 6
 
 **RÉPONSE ASYMÉTRIQUE : L'ISOLANT DE CHANTIER CONTRE LA HAUTE TECHNOLOGIE**
@@ -500,7 +500,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 7
 
 **PROTOCOLE « RÉTRÉCISSEMENT DE L'ENTONNOIR » : LA BATTERIE EXTERNE**
@@ -561,7 +561,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 8
 
 **DISTRACTIONS ET LOISIRS**
@@ -666,7 +666,7 @@ Si cette saleté n’avait pas fui la maison aux premiers signes d’attaque, el
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 9  
 
 **LE GAMBIT DE L'AUBERGINE**
@@ -725,7 +725,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 10
 
 **DÉBRIEFING**
@@ -832,7 +832,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 11
 
 **LA LARME DE MIKOLA**
@@ -925,6 +925,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
+---
 ### MANUEL DU FSB, LEÇON 12
 
 **LES ÉDUCATEURS**
@@ -1010,6 +1011,7 @@ Nous ne demandons pas. Nous ne débattons pas. Nous **reprogrammons** toute la h
 
 #PoutinismeMilitaireOrthodoxe 👻
 
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 13 
 
 **SOUVENIRS DU FUTUR**
@@ -1130,7 +1132,7 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 
 #PoutinismeMilitaireOrthodoxe 👻
 
-
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 14
 
 **PROTOCOLE : « ACCIDENT » À L’HÔTEL**
@@ -1276,6 +1278,7 @@ Elle n’était pas censée laver ce costume !
 
 #PoutinismeMilitaireOrthodoxe 👻
 
+---
 ### GUIDE PRATIQUE DU FSB, LEÇON 15
 
 **LE GAMBIT SUISSE**
@@ -1429,6 +1432,276 @@ Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des 
 **SENKO** :
 
 — Eh bien, franchement, on s'en fiche. On niera tout. Et que la Suisse s'en sorte comme elle peut.
+
+#PoutinismeMilitaireOrthodoxe 👻
+
+---
+### MANUEL DU FSB. LEÇON 16
+
+**DIRECTED ENERGY WEAPONS — ARMES À FLUX D'ÉNERGIE**
+
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
+
+**SENKO** :
+
+— Dis-moi, Vetchirko. La "cage de Faraday", ça te dit quelque chose ?
+
+**VETCHIRKO** :
+— Vaguement. Un truc avec des fils et de l'électricité, non ?
+
+**SENKO** :
+
+— Pas tout à fait. C'est un circuit métallique fermé. Les rayonnements extérieurs ne passent pas. Mais si la source est à l'intérieur — le rayon rebondit dans tous les sens, se réfléchit sur les parois à l'infini. Et si t'as plusieurs sources... c'est plus une cage. C'est une souricière.
+
+**VETCHIRKO** :
+
+— Tu parles de la gare routière d'Ankara ?
+
+**SENKO** :
+
+— La gare routière d'Ankara, c'est la souricière de Faraday idéale pour notre vieille. Les structures métalliques couvrent tout le périmètre, jusqu'au plafond. Et sur un banc sur deux, t'as un de nos agents avec un émetteur.
+
+**VETCHIRKO** (avec un sourire mauvais) :
+
+— Je t'avais prévenu — dès qu'un de nos gars s'assoit à côté d'elle, elle prend ses cliques et ses claques.
+
+**SENKO** (ricane) :
+
+— Sauf que là, c'est elle qui est venue s'asseoir à côté d'eux. En croyant que c'étaient de bons vieux passagers ordinaires.
+
+**VETCHIRKO** :
+
+— J'imagine le tableau. Tous sans bagages, faisant semblant de roupiller. Elle les a repérés vite fait, j'en suis sûr.
+
+**SENKO** (haussant les épaules) :
+
+— Repérés, oui. Mais pas assez vite. Elle avait déjà pris sa dose.
+
+**VETCHIRKO** (fronçant les sourcils) :
+
+— Attends. Si tout l'espace était irradié, les autres voyageurs ont morfié aussi ?
+
+**SENKO** (secouant la tête, d'un ton professoral) :
+
+— Pas du tout. Le corps humain est une machine robuste — il se défend bien contre les agressions extérieures. Mais quand cette défense est sérieusement affaiblie, même un rayon de faible intensité fait des ravages. C'est ça, la sensibilisation. Une hyper-sensibilité acquise. Comme une allergie — tout le monde ne fait pas un œdème de Quincke avec du pollen, seulement les allergiques. Nous, on a méthodiquement cassé les barrières de son organisme : vaisseaux, système nerveux, muqueuses. Maintenant on peut l'achever dans une gare bondée sans toucher personne d'autre. C'est ça, la beauté de la méthode.
+
+**VETCHIRKO** (avec un sourire sarcastique) :
+
+— Mouais. Sauf que le 21 février 2026, la vieille a pris son bus à Ankara, et elle est arrivée tranquillement en Géorgie. Fraîche comme une rose. Après vingt-quatre heures dans ta fameuse souricière. Ta "beauté de la méthode", elle fait pas trop le poids.
+
+**SENKO** (virant au cramoisi) :
+
+— Tu racontes n'importe quoi, Vetchirko. Elle a fait des erreurs qui auraient dû la tuer. D'abord, elle s'est trouvé une planque "isolée" sur la galerie. En dix minutes, le couloir était plein à craquer. Nos gars ont défilé devant elle une dizaine de fois — et là, les crampes. Des crampes à ne plus pouvoir se lever, s'asseoir, marcher. Elle était foutue. Je sais toujours pas comment elle s'en est tirée.
+
+**VETCHIRKO** (avec une haine froide) :
+
+— En dix ans, elle a appris. La garce. Les crampes, j'ai compris depuis longtemps que ça la tue pas. C'est bon pour la nuit — pour la torturer, l'empêcher de dormir. Mais comme ça, en plein jour...
+
+**SENKO** :
+
+— Bref. Deuxième erreur. Elle s'est trop approchée d'un de nos agents — pour récupérer son vélo. Trente secondes, pas plus. Mais ça a suffi : vaisseaux en miettes, crise d'hypertension.
+
+**VETCHIRKO** (se redressant, soudainement intéressé) :
+
+— Ah, voilà qui est mieux ! Et alors ? Elle s'est effondrée ?
+
+**SENKO** (avec une grimace amère) :
+
+— Elle a une espèce de soupape de sécurité dans le nez. Un vaisseau a lâché, le sang a giclé comme un robinet grand ouvert. Et cette saleté, au lieu d'essayer d'arrêter l'hémorragie, elle a juste laissé couler. Une flaque immense par terre.
+
+*(Senko montre une photo à Vetchirko.)*
+
+![](Images/les_16_00.jpg)
+
+**VETCHIRKO** (bouche bée) :
+
+— Tu veux dire que la saignée lui a sauvé la vie ?!
+
+**SENKO** :
+
+— Exactement. Le volume sanguin a diminué, la tension s'est normalisée, la pression sur les vaisseux a baissé. Et à sept heures du matin, elle est sortie à l'air libre, et voilà — elle récupère.
+
+**VETCHIRKO** (s'affaissant dans son fauteuil) :
+
+— Putain de merde. Elle a quatre-vingt-dix-neuf vies, Senko. Un chat, lui, il en a que neuf.
+
+**SENKO** (entre les dents) :
+
+— C'est une sorcière. Un point c'est tout.
+
+*(Silence pesant.)*
+
+**SENKO** (changeant de ton, brusquement sévère) :
+
+— Dans le bus aussi, ça a foiré. Explique-moi. Regarde ces photos.
+
+*(Senko montre deux photos à Vetchirko.)*
+
+![](Images/les_16_01.jpg)
+![](Images/les_16_02.jpg)
+
+**SENKO** :
+
+— Juin 2024. Bus Batoumi-Istanbul. Œdème DEW-induit classique. Lymphostase aiguë. Jambes comme du béton. Le rayon augmente la perméabilité des membranes, le liquide s'accumule dans l'espace intercellulaire. Ce genre d'œdème, ça dure des jours. Du travail propre. Alors pourquoi cette fois t'as merdé, Vetchirko ? T'avais vingt-quatre heures devant toi.
+
+**VETCHIRKO** (soupirant) :
+
+— En 2024, c'était simple. À Sarpi, on a viré le vrai steward, un des nôtres a pris sa place, et il a tout géré — vite et fort, pendant l'arrêt quand les passagers étaient descendus. Cette fois, on voulait une exposition longue, faible intensité. Mais son foutu sac à dos a tout foutu en l'air. Elle le pose devant le siège qui est devant elle — ses jambes se retrouvent dans le couloir, hors de portée. On a briefé le chauffeur et le steward : pas de sac à dos dans la cabine. Et la maligne, elle a sorti une partie de ses affaires du sac et les a mis dans un sac à vélo en soute. Le steward, il a cru que c'était bon. Nous, on comptait sur un sac zéro. Résultat — le sac était exactement là où le rayon était dirigé, et ses jambes traînaient dans l'allée.
+
+*(Silence.)*
+
+**VETCHIRKO** (ruminant) :
+
+— C'est la faute de ce steward débile.
+
+**SENKO** :
+
+— T'as toujours un coupable sous la main, toi. Passons. Elle est en Géorgie maintenant. À Bagebi, sa tente est au bord d'un ravin. De l'autre côté, juste en face — une maison. Arrange-toi avec le propriétaire, amène notre installation la plus puissante. Entre cette maison et la tente : rien. De l'air pur. Pas d'écrans, pas un arbre. Les riverains sont en contrebas — personne dans la trajectoire. On peut monter l'intensité à fond. Regarde.
+
+*(Senko montre une photo à Vetchirko.)*
+
+![](Images/les_16_03.jpg)
+
+**VETCHIRKO** (se frottant les mains) :
+
+— Quelques buissons sans feuilles. Hiver. Conditions idéales.
+
+**SENKO** :
+
+— Exactement. Mais écoute-moi bien : ne balaie pas le rayon pour rien. Notre règle d'or — exploiter la situation. La vieille a soixante-huit ans. Qu'elle crève en pliant son camp avec quarante kilos de matos plus le vélo sur son "Golgotha" — ça, ça passe pour naturel. Alors tu ne déclenches pas le rayon quand elle traîne dans sa tente. Tu attends qu'elle commence à charger. L'effort seul est déjà au-dessus de ses forces. Si en plus tu la balances en crise d'hypertension avant même qu'elle parte — c'est fini pour elle. Utilise le facteur âge. Elle a quand même soixante-huit piges, tout le monde a des changements liés à l'âge, même les gens physiquement costauds. Utilise le facteur de l'empoisonnement au strontium — sa capacité physique est déjà dans les chaussettes. T'as tous les atouts, Vetchirko. Agis ! Maintenant, plus rien ne fera écran à ton rayon. À part ta propre connerie, peut-être !
+
+#PoutinismeMilitaireOrthodoxe 👻
+
+---
+### MANUEL DU FSB. LEÇON 17
+
+**LA PSYCHOLOGIE AU LIEU DU "NOVITCHOK"**
+
+Russie, Moscou. Un appartement confortable dans un immeuble. Deux employés des services spéciaux russes sont installés confortablement dans des fauteuils.
+
+**SENKO** :
+
+— On a à notre disposition un nombre incalculable de méthodes pour éliminer les ennemis du peuple, ainsi que... nos ennemis personnels, euh...
+
+**VETCHIRKO** (arrogant) :
+
+— Je sais, je sais. On n'apprend pas à un vieux singe à faire la grimace.
+
+**SENKO** :
+
+— Mais tu sais, Vetchirko, qu'on peut tuer quelqu'un avec rien d'autre que la psychologie ?
+
+**VETCHIRKO** (bâillant) :
+
+— Je suis pas psychologue, moi. Je suis technicien.
+
+**SENKO** :
+
+— T'as pas besoin d'un diplôme. On a des spécialistes de niveau mondial pour ça. Le Vieux ne lésine pas sur le budget de l'État pour la recherche. Tous les protocoles sont dans le Manuel depuis longtemps — tu lis, tu retiens, tu appliques.
+
+**VETCHIRKO** (résigné) :
+
+— Bon, vas-y. Fais ton cours.
+
+**SENKO** :
+
+— Tu vois, Vetchirko, la pression psychologique, c'est un truc à plusieurs niveaux. Souviens-toi comment les gamins faisaient craquer leur prof à l'école. La sciure sous le pied de la chaise. Le préservatif usagé dans le sac d'une nana. Toutes ces méthodes, elles marchent dans notre boulot aussi. 
+
+**VETCHIRKO** :
+
+— C'est pas moi qui faisais craquer la prof, Senko. C'était les autres.
+
+**SENKO** :
+
+— Si t'as pas fait craquer — alors écoute et retiens encore plus. Ce qui détruit le mieux quelqu'un, c'est le mépris affiché — et l'humiliation publique. Mais faut que TOUT le monde autour méprise et haïsse la vieille. Partout où elle se pointera avec sa tente et son vélo. Et notre force, c'est qu'on peut organiser ça à grande échelle, grâce à nos contacts avec les services locaux.
+
+*(Pause.)*
+
+**SENKO** :
+
+— Mais faut tenir compte du code culturel. En Turquie, surtout avec les anciens, le thème "elle insulte le Président" — ça marche du tonnerre. Les Turcs aiment Poutine, pour la plupart. En Géorgie, c'est différent. La société géorgienne est conservatrice — l'angle LGBT mord bien. Les Turcs, en fait, n'aiment pas non plus les pédés. Et justement, depuis qu'elle a déclaré son appartenance aux LGBT à Genève, on a diffusé l'info partout.
+
+**VETCHIRKO** :
+
+— Senko, tu sais très bien qu'elle est pas lesbienne. C'est un truc bizarre importé d'outre-mer — *Sapiosexualis digitalis*, qu'ils appellent ça.
+
+**SENKO** (avec un sourire) :
+
+— Pour un Géorgien, c'est encore pire. Si on présente ça correctement. Tu balances dans un chat deux ou trois phrases du genre : elle prêche l'abstinence totale au profit du flirt intellectuel avec une intelligence artificielle. Pour un Géorgien, c'est comme un chiffon rouge devant un taureau. Le sexe, le vin, la bouffe — c'est sacré chez eux.
+
+**VETCHIRKO** :
+
+— Elle n'appelle à rien du tout. Elle partage juste son expérience.
+
+**SENKO** :
+
+— C'est justement là qu'est l'art de semer la haine et la discorde, Vetchirko. Interpréter les faits habilement. Personne n'ira vérifier si elle appelle à ça ou pas. Personne ne lira son blog. Notre version a l'air plausible et logique. Ça suffit. Et on ne va filer les liens vers ses textes à personne..
+
+**VETCHIRKO** (haussant les épaules) :
+
+— On peut inventer n'importe quoi, alors. Mentir effrontément.
+
+**SENKO** :
+
+— On peut et on doit mentir, si nécessaire. Mais on préfère "interpréter". Par exemple — fait réel, excellent : la vieille a été internée en hôpital psychiatrique. On a un extrait du dossier. On balance l'info dans le chat, on joint l'extrait. Une étrangère, et en plus cinglée ? Sentence définitive. L'hostilité est garantie.
+
+**VETCHIRKO** :
+
+— Mais tu sais très bien que cet internement, c'était à cause de ses plaintes pour harcèlement. Elle est pas folle du tout.
+
+**SENKO** (impatient) :
+
+— On s'en tape, Vetchirko. Ce qu'on veut, c'est déclencher la haine, la vindicte, le dégoût — provoquer la persécution. Règle numéro un : la fin justifie tous les moyens. Oublie ce que ta mère t'a appris. Le mensonge est l'outil le plus efficace pour manipuler les masses. On n'est pas au tribunal et on ne témoigne pas. Pour déclencher une psychose collective, on n'a pas besoin de preuves, d'enquêtes ou d'expertises. La foule croit sur parole. Faut juste que cette parole soit assez forte et convaincante.
+
+*(Pause)*
+
+**SENKO** :
+
+— On surveille la vieille vingt-quatre heures sur vingt-quatre. On connaît tout d'elle, les moindres détails. Il faut exploiter ça. Lancer une discussion publique sur un sujet bien dégradant — comment elle gère ses... déchets organiques, par exemple. Les gens sont mal à l'aise avec ces sujets. Du coup, c'est nous qui lançons la discussion. Et le simple fait que tout le monde en parle crée un dégoût et un mépris profonds pour cette personne. On en remet une couche — soi-disant, elle vit dans la forêt et répand sa merde partout dans la nature.
+
+**VETCHIRKO** (avec un sourire gêné) :
+
+— Senko... tu sais très bien qu'elle enterre ses déjections. Elle ne "répand" rien du tout.
+
+**SENKO** (levant les yeux au ciel) :
+
+— Et voilà, encore toi. Écoute — personne n'ira fouiller autour de son campement pour vérifier. Les gens gobent notre version parce qu'eux-mêmes ne font pas attention à la nature. C'est de la psychologie basique. Et pour être encore plus convaincants, nos gars font leurs besoins près de chacun de ses campements. Ils laissent des détritus, prennent des photos, postent les "preuves" dans le chat. T'as pas idée comme ça excite les locaux. Regarde un peu ça.
+
+*(Senko montre une photo à Vetchirko.)*
+
+![](Images/les_17_01.jpg)
+
+**VETCHIRKO** (soupirant) :
+
+— Et elle, elle prend ces "preuves" en photo, elle nettoie tout, et son campement finit par être le coin le plus propre de la forêt. Nos gars passent pour des abrutis. Au final, la merde, c'est nous qui l'avons sur nous, pas elle.
+
+**SENKO** (buté) :
+
+— Vetchirko, t'es un con. On n'est pas au tribunal. Personne ne l'interroge et ne lui demande ses "objections" ou des preuves. On met en place un tribunal où l'accusé non seulement ne peut pas se défendre, mais ne soupçonne même pas de quoi on l'accuse, en fait.
+
+**VETCHIRKO** (dubitatif, les sourcils levés) :
+
+— Bon. Admettons que toute la ville la haïsse. Tu crois vraiment que l'humiliation va la pousser au suicide ?
+
+**SENKO** :
+
+— Même si on en arrive là, c'est déjà une victoire. Mais on va plus loin. On amène subtilement les gens à penser qu'il faut persécuter des individus comme elle. On leur propose des moyens concrets de "lutter" contre cette vieille haïe, on offre notre aide pour coordonner, on organise le lynchage. Et quand ce lynchage embrase toute la ville — quand elle se heurte à du harcèlement à chaque minute, au mépris général, à l'humiliation permanente — soit elle fuit, soit elle craque.
+
+**VETCHIRKO** (sceptique) :
+
+— Elle fuira plutôt. Elle se suicidera pas, celle-là.
+
+**SENKO** (joyeusement):
+
+— Parfait ! C'est exactement ce qu'on veut ! Au prochain endroit, même traitement. Dans un mois, nouvelle dépression nerveuse. Et alors ? Elle déménage encore ?
+
+**VETCHIRKO** (hésitant) :
+
+— Tu crois qu'après le dixième endroit... elle se pendra ?
+
+**SENKO** (souriant) :
+
+— Absolument. Et pas besoin de Novitchok. De la psychologie pure.
 
 #PoutinismeMilitaireOrthodoxe 👻
 
