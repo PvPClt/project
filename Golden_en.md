@@ -7,7 +7,7 @@ layout: default
 [**Main Page**](index.md)
 
 # THE GOLDEN DOZEN
-### TOP 12 SATIRICAL MINIATURES
+**TOP 12 SATIRICAL MINIATURES**
 
 **Author: Shcheglova Olga (Boris Bidyaga)**
 
@@ -27,7 +27,7 @@ The “Golden Dozen” dossier presented herein dissects four core pathologies o
 Below you will find **The Golden Dozen** — twelve key diagnostic miniatures. They serve as both a diagnostic introduction and a conclusive proof of concept.
 
 
-### CONTENTS
+## CONTENTS
 
 [1. The Supernovus Covenant](Golden_en.md#1-the-supernovus-covenant)
 
