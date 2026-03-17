@@ -7,7 +7,7 @@ layout: default
 [**Page d'accueil**](index.md)
 
 # LA DOUZAINE D'OR
-### TOP 12 DES MINIATURES SATIRIQUES
+**TOP 12 DES MINIATURES SATIRIQUES**
 
 **Auteur : Olga Shcheglova (Boris Bidyaga)**
 
@@ -29,7 +29,7 @@ Le dossier de la « Douzaine d’Or » présenté ici dissèque quatre pathologi
 
 Voici ci-dessous la Douzaine d'Or — douze miniatures diagnostiques clés. Elles servent à la fois d'introduction et de preuve conceptuelle concluante.
 
-**SOMMAIRE** :
+## SOMMAIRE :
 
 [1. Le Nouveau Testament Supernovaire](Golden_fr.md#1-le-nouveau-testament-supernovaire)
 
