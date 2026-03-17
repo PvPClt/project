@@ -6,8 +6,7 @@ layout: default
 
 [**Main Page**](index.md)
 
-# ABOUT THE AUTHOR 
-### AND THE CONDITIONS OF THE PROJECT’S CREATION
+# ABOUT THE AUTHOR AND THE CONDITIONS OF THE PROJECT’S CREATION
 
 ![](Images/Author.jpg)
 *It was in this tent, protected by a makeshift fence made of sticks, that the 
