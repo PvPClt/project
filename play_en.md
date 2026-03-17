@@ -7,8 +7,9 @@ layout: default
 [**Main Page**](index.md)
 
 # RISING OFF HER KNEES 
-### ONE-ACT PLAY
-### For the 72nd anniversary of Putin
+**ONE-ACT PLAY**
+
+**For the 72nd anniversary of Putin**
 
 **Author: Shcheglova (Olga Boris Bidyaga)** 
 
