@@ -7,13 +7,13 @@ layout: default
 [**Page d'accueil**](index.md)
 
 # ANATOMIE DES « VALEURS TRADITIONNELLES » POUTINIENNES
-### ARTICLE ANALYTIQUE 
+**ARTICLE ANALYTIQUE**
 
 **Auteur : Olga Shcheglova (Boris Bidyaga)**
 
 ![](Images/Cover_Values.jpg)
 
-**Préface** :
+### Préface :
 
 Déconstruction méthodologique de la nouvelle idéologie d'État du Kremlin. En prenant pour base les déclarations de Poutine et le code moral de la religion chrétienne orthodoxe, nous confrontons méthodiquement et impitoyablement chaque postulat et chaque commandement chrétien aux modèles de comportement ouvertement barbares, prédateurs et anti-humains ancrés dans la politique et la société russes. Étape par étape, dans un langage simple et accessible, nous prouvons que les « valeurs traditionnelles » (normes morales chrétiennes) proclamées par Poutine ne sont pas seulement bafouées, mais déformées et perverties pour devenir une doctrine d'hypocrisie et de cynisme sacralisés.
 
