@@ -7,13 +7,13 @@ layout: default
 [**Main page**](index.md)
 
 # WARD №666
-### THE GRAND ALBUM OF SATIRICAL MINIATURES 
+**THE GRAND ALBUM OF SATIRICAL MINIATURES** 
 
 **Author: Shcheglova Olga (Boris Bidyaga)**
 
 ![](Images/En_Album_Cover.jpg)
 
-### INTRODUCTION
+## INTRODUCTION
 What lies before you is not just a collection of caricatures. It is an anatomical cross-section of the Putin era: Orthodox military Putinism as a form of collective madness.
 Here you will find icons with pagan gods, baptisms in trenches, holy water — administered intramuscularly. Here patriotism comes with a sock on the genitals, and the Pentagon’s combat dolphins swim freely.
 In these miniatures, society appears as one where war has replaced common sense, “traditional values” have replaced conscience, and Orthodoxy has become the “lubricant” for missile launchers. Priests bless violence, deputies trade in patriotism, and schools teach not to think, but to give birth and obey.  
@@ -1985,9 +1985,6 @@ I demand that you make peace! Sit down at the negotiating table!
                               👻
                              
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
-
-### CONCLUSION
-Thank you for being with us! Your likes, reposts, and promotion of our channel are the best support that helps the project live and develop.
 
 ### ACKNOWLEDGEMENTS
 The author expresses deepest gratitude to Vladimir Putin — the eternal patriarch of Ward № 666 — for his contribution to world satire, for the inexhaustible material supplied in real time, and for his personal example of how not to run a country.
