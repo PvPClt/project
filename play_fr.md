@@ -8,9 +8,9 @@ layout: default
 
 # SE RELEVANT DE SES GENOUX
 
-### MINI-PIÈCE SATIRIQUE
+**MINI-PIÈCE SATIRIQUE**
 
-### Pour le 72ème anniversaire de Poutine
+**Pour le 72ème anniversaire de Poutine**
 
 **Auteur : Olga Shcheglova (Boris Bidyaga)**
 
