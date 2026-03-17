@@ -7,21 +7,17 @@ layout: default
 [**Page d'accueil**](index.md)
 
 # 🇫🇷 CHAMBRE N°666
-### LE GRAND ALBUM DE MINIATURES SATIRIQUES
+**LE GRAND ALBUM DE MINIATURES SATIRIQUES**
 
 **Auteur : Olga Shcheglova (Boris Bidyaga)**
 
 ![](Images/Fr_Album_Cover.jpg)
 
-### INTRODUCTION
+## INTRODUCTION
 
 Ce qui se trouve devant vous n’est pas seulement un recueil de caricatures. C’est une coupe anatomique de l’ère Poutine : le poutinisme militaire orthodoxe comme forme de folie collective.
 On y trouve des icônes avec des dieux païens, des baptêmes dans les tranchées, de l’eau bénite — injectée par voie intramusculaire. Ici, le patriotisme se pare d’une chaussette sur le sexe et les dauphins de combat du Pentagone nagent au service de la guerre.
 Dans ces miniatures se dessine une société où la guerre a remplacé le bon sens, les « valeurs traditionnelles » ont remplacé la conscience, et l’orthodoxie est devenue le « lubrifiant » des lance-missiles. Les prêtres bénissent la violence, les députés marchandent le patriotisme, et l’école n’enseigne plus à penser, mais à enfanter et obéir.
-
-Bonne lecture !
-N'oubliez pas de liker, de reposter et de partager le lien avec vos amis. Votre engagement est le meilleur soutien pour le projet !
-
 
 ## 1. PATRIOTISME AVEC UNE CHAUSSETTE SUR LA BITE
 
@@ -1952,10 +1948,6 @@ Mêmes personnages
                                 
 <img src="https://pvpclt.github.io/project/Images/Logo.jpg" style="display: block; margin: 0 auto; width: 50%;" alt="">
 
-### CONCLUSION
-
-Merci d'avoir été avec nous ! Vos likes, vos partages et la promotion de notre chaîne sont le meilleur soutien qui aide le projet à vivre et à se développer.
-Si l’humour noir de l’auteur vous a plu, nous vous proposons de découvrir une œuvre encore plus percutante — la mini-pièce satirique illustrée « Se relevant de ses genoux »:
 
 ### REMERCIEMENTS
 
